@@ -40,16 +40,18 @@ class Hansard(AbstractDoc):
         return doc
 
     @classmethod
-    def __process_table__(cls, table) -> Generator["Hansard", None, None]:
+    def __process_table__(cls, table) -> list["Hansard"]:
+        doc_list = []
         for tr in table.find_all("tr"):
             try:
                 doc = cls.__parse_tr__(tr)
-                yield doc
+                doc_list.append(doc)
             except Exception as e:
                 log.error(f"{e}")
+        return doc_list
 
     @classmethod
-    def __process_page__(cls, i_page) -> Generator["Hansard", None, None]:
+    def __process_page__(cls, i_page) -> list["Hansard"]:
         start = i_page * 20
         url_page = f"{cls.URL}?start={start}"
         www = WWW(url_page)
@@ -58,23 +60,24 @@ class Hansard(AbstractDoc):
             soup = www.soup
             if soup is None:
                 log.error(f"Failed to get soup for {url_page}")
-                return
+                return []
 
             table = soup.find("table", class_="tablearticle")
             if table is None:
                 log.error(f"Failed to find table for {url_page}")
-                return
+                return []
         except Exception as e:
             log.error(f"Failed to process {url_page}: {e}")
-            return
+            return []
 
-        for doc in cls.__process_table__(table):
-            yield doc
+        return cls.__process_table__(table)
 
     @classmethod
     def gen_docs(cls) -> Generator["Hansard", None, None]:
         i_page = 0
         while i_page < cls.MAX_PAGES:
-            for doc in cls.__process_page__(i_page):
-                yield doc
+            doc_list = cls.__process_page__(i_page)
+            if not doc_list:
+                return
+            yield from doc_list
             i_page += 1
