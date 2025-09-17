@@ -4,8 +4,9 @@ from dataclasses import asdict
 
 from utils import File, Log, Time, TimeFormat
 
-from pdf_scraper.abstract_doc.AbstractDocChartDocsByYearMixin import \
-    AbstractDocChartDocsByYearMixin
+from pdf_scraper.abstract_doc.AbstractDocChartDocsByYearMixin import (
+    AbstractDocChartDocsByYearMixin,
+)
 from utils_future import PDFFile
 
 log = Log("AbstractDocReadMeMixin")
@@ -129,29 +130,6 @@ class AbstractDocReadMeMixin(AbstractDocChartDocsByYearMixin):
         return title
 
     @classmethod
-    def get_lines_for_example_document(cls) -> list[str]:
-        image_path = os.path.join("images", "pdf_preview.png")
-        doc_list = cls.list_all()
-        docs_with_pdf = [doc for doc in doc_list if doc.has_pdf]
-        if not docs_with_pdf:
-            return []
-        first_doc = docs_with_pdf[-1]
-        pdf_path = first_doc.pdf_path
-        try:
-            PDFFile(pdf_path).download_image(0, image_path)
-        except Exception as e:
-            log.error(f"Failed to generate PDF preview image: {e}")
-            return []
-        return [
-            "## 📃 Example Document",
-            "",
-            f"![PDF Preview]({image_path})",
-            "",
-            f"[More details]({first_doc.remote_data_url})",
-            "",
-        ]
-
-    @classmethod
     def get_lines_for_header(cls) -> list[str]:
         time_updated = TimeFormat("%Y--%m--%d_%H:%M:%S").format(Time.now())
         file_size_g = cls.get_total_file_size() / 1_000_000_000
@@ -184,7 +162,6 @@ class AbstractDocReadMeMixin(AbstractDocChartDocsByYearMixin):
             + cls.get_lines_for_metadata_example()
             + cls.get_lines_chart_docs_by_year()
             + cls.get_lines_for_hugging_face()
-            + cls.get_lines_for_example_document()
             + cls.get_lines_for_latest_docs()
             + cls.get_lines_for_footer()
         )
