@@ -39,6 +39,15 @@ class Hansard(AbstractDoc):
         return doc
 
     @classmethod
+    def __process_table__(cls, table) -> Generator["Hansard", None, None]:
+        for tr in table.find_all("tr"):
+            try:
+                doc = cls.__parse_tr__(tr)
+                yield doc
+            except Exception as e:
+                log.error(f"{e}")
+
+    @classmethod
     def __process_page__(cls, i_page) -> Generator["Hansard", None, None]:
         start = i_page * 20
         url_page = f"{cls.URL}?start={start}"
@@ -46,17 +55,20 @@ class Hansard(AbstractDoc):
 
         try:
             soup = www.soup
+            if soup is None:
+                log.error(f"Failed to get soup for {url_page}")
+                return
+
             table = soup.find("table", class_="tablearticle")
+            if table is None:
+                log.error(f"Failed to find table for {url_page}")
+                return
         except Exception as e:
             log.error(f"Failed to process {url_page}: {e}")
             return
 
-        for tr in table.find_all("tr"):
-            try:
-                doc = cls.__parse_tr__(tr)
-                yield doc
-            except Exception as e:
-                log.error(f"{e}")
+        for doc in cls.__process_table__(table):
+            yield doc
 
     @classmethod
     def gen_docs(cls) -> Generator["Hansard", None, None]:
