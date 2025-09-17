@@ -1,21 +1,25 @@
 # 🇱🇰 #SriLanka Hansard `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--17_18:42:06-green)
-![DatasetSize](https://img.shields.io/badge/dataset_size-12.9_GB-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--17_18:58:51-green)
+![DatasetSize](https://img.shields.io/badge/dataset_size-12.9_GB-yellow)
 
-📜 **1,661** documents, from **2006-02-01** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**.
+[https://github.com/nuuuwan/lk_hansard](https://github.com/nuuuwan/lk_hansard)
 
-📒 PDFs have been downloaded for **1,661** (**100%**) documents.
+📜 [**1,661** documents](https://github.com/nuuuwan/lk_hansard/tree/data) (**12.9 GB**), from **2006-02-01** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**
 
-📚 Complete [Dataset](https://github.com/nuuuwan/lk_hansard/tree/data) (**12.9 GB**)
- - 🆓 Public data, & fully open-source.
- - 🙏 Please share & fork!
+📑 In JSON, PDF, TXT and 🤗 Hugging Face Formats
 
-⏰ Updated **at least Daily**.
+⏰ Updated **at least Daily**
 
-🪲 #WorkInProgress - Suggestions, Questions, Ideas, & [Bug Reports](https://github.com/nuuuwan/lk_hansard/issues) are welcome!
+🆓 Public data & fully open-source
 
 #OpenData #DataScience #DataForGood #ResearchData #NLP
+
+...
+
+*📒 PDFs have been downloaded for **1,661** (**100%**) documents*
+
+🪲 #WorkInProgress - Suggestions, Questions, Ideas, & [Bug Reports](https://github.com/nuuuwan/lk_hansard/issues) are welcome!
 
 ## 📝 Example Metadata
 
@@ -28,8 +32,6 @@
     "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards"
 }
 ```
-
-[More details](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-10-2025-09-10)
 
 ## Documents By Year
 
