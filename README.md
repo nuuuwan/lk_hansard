@@ -7,10 +7,10 @@ A collection of Lk_Hansard documents.
 |   |    |
 | :-- | --: |
 | Data Source | www.parliament.lk |
-| Date Range | 2025-09-10 to 2025-09-10 |
-| Number of Docs | 1 |
-| Number of Docs with PDFs | 1 |
-| Dataset Size | 0.0GB |
+| Date Range | 2013-07-24 to 2025-09-10 |
+| Number of Docs | 1,059 |
+| Number of Docs with PDFs | 62 |
+| Dataset Size | 0.4GB |
 
 ## Document Metadata Example
 
@@ -38,3 +38,22 @@ A collection of Lk_Hansard documents.
 ## 20 Latest documents
 
 - 2025-09-10 | `2025-09-10` | Hansard of September 10, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-10-2025-09-10)
+- 2025-09-09 | `2025-09-09` | Hansard of September 09, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-09-2025-09-09)
+- 2025-08-22 | `2025-08-22` | Hansard of August 22, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-22-2025-08-22)
+- 2025-08-21 | `2025-08-21` | Hansard of August 21, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-21-2025-08-21)
+- 2025-08-20 | `2025-08-20` | Hansard of August 20, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-20-2025-08-20)
+- 2025-08-19 | `2025-08-19` | Hansard of August 19, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-19-2025-08-19)
+- 2025-08-07 | `2025-08-07` | Hansard of August 07, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-07-2025-08-07)
+- 2025-08-06 | `2025-08-06` | Hansard of August 06, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-06-2025-08-06)
+- 2025-08-05 | `2025-08-05` | Hansard of August 05, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-05-2025-08-05)
+- 2025-07-25 | `2025-07-25` | Hansard of July 25, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-25-2025-07-25)
+- 2025-07-24 | `2025-07-24` | Hansard of July 24, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-24-2025-07-24)
+- 2025-07-23 | `2025-07-23` | Hansard of July 23, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-23-2025-07-23)
+- 2025-07-22 | `2025-07-22` | Hansard of July 22, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-22-2025-07-22)
+- 2025-07-11 | `2025-07-11` | Hansard of July 11, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-11-2025-07-11)
+- 2025-07-09 | `2025-07-09` | Hansard of July 09, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-09-2025-07-09)
+- 2025-07-08 | `2025-07-08` | Hansard of July 08, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-08-2025-07-08)
+- 2025-06-30 | `2025-06-30` | Hansard of June 30, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-30-2025-06-30)
+- 2025-06-20 | `2025-06-20` | Hansard of June 20, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-20-2025-06-20)
+- 2025-06-19 | `2025-06-19` | Hansard of June 19, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-19-2025-06-19)
+- 2025-06-18 | `2025-06-18` | Hansard of June 18, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-18-2025-06-18)
