@@ -1,5 +1,17 @@
 # 📜 🇱🇰 #SriLanka Hansard
 
+ 🔗 Data Source: www.parliament.lk
+
+ 🔗 All Raw Data: [https://github.com/nuuuwan/lk_hansard/tree/data](https://github.com/nuuuwan/lk_hansard/tree/data)
+
+ 📅 Date Range: 2013-07-24 to 2025-09-10
+
+ 📑 Number of Docs: 1,059
+
+ 📎 Number of Docs with PDFs: 76
+
+ 💾 Dataset Size: 1.0GB
+
 🆓 Public data, fully open-source – fork freely!
 
 🔍 Useful for Journalists, Researchers, Lawyers & law students, Policy watchers & Citizens who want to stay informed
@@ -7,17 +19,6 @@
 🐞 #WorkInProgress - Suggestions, Questions, Ideas, [Bug Reports](https://github.com/nuuuwan/lk_hansard/issues) are welcome!
 
 #SriLanka #OpenData #GovTech
-## 📊 Dataset Summary
-
-|   |    |
-| :-- | --: |
-| 🔗 Data Source | www.parliament.lk |
-| 🔗 All Raw Data | [https://github.com/nuuuwan/lk_hansard/tree/data](https://github.com/nuuuwan/lk_hansard/tree/data) (in "data" branch) |
-| 📅 Date Range | 2013-07-24 to 2025-09-10 |
-| 📑 Number of Docs | 1,059 |
-| 📎 Number of Docs with PDFs | 75 |
-| 💾 Dataset Size | 0.9GB |
-
 ## 📝 Example Metadata
 
 ```json
