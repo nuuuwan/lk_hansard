@@ -1,19 +1,21 @@
-# 🇱🇰 #SriLanka Hansard
+# 🇱🇰 #SriLanka Hansard `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--17_14:51:20-green)
-![DatasetSize](https://img.shields.io/badge/dataset_size-7.1_GB-green)
+![PDF Preview](images/pdf_preview.png)
+
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--17_15:04:04-green)
+![DatasetSize](https://img.shields.io/badge/dataset_size-7.8_GB-green)
 
 📜 **1,661** documents, from **2006-02-01** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**.
 
-📒 PDFs have been downloaded for **783** documents.
+📒 PDFs have been downloaded for **818** (**49%**) documents.
 
-📚 Complete [Dataset](https://github.com/nuuuwan/lk_hansard/tree/data) (**7.1 GB**)
+📚 Complete [Dataset](https://github.com/nuuuwan/lk_hansard/tree/data) (**7.8 GB**)
  - 🆓 Public data, & fully open-source.
  - 🙏 Please share & fork!
 
-🪲 #WorkInProgress - Suggestions, Questions, Ideas, & [Bug Reports](https://github.com/nuuuwan/lk_hansard/issues) are welcome!
+⏰ Updated **at least Daily**.
 
-⏰ Updated **daily**.
+🪲 #WorkInProgress - Suggestions, Questions, Ideas, & [Bug Reports](https://github.com/nuuuwan/lk_hansard/issues) are welcome!
 
 #OpenData #DataScience #DataForGood #ResearchData #NLP
 
