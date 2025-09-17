@@ -21,7 +21,7 @@ class AbstractDocReadMeMixin(AbstractDocChartDocsByYearMixin):
 
     @classmethod
     def get_lines_for_latest_docs(cls):
-        lines = [f"## {cls.N_LATEST} Latest documents", ""]
+        lines = [f"## 🆕 {cls.N_LATEST} Latest documents", ""]
         for doc in cls.list_all()[: cls.N_LATEST]:
             line = "- " + " | ".join(
                 [
@@ -49,7 +49,7 @@ class AbstractDocReadMeMixin(AbstractDocChartDocsByYearMixin):
     def get_lines_for_metadata_example(cls) -> list[str]:
         latest_doc = cls.list_all()[0]
         return [
-            "## Document Metadata Example",
+            "## 📝 Example Metadata",
             "",
             "```json",
             json.dumps(asdict(latest_doc), indent=4),
@@ -76,19 +76,23 @@ class AbstractDocReadMeMixin(AbstractDocChartDocsByYearMixin):
         latest_doc = cls.list_all()[0]
         netloc = urlparse(latest_doc.url_metadata).netloc
 
+        url_data = cls.get_remote_data_url_base()
+
         return (
             [
-                "## Data Summary",
+                "## 📊 Dataset Summary",
                 "",
             ]
             + Markdown.table(
                 [
                     {
-                        "Data Source": netloc,
-                        "Date Range": f"{date_str_min} to {date_str_max}",
-                        "Number of Docs": f"{n_docs:,}",
-                        "Number of Docs with PDFs": f"{n_docs_with_pdfs:,}",
-                        "Dataset Size": f"{file_size_g:.1f}GB",
+                        "🔗 Data Source": netloc,
+                        "🔗 All Raw Data": f"[{url_data}]({url_data})"
+                        + ' (in "data" branch)',
+                        "📅 Date Range": f"{date_str_min} to {date_str_max}",
+                        "📑 Number of Docs": f"{n_docs:,}",
+                        "📎 Number of Docs with PDFs": f"{n_docs_with_pdfs:,}",
+                        "💾 Dataset Size": f"{file_size_g:.1f}GB",
                     },
                 ]
             )
@@ -99,20 +103,36 @@ class AbstractDocReadMeMixin(AbstractDocChartDocsByYearMixin):
     def get_lines_for_hugging_face(cls):
         lines = ["## 🤗 Hugging Face Datasets", ""]
 
-        for label_suffix in ["docs", "chunks"]:
+        for emoji, label_suffix in [["📄", "docs"], ["📦", "chunks"]]:
             dataset_id = cls.get_dataset_id(label_suffix)
             url = cls.get_dataset_url(label_suffix)
-            lines.append(f"- [{dataset_id}]({url})")
+            lines.append(f"- {emoji} [{dataset_id}]({url})")
         lines.append("")
         return lines
 
     @classmethod
+    def get_title(cls) -> str:
+        title = cls.get_doc_class_label().title().replace("_", " ")
+        title = title.replace("Lk", "🇱🇰 #SriLanka")
+        return title
+
+    @classmethod
     def get_lines_for_header(cls) -> list[str]:
+        url_repo = cls.get_remote_repo_url()
         return [
-            f"# {cls.get_doc_class_label().title()}",
+            f"# 📜 {cls.get_title()}",
             "",
-            cls.get_doc_class_description(),
+            "🆓 Public data, fully open-source – fork freely!",
             "",
+            "🔍 Useful for Journalists, Researchers,"
+            + " Lawyers & law students,"
+            + " Policy watchers & Citizens who want to stay informed",
+            "",
+            "🐞 #WorkInProgress - Suggestions, Questions, Ideas,"
+            + f" [Bug Reports]({url_repo}/issues)"
+            + " are welcome!",
+            "",
+            "#SriLanka #OpenData #GovTech",
         ]
 
     @classmethod
