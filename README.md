@@ -2,14 +2,14 @@
 
 ![PDF Preview](images/pdf_preview.png)
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--17_15:37:00-green)
-![DatasetSize](https://img.shields.io/badge/dataset_size-8.4_GB-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--17_15:58:29-green)
+![DatasetSize](https://img.shields.io/badge/dataset_size-8.5_GB-green)
 
 📜 **1,661** documents, from **2006-02-01** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**.
 
-📒 PDFs have been downloaded for **1,019** (**61%**) documents.
+📒 PDFs have been downloaded for **1,028** (**62%**) documents.
 
-📚 Complete [Dataset](https://github.com/nuuuwan/lk_hansard/tree/data) (**8.4 GB**)
+📚 Complete [Dataset](https://github.com/nuuuwan/lk_hansard/tree/data) (**8.5 GB**)
  - 🆓 Public data, & fully open-source.
  - 🙏 Please share & fork!
 
