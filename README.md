@@ -1,6 +1,6 @@
 # 🇱🇰 #SriLanka Hansard `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--17_17:39:53-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--17_18:05:17-green)
 ![DatasetSize](https://img.shields.io/badge/dataset_size-12.4_GB-green)
 
 📜 **1,661** documents, from **2006-02-01** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**.
