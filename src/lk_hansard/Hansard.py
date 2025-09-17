@@ -43,9 +43,14 @@ class Hansard(AbstractDoc):
         start = i_page * 20
         url_page = f"{cls.URL}?start={start}"
         www = WWW(url_page)
-        soup = www.soup
 
-        table = soup.find("table", class_="tablearticle")
+        try:
+            soup = www.soup
+            table = soup.find("table", class_="tablearticle")
+        except Exception as e:
+            log.error(f"Failed to process {url_page}: {e}")
+            return
+
         for tr in table.find_all("tr"):
             try:
                 doc = cls.__parse_tr__(tr)
