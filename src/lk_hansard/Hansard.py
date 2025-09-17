@@ -9,9 +9,7 @@ log = Log("Hansard")
 
 
 class Hansard(AbstractDoc):
-    URL = (
-        "https://www.parliament.lk/en/business-of-parliament/hansards?start=0"
-    )
+    URL = "https://www.parliament.lk/en/business-of-parliament/hansards"
     DATE_FORMAT_HANSARD = TimeFormat("%B %d, %Y")
     DATE_FORMAT_GENERIC = TimeFormat("%Y-%m-%d")
 
