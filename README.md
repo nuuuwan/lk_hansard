@@ -1,18 +1,24 @@
-# Lk_Hansard
+# 📜 🇱🇰 #SriLanka Hansard
 
-A collection of Lk_Hansard documents.
+🆓 Public data, fully open-source – fork freely!
 
-## Data Summary
+🔍 Useful for Journalists, Researchers, Lawyers & law students, Policy watchers & Citizens who want to stay informed
+
+🐞 #WorkInProgress - Suggestions, Questions, Ideas, [Bug Reports](https://github.com/nuuuwan/lk_hansard/issues) are welcome!
+
+#SriLanka #OpenData #GovTech
+## 📊 Dataset Summary
 
 |   |    |
 | :-- | --: |
-| Data Source | www.parliament.lk |
-| Date Range | 2013-07-24 to 2025-09-10 |
-| Number of Docs | 1,059 |
-| Number of Docs with PDFs | 62 |
-| Dataset Size | 0.4GB |
+| 🔗 Data Source | www.parliament.lk |
+| 🔗 All Raw Data | [https://github.com/nuuuwan/lk_hansard/tree/data](https://github.com/nuuuwan/lk_hansard/tree/data) (in "data" branch) |
+| 📅 Date Range | 2013-07-24 to 2025-09-10 |
+| 📑 Number of Docs | 1,059 |
+| 📎 Number of Docs with PDFs | 75 |
+| 💾 Dataset Size | 0.9GB |
 
-## Document Metadata Example
+## 📝 Example Metadata
 
 ```json
 {
@@ -32,10 +38,10 @@ A collection of Lk_Hansard documents.
 
 ## 🤗 Hugging Face Datasets
 
-- [nuuuwan/lk-hansard-docs](https://huggingface.co/datasets/nuuuwan/lk-hansard-docs)
-- [nuuuwan/lk-hansard-chunks](https://huggingface.co/datasets/nuuuwan/lk-hansard-chunks)
+- 📄 [nuuuwan/lk-hansard-docs](https://huggingface.co/datasets/nuuuwan/lk-hansard-docs)
+- 📦 [nuuuwan/lk-hansard-chunks](https://huggingface.co/datasets/nuuuwan/lk-hansard-chunks)
 
-## 20 Latest documents
+## 🆕 20 Latest documents
 
 - 2025-09-10 | `2025-09-10` | Hansard of September 10, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-10-2025-09-10)
 - 2025-09-09 | `2025-09-09` | Hansard of September 09, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-09-2025-09-09)
