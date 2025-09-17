@@ -1,0 +1,630 @@
+[
+  {
+    "page_number": 0,
+    "bbox": [
+      59.4,
+      74.06,
+      233.06,
+      115.39
+    ],
+    "text": "264 - 4 264 - . 4 Volume 264 - No. 4",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota,Bold",
+      "TimesNewRomanPS-BoldMT"
+    ],
+    "sizes": [
+      10.979999542236328,
+      12.0,
+      12.479999542236328
+    ]
+  },
+  {
+    "page_number": 0,
+    "bbox": [
+      377.82,
+      74.05,
+      542.26,
+      115.99
+    ],
+    "text": "2018 19 2018 19, Monday, 19th November, 2018",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota,Bold",
+      "TimesNewRomanPS-BoldMT"
+    ],
+    "sizes": [
+      7.800000190734863,
+      10.979999542236328,
+      12.0,
+      13.020000457763672
+    ]
+  },
+  {
+    "page_number": 0,
+    "bbox": [
+      136.5,
+      337.29,
+      466.05,
+      403.0
+    ],
+    "text": "()",
+    "fonts": [
+      "ArialUnicodeMS",
+      "DinaminaUniWeb"
+    ],
+    "sizes": [
+      18.0,
+      27.479999542236328
+    ]
+  },
+  {
+    "page_number": 0,
+    "bbox": [
+      137.88,
+      406.42,
+      462.71,
+      482.36
+    ],
+    "text": "() PARLIAMENTARY DEBATES (HANSARD)",
+    "fonts": [
+      "ArialUnicodeMS",
+      "DinaminaUniWeb",
+      "TimesNewRomanPS-BoldMT",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      13.979999542236328,
+      18.0,
+      22.979999542236328
+    ]
+  },
+  {
+    "page_number": 0,
+    "bbox": [
+      224.76,
+      636.28,
+      374.67,
+      706.5
+    ],
+    "text": "OFFICIAL REPORT",
+    "fonts": [
+      "ArialUnicodeMS",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      16.020000457763672,
+      18.0
+    ]
+  },
+  {
+    "page_number": 0,
+    "bbox": [
+      181.86,
+      767.38,
+      415.48,
+      780.79
+    ],
+    "text": "( / /Uncorrected)",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      10.020000457763672
+    ]
+  },
+  {
+    "page_number": 2,
+    "bbox": [
+      206.7,
+      120.67,
+      317.63,
+      159.54
+    ],
+    "text": ":",
+    "fonts": [
+      "IskoolaPota",
+      "IskoolaPota,Bold",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      10.020000457763672,
+      10.979999542236328
+    ]
+  },
+  {
+    "page_number": 2,
+    "bbox": [
+      210.24,
+      625.63,
+      309.42,
+      636.72
+    ],
+    "text": "ANNOUNCEMENTS:",
+    "fonts": [
+      "TimesNewRomanPS-BoldMT"
+    ],
+    "sizes": [
+      10.020000457763672
+    ]
+  },
+  {
+    "page_number": 2,
+    "bbox": [
+      210.24,
+      644.47,
+      366.46,
+      655.84
+    ],
+    "text": "COMMITTEE OF SELECTION",
+    "fonts": [
+      "IskoolaPota",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      10.020000457763672
+    ]
+  },
+  {
+    "page_number": 2,
+    "bbox": [
+      209.7,
+      580.15,
+      385.84,
+      597.88
+    ],
+    "text": "PRINCIPAL CONTENTS",
+    "fonts": [
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      16.020000457763672
+    ]
+  },
+  {
+    "page_number": 2,
+    "bbox": [
+      206.7,
+      366.41,
+      270.54,
+      378.45
+    ],
+    "text": ":",
+    "fonts": [
+      "ArialUnicodeMS"
+    ],
+    "sizes": [
+      9.0
+    ]
+  },
+  {
+    "page_number": 4,
+    "bbox": [
+      110.77,
+      99.69,
+      409.07,
+      190.58
+    ],
+    "text": "PARLIAMENT - 2018 19",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota,Bold",
+      "TimesNewRomanPS-BoldMT",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      10.020000457763672,
+      12.0,
+      13.979999542236328,
+      16.020000457763672
+    ]
+  },
+  {
+    "page_number": 4,
+    "bbox": [
+      113.14,
+      192.3,
+      234.7,
+      220.9
+    ],
+    "text": "2018 19, Monday, 19th November, 2018",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota",
+      "TimesNewRomanPS-ItalicMT"
+    ],
+    "sizes": [
+      5.820000171661377,
+      7.980000019073486,
+      9.0
+    ]
+  },
+  {
+    "page_number": 4,
+    "bbox": [
+      58.5,
+      247.18,
+      283.84,
+      282.4
+    ],
+    "text": ".. 1.00 . [ .. ] .",
+    "fonts": [
+      "Calibri-Bold",
+      "IskoolaPota,Bold"
+    ],
+    "sizes": [
+      10.020000457763672
+    ]
+  },
+  {
+    "page_number": 4,
+    "bbox": [
+      91.44,
+      284.04,
+      254.23,
+      294.71
+    ],
+    "text": "..1.00 .",
+    "fonts": [
+      "ArialUnicodeMS"
+    ],
+    "sizes": [
+      7.980000019073486
+    ]
+  },
+  {
+    "page_number": 4,
+    "bbox": [
+      53.69,
+      296.16,
+      289.83,
+      576.15
+    ],
+    "text": "[ .. ] . The Parliament met at 1.00 p.m., MR. DEPUTY SPEAKER [THE HON. J.M. ANANDA KUMARASIRI ] in the Chair. ANNOUNCEMENTS COMMITTEE OF SELECTION ( ) (The Hon. Deputy Speaker) , .",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota",
+      "IskoolaPota,Bold",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      7.980000019073486,
+      9.0,
+      9.479999542236328,
+      10.020000457763672,
+      12.0,
+      13.979999542236328
+    ]
+  },
+  {
+    "page_number": 4,
+    "bbox": [
+      53.7,
+      585.55,
+      289.83,
+      783.51
+    ],
+    "text": ", 2018.11.23 , - ( ) (The Hon. Dinesh Gunawardena) Sir, I rise to a point of Order. -[Interruption.] ( ) (The Hon. Lakshman Kiriella) Sir, I rise to a point of Order.-[Interruption.] ( ) (The Hon. Deputy Speaker) , point of Order ?",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota",
+      "IskoolaPota,Bold",
+      "TimesNewRomanPS-ItalicMT",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      7.980000019073486,
+      9.0,
+      9.479999542236328,
+      10.020000457763672,
+      12.0,
+      13.020000457763672,
+      13.979999542236328
+    ]
+  },
+  {
+    "page_number": 4,
+    "bbox": [
+      307.44,
+      102.28,
+      542.14,
+      334.77
+    ],
+    "text": "( ) (The Hon. Lakshman Kiriella) , . 14,15,16 . . . [ ] ( ) (An Hon. Member) , - [ ] ( ) (The Hon. Deputy Speaker) , .",
+    "fonts": [
+      "ArialUnicodeMS",
+      "Calibri",
+      "IskoolaPota",
+      "IskoolaPota,Bold",
+      "Latha",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      7.980000019073486,
+      9.0,
+      9.479999542236328,
+      10.020000457763672,
+      10.979999542236328
+    ]
+  },
+  {
+    "page_number": 4,
+    "bbox": [
+      307.44,
+      341.29,
+      542.13,
+      687.9
+    ],
+    "text": ", point of Order ? ( ) (The Hon. Dinesh Gunawardena) , ,- [ ] , , , . [ ] ( ) (The Hon. Deputy Speaker) Order, please! ( ) (The Hon. Mangala Samaraweera) , 48 (2) . [ ] ( ) (The Hon. Deputy Speaker) Order, please!",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota",
+      "IskoolaPota,Bold",
+      "NirmalaUI",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      7.980000019073486,
+      9.0,
+      9.479999542236328,
+      10.020000457763672,
+      10.979999542236328,
+      13.979999542236328
+    ]
+  },
+  {
+    "page_number": 4,
+    "bbox": [
+      320.94,
+      694.09,
+      462.45,
+      749.06
+    ],
+    "text": ", - [ ] .. ( .. ) (The Hon. S.B. Dissanayake)",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota",
+      "IskoolaPota,Bold",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      7.980000019073486,
+      9.0,
+      9.479999542236328,
+      10.020000457763672
+    ]
+  },
+  {
+    "page_number": 4,
+    "bbox": [
+      320.68,
+      754.99,
+      376.92,
+      783.93
+    ],
+    "text": ". . rose.",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota",
+      "IskoolaPota,Bold",
+      "TimesNewRomanPS-ItalicMT"
+    ],
+    "sizes": [
+      7.5,
+      7.980000019073486,
+      9.0
+    ]
+  },
+  {
+    "page_number": 4,
+    "bbox": [
+      53.7,
+      73.33,
+      542.21,
+      84.42
+    ],
+    "text": "45 46",
+    "fonts": [
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      10.020000457763672
+    ]
+  },
+  {
+    "page_number": 5,
+    "bbox": [
+      53.7,
+      100.72,
+      289.83,
+      249.15
+    ],
+    "text": "( ) (The Hon. Deputy Speaker) .. . .. ( .. ) (The Hon. S.B. Dissanayake) , . . , .",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota",
+      "IskoolaPota,Bold",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      7.980000019073486,
+      9.0,
+      9.479999542236328,
+      10.020000457763672,
+      13.979999542236328
+    ]
+  },
+  {
+    "page_number": 5,
+    "bbox": [
+      53.7,
+      261.73,
+      289.83,
+      559.89
+    ],
+    "text": ". [ ] ( ) (The Hon. Deputy Speaker) Order, please! ( ) (The Hon. Anura Dissanayake) Sir, I rise to a point of Order. ( ) (The Hon. Deputy Speaker) , point of Order ? ( ) (The Hon. Anura Dissanayake) , 14 , 15 . [ ] ,",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota",
+      "IskoolaPota,Bold",
+      "NirmalaUI",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      7.980000019073486,
+      9.0,
+      9.479999542236328,
+      10.020000457763672,
+      13.979999542236328
+    ]
+  },
+  {
+    "page_number": 5,
+    "bbox": [
+      307.44,
+      95.23,
+      544.11,
+      433.59
+    ],
+    "text": ". [ ] . , . [ ] .. ( .. ) (The Hon. S.B. Dissanayake) , - [ ] ( ) (The Hon. Deputy Speaker) . [ ] ( ) (An Hon. Member). [ ] ( ) (The Hon. Deputy Speaker) Order, please! . , .",
+    "fonts": [
+      "ArialUnicodeMS",
+      "Calibri",
+      "IskoolaPota",
+      "IskoolaPota,Bold",
+      "Latha",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      7.980000019073486,
+      9.0,
+      9.479999542236328,
+      10.020000457763672,
+      12.0,
+      13.979999542236328
+    ]
+  },
+  {
+    "page_number": 5,
+    "bbox": [
+      306.7,
+      446.11,
+      545.34,
+      560.14
+    ],
+    "text": ", 2018.11.23 10.30 . .. 1.05 , 2018 23 .. 10.30 . , .. 1.05 , 2018 23, .. 10.30 . Parliament adjourned accordingly at 1.05 p.m., until 10.30 a.m. on Friday, 23rd November, 2018.",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota",
+      "IskoolaPota,Bold",
+      "TimesNewRomanPS-ItalicMT",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      4.5,
+      4.980000019073486,
+      7.019999980926514,
+      7.5,
+      7.980000019073486,
+      9.0,
+      9.479999542236328,
+      12.0
+    ]
+  },
+  {
+    "page_number": 5,
+    "bbox": [
+      54.12,
+      73.33,
+      542.56,
+      85.92
+    ],
+    "text": "47 48",
+    "fonts": [
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      10.020000457763672
+    ]
+  },
+  {
+    "page_number": 6,
+    "bbox": [
+      54.96,
+      73.96,
+      539.39,
+      245.02
+    ],
+    "text": ".. , .",
+    "fonts": [
+      "IskoolaPota",
+      "IskoolaPota,Bold"
+    ],
+    "sizes": [
+      10.020000457763672
+    ]
+  },
+  {
+    "page_number": 6,
+    "bbox": [
+      54.96,
+      285.95,
+      539.8,
+      687.22
+    ],
+    "text": ". NOTE Corrections which Members suggest for the Final Print should be clearly marked in their copy and sent to the Editor of HANSARD within two weeks of receipt of the uncorrected copy. Contents of Proceedings : Final set of manuscripts Received from Parliament : Printed copies dispatched :",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota",
+      "TimesNewRomanPS-BoldMT",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      7.980000019073486,
+      9.0,
+      10.020000457763672
+    ]
+  },
+  {
+    "page_number": 7,
+    "bbox": [
+      118.14,
+      74.02,
+      481.15,
+      325.82
+    ],
+    "text": "5, , , 163 . www.parliament.lk .",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota",
+      "IskoolaPota,Bold",
+      "TimesNewRomanPS-BoldMT"
+    ],
+    "sizes": [
+      10.020000457763672,
+      12.0
+    ]
+  },
+  {
+    "page_number": 7,
+    "bbox": [
+      54.96,
+      380.14,
+      481.84,
+      786.52
+    ],
+    "text": ". 163, , , 5 . www.parliament.lk . Hansard Reports can be purchased from the Government Publications Bureau at the Department of Government Information, No. 163, Kirulapone Avenue, Polhengoda, Colombo 5. This Hansard Report can be downloaded from www.parliament.lk .",
+    "fonts": [
+      "ArialUnicodeMS",
+      "IskoolaPota",
+      "TimesNewRomanPSMT"
+    ],
+    "sizes": [
+      9.0,
+      10.020000457763672,
+      18.0
+    ]
+  }
+]
