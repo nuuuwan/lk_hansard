@@ -12,6 +12,7 @@ class Hansard(AbstractDoc):
     URL = "https://www.parliament.lk/en/business-of-parliament/hansards"
     DATE_FORMAT_HANSARD = TimeFormat("%B %d, %Y")
     DATE_FORMAT_GENERIC = TimeFormat("%Y-%m-%d")
+    MAX_PAGES = 100
 
     @classmethod
     def __parse_tr__(cls, tr) -> "Hansard":
@@ -73,7 +74,7 @@ class Hansard(AbstractDoc):
     @classmethod
     def gen_docs(cls) -> Generator["Hansard", None, None]:
         i_page = 0
-        while True:
+        while i_page < cls.MAX_PAGES:
             for doc in cls.__process_page__(i_page):
                 yield doc
             i_page += 1
