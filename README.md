@@ -1,15 +1,13 @@
 # 🇱🇰 #SriLanka Hansard `Dataset`
 
-![PDF Preview](images/pdf_preview.png)
-
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--17_15:58:29-green)
-![DatasetSize](https://img.shields.io/badge/dataset_size-8.5_GB-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--17_16:23:15-green)
+![DatasetSize](https://img.shields.io/badge/dataset_size-9.8_GB-green)
 
 📜 **1,661** documents, from **2006-02-01** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**.
 
-📒 PDFs have been downloaded for **1,028** (**62%**) documents.
+📒 PDFs have been downloaded for **1,205** (**73%**) documents.
 
-📚 Complete [Dataset](https://github.com/nuuuwan/lk_hansard/tree/data) (**8.5 GB**)
+📚 Complete [Dataset](https://github.com/nuuuwan/lk_hansard/tree/data) (**9.8 GB**)
  - 🆓 Public data, & fully open-source.
  - 🙏 Please share & fork!
 
@@ -31,7 +29,7 @@
 }
 ```
 
-[source data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-10-2025-09-10)
+[More details](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-10-2025-09-10)
 
 ## Documents By Year
 
@@ -43,6 +41,12 @@
 
 - 📄 [nuuuwan/lk-hansard-docs](https://huggingface.co/datasets/nuuuwan/lk-hansard-docs)
 - 📦 [nuuuwan/lk-hansard-chunks](https://huggingface.co/datasets/nuuuwan/lk-hansard-chunks)
+
+## 📃 Example Document
+
+![PDF Preview](images/pdf_preview.png)
+
+[More details](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2010s/2011/2011-12-03-2011-12-03)
 
 ## 🆕 20 Latest documents
 
