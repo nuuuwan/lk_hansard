@@ -1,26 +1,22 @@
-# 📜 🇱🇰 #SriLanka Hansard
+# 🇱🇰 #SriLanka Hansard
 
- 🔗 Data Source: www.parliament.lk
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--17_12:53:46-green)
+![DatasetSize](https://img.shields.io/badge/dataset_size-1.1_GB-green)
 
- 🔗 All Raw Data: [https://github.com/nuuuwan/lk_hansard/tree/data](https://github.com/nuuuwan/lk_hansard/tree/data)
+📜 **1,059** documents, from **2013-07-24** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**.
 
- 📅 Date Range: 2013-07-24 to 2025-09-10
+📒 PDFs have been downloaded for **77** documents.
 
- 📑 Number of Docs: 1,059
+📚 Complete [Dataset](https://github.com/nuuuwan/lk_hansard/tree/data) (**1.1 GB**)
+ - 🆓 Public data, & fully open-source.
+ - 🙏 Please share & fork!
 
- 📎 Number of Docs with PDFs: 76
+🪲 #WorkInProgress - Suggestions, Questions, Ideas, & [Bug Reports](https://github.com/nuuuwan/lk_hansard/issues) are welcome!
 
- 💾 Dataset Size: 1.0GB
+⏰ Updated **daily**.
 
----
+#OpenData #DataScience #DataForGood #ResearchData #NLP
 
-🆓 Public data, fully open-source – fork freely!
-
-🔍 Useful for Journalists, Researchers, Lawyers & law students, Policy watchers & Citizens who want to stay informed
-
-🐞 #WorkInProgress - Suggestions, Questions, Ideas, [Bug Reports](https://github.com/nuuuwan/lk_hansard/issues) are welcome!
-
-#SriLanka #OpenData #GovTech
 ## 📝 Example Metadata
 
 ```json
@@ -40,6 +36,8 @@
 ![Documents by year](images/docs_by_year.png)
 
 ## 🤗 Hugging Face Datasets
+
+![HuggingFace](https://img.shields.io/badge/-HuggingFace-FDEE21?style=for-the-badge&logo=HuggingFace)
 
 - 📄 [nuuuwan/lk-hansard-docs](https://huggingface.co/datasets/nuuuwan/lk-hansard-docs)
 - 📦 [nuuuwan/lk-hansard-chunks](https://huggingface.co/datasets/nuuuwan/lk-hansard-chunks)
@@ -66,3 +64,8 @@
 - 2025-06-20 | `2025-06-20` | Hansard of June 20, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-20-2025-06-20)
 - 2025-06-19 | `2025-06-19` | Hansard of June 19, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-19-2025-06-19)
 - 2025-06-18 | `2025-06-18` | Hansard of June 18, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-18-2025-06-18)
+
+---
+
+![Maintainer](https://img.shields.io/badge/maintainer-nuuuwan-red)
+![MadeWith](https://img.shields.io/badge/made_with-python-blue)
