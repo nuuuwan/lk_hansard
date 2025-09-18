@@ -1,14 +1,14 @@
 # 🇱🇰 #SriLanka Hansard `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--18_19:47:13-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--18_21:43:07-green)
 
 [https://github.com/nuuuwan/lk_hansard](https://github.com/nuuuwan/lk_hansard)
 
-📜 [**1,661** documents](https://github.com/nuuuwan/lk_hansard/tree/data) (**13.0 GB**), from **2006-02-01** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**
+- [**201** documents](https://github.com/nuuuwan/lk_hansard/tree/data) (**417.0 MB**), from **2023-06-21** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**
 
-💾 In ✅ **JSON**, ✅ **PDF**, ☑️ **TXT** (17%) and ☑️ **🤗 Hugging Face** (17%)
+- In **JSON**, **PDF** (6%), **TXT** (6%) & **🤗 Hugging Face** (6%)
 
-🗣️ In **English**, **සිංහල** and **தமிழ்**
+- In **සිංහල**, **தமிழ்** & **English**
 
 ## 📝 Example Metadata
 
@@ -33,8 +33,8 @@
 
 ![HuggingFace](https://img.shields.io/badge/-HuggingFace-FDEE21?style=for-the-badge&logo=HuggingFace)
 
-- 📄 [nuuuwan/lk-hansard-docs](https://huggingface.co/datasets/nuuuwan/lk-hansard-docs)
-- 📦 [nuuuwan/lk-hansard-chunks](https://huggingface.co/datasets/nuuuwan/lk-hansard-chunks)
+- [nuuuwan/lk-hansard-docs](https://huggingface.co/datasets/nuuuwan/lk-hansard-docs)
+- [nuuuwan/lk-hansard-chunks](https://huggingface.co/datasets/nuuuwan/lk-hansard-chunks)
 
 ## 🆕 20 Latest documents
 
@@ -60,6 +60,8 @@
 - 2025-06-18 | `2025-06-18` | Hansard of June 18, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-18-2025-06-18)
 
 ---
+
+### [More Datasets about 🇱🇰 #SriLanka](https://github.com/nuuuwan/lk_datasets)
 
 ![Maintainer](https://img.shields.io/badge/maintainer-nuuuwan-red)
 ![MadeWith](https://img.shields.io/badge/made_with-python-blue)
