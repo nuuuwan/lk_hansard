@@ -4,7 +4,7 @@
   "num": "2010-07-09",
   "date_str": "2010-07-09",
   "description": "Hansard of July 09, 2010",
-  "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/PUBDOC2682_document.pdf",
   "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
-  "lang": "si-ta-en"
+  "lang": "si-ta-en",
+  "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/PUBDOC2682_document.pdf"
 }

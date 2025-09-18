@@ -4,7 +4,7 @@
   "num": "2008-09-26",
   "date_str": "2008-09-26",
   "description": "Hansard of September 26, 2008",
-  "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/PUBDOC1701_document.pdf",
   "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
-  "lang": "si-ta-en"
+  "lang": "si-ta-en",
+  "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/PUBDOC1701_document.pdf"
 }

@@ -4,7 +4,7 @@
   "num": "2010-06-11",
   "date_str": "2010-06-11",
   "description": "Hansard of June 11, 2010",
-  "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/PUBDOC2596_document.pdf",
   "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
-  "lang": "si-ta-en"
+  "lang": "si-ta-en",
+  "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/PUBDOC2596_document.pdf"
 }

@@ -4,7 +4,7 @@
   "num": "2010-12-03",
   "date_str": "2010-12-03",
   "description": "Hansard of December 03, 2010",
-  "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/PUBDOC2973_document.pdf",
   "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
-  "lang": "si-ta-en"
+  "lang": "si-ta-en",
+  "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/PUBDOC2973_document.pdf"
 }

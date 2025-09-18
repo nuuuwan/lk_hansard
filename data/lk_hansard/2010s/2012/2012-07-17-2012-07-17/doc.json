@@ -4,7 +4,7 @@
   "num": "2012-07-17",
   "date_str": "2012-07-17",
   "description": "Hansard of July 17, 2012",
-  "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/PUBDOC4008_document.pdf",
   "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
-  "lang": "si-ta-en"
+  "lang": "si-ta-en",
+  "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/PUBDOC4008_document.pdf"
 }

@@ -4,7 +4,7 @@
   "num": "2006-12-05",
   "date_str": "2006-12-05",
   "description": "Hansard of December 05, 2006",
-  "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/PUBDOC1224_document.pdf",
   "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
-  "lang": "si-ta-en"
+  "lang": "si-ta-en",
+  "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/PUBDOC1224_document.pdf"
 }
