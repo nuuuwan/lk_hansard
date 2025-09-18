@@ -1,11 +1,11 @@
 # 🇱🇰 #SriLanka Hansard `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--18_13:59:57-green)
-![DatasetSize](https://img.shields.io/badge/dataset_size-424.2 kB-yellow)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--18_17:52:14-green)
+![DatasetSize](https://img.shields.io/badge/dataset_size-13.0_GB-yellow)
 
 [https://github.com/nuuuwan/lk_hansard](https://github.com/nuuuwan/lk_hansard)
 
-📜 [**1,661** documents](https://github.com/nuuuwan/lk_hansard/tree/data) (**424.2 kB**), from **2006-02-01** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**
+📜 [**1,661** documents](https://github.com/nuuuwan/lk_hansard/tree/data) (**13.0 GB**), from **2006-02-01** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**
 
 📑 In JSON, PDF, TXT and 🤗 Hugging Face Formats
 
