@@ -1,18 +1,19 @@
 from typing import Generator
 
-from utils import Log, TimeFormat
+from utils import JSONFile, Log, TimeFormat
 
-from pdf_scraper import AbstractDoc
+from scraper import AbstractPDFDoc
 from utils_future import WWW
 
 log = Log("Hansard")
 
 
-class Hansard(AbstractDoc):
+class Hansard(AbstractPDFDoc):
     URL = "https://www.parliament.lk/en/business-of-parliament/hansards"
     DATE_FORMAT_HANSARD = TimeFormat("%B %d, %Y")
     DATE_FORMAT_GENERIC = TimeFormat("%Y-%m-%d")
     MAX_PAGES = 100
+    LANG = "si-ta-en"
 
     @classmethod
     def __parse_tr__(cls, tr) -> "Hansard":
@@ -34,10 +35,20 @@ class Hansard(AbstractDoc):
             num=date_str,
             date_str=date_str,
             description=description,
-            url_pdf=url_pdf,
             url_metadata=cls.URL,
+            lang=cls.LANG,
+            url_pdf=url_pdf,
         )
         return doc
+
+    @classmethod
+    def add_lang(cls, json_path):
+        json_file = JSONFile(json_path)
+        d = json_file.read()
+        if "lang" not in d or d["lang"] != cls.LANG:
+            d["lang"] = cls.LANG
+            json_file.write(d)
+            log.warning(f"➕ Added lang={cls.LANG} to {json_path}")
 
     @classmethod
     def __process_table__(cls, table) -> list["Hansard"]:
