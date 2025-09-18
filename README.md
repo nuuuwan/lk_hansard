@@ -1,12 +1,12 @@
 # 🇱🇰 #SriLanka Hansard `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--18_22:54:28-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--18_23:21:46-green)
 
 [https://github.com/nuuuwan/lk_hansard](https://github.com/nuuuwan/lk_hansard)
 
-- [**1,661** documents](https://github.com/nuuuwan/lk_hansard/tree/data) (**5.8 GB**), from **2006-02-01** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**
+- [**1,661** documents](https://github.com/nuuuwan/lk_hansard/tree/data) (**8.5 GB**), from **2006-02-01** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**
 
-- In **JSON**, **PDF** (24%), **TXT** (24%) & **🤗 Hugging Face** (24%)
+- In **JSON**, **PDF** (35%), **TXT** (35%) & **🤗 Hugging Face** (35%)
 
 - In **සිංහල**, **தமிழ்** & **English**
 
