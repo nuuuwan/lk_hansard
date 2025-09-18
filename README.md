@@ -1,6 +1,6 @@
 # 🇱🇰 #SriLanka Hansard `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--18_06:33:11-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--18_10:11:52-green)
 ![DatasetSize](https://img.shields.io/badge/dataset_size-12.9_GB-yellow)
 
 [https://github.com/nuuuwan/lk_hansard](https://github.com/nuuuwan/lk_hansard)
@@ -25,11 +25,14 @@
 
 ```json
 {
+    "doc_type": "lk_hansard",
+    "doc_id": "2025-09-10-2025-09-10",
     "num": "2025-09-10",
     "date_str": "2025-09-10",
     "description": "Hansard of September 10, 2025",
-    "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/1758017450079419.pdf",
-    "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards"
+    "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
+    "lang": "si-ta-en",
+    "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/1758017450079419.pdf"
 }
 ```
 
