@@ -1,25 +1,14 @@
 # 🇱🇰 #SriLanka Hansard `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--18_18:27:29-green)
-![DatasetSize](https://img.shields.io/badge/dataset_size-13.0_GB-yellow)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--18_19:38:47-green)
 
 [https://github.com/nuuuwan/lk_hansard](https://github.com/nuuuwan/lk_hansard)
 
 📜 [**1,661** documents](https://github.com/nuuuwan/lk_hansard/tree/data) (**13.0 GB**), from **2006-02-01** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**
 
-📑 In JSON, PDF, TXT and 🤗 Hugging Face Formats
+💾 In ✅ **JSON**, ✅ **PDF**, ☑️ **TXT** (8%) and ☑️ **🤗 Hugging Face** (8%)
 
-⏰ Updated **at least Daily**
-
-🆓 Public data & fully open-source
-
-#OpenData #DataScience #DataForGood #ResearchData #NLP
-
-...
-
-*📒 PDFs have been downloaded for **1,661** (**100%**) documents*
-
-🪲 #WorkInProgress - Suggestions, Questions, Ideas, & [Bug Reports](https://github.com/nuuuwan/lk_hansard/issues) are welcome!
+🗣️ In **English**, **සිංහල** and **தமிழ்**
 
 ## 📝 Example Metadata
 
