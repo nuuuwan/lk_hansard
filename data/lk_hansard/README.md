@@ -1,6 +1,6 @@
 # 🏛️#SriLanka 🇱🇰 Hansard `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--19_15:33:40-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--19_16:35:20-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard)
 
@@ -8,7 +8,7 @@ A Hansard is the official, verbatim record of parliamentary debates and proceedi
 
 In Sri Lanka, the Hansard is especially important because it provides citizens, researchers, journalists, and policymakers with direct access to parliamentary debates since independence. It serves as a key historical and political resource, helping track how laws were shaped, how elected representatives engaged with national issues, and how parliamentary democracy has evolved over time.
 
-- [**1,661** documents](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard) (**22.2 GB**), from **2006-02-01** to **2025-09-10**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**
+- [**1,662** documents](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard) (**22.2 GB**), from **2006-02-01** to **2025-09-11**, scraped from **[https://www.parliament.lk/en/business-of-parliament/hansards](https://www.parliament.lk/en/business-of-parliament/hansards)**
 
 - In **JSON**, **PDF**, **TXT** & **🤗 Hugging Face**
 
@@ -19,13 +19,13 @@ In Sri Lanka, the Hansard is especially important because it provides citizens, 
 ```json
 {
     "doc_type": "lk_hansard",
-    "doc_id": "2025-09-10-2025-09-10",
-    "num": "2025-09-10",
-    "date_str": "2025-09-10",
-    "description": "Hansard of September 10, 2025",
+    "doc_id": "2025-09-11-2025-09-11",
+    "num": "2025-09-11",
+    "date_str": "2025-09-11",
+    "description": "Hansard of September 11, 2025",
     "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
     "lang": "si-ta-en",
-    "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/1758017450079419.pdf"
+    "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/1758278142029989.pdf"
 }
 ```
 
@@ -42,6 +42,7 @@ In Sri Lanka, the Hansard is especially important because it provides citizens, 
 
 ## 🆕 20 Latest documents
 
+- 2025-09-11 | `2025-09-11` | Hansard of September 11, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-11-2025-09-11)
 - 2025-09-10 | `2025-09-10` | Hansard of September 10, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-10-2025-09-10)
 - 2025-09-09 | `2025-09-09` | Hansard of September 09, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-09-2025-09-09)
 - 2025-08-22 | `2025-08-22` | Hansard of August 22, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-22-2025-08-22)
@@ -61,7 +62,6 @@ In Sri Lanka, the Hansard is especially important because it provides citizens, 
 - 2025-06-30 | `2025-06-30` | Hansard of June 30, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-30-2025-06-30)
 - 2025-06-20 | `2025-06-20` | Hansard of June 20, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-20-2025-06-20)
 - 2025-06-19 | `2025-06-19` | Hansard of June 19, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-19-2025-06-19)
-- 2025-06-18 | `2025-06-18` | Hansard of June 18, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-18-2025-06-18)
 
 ---
 
