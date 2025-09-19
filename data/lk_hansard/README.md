@@ -1,6 +1,6 @@
 # 🏛️#SriLanka 🇱🇰 Hansard `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--19_14:01:46-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--19_14:39:32-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard)
 
@@ -31,7 +31,7 @@ In Sri Lanka, the Hansard is especially important because it provides citizens, 
 
 ## Documents By Year
 
-![Documents by year](images/docs_by_year.png)
+![Documents by year](../lk_hansard_data/data/lk_hansard/docs_by_year.png)
 
 ## 🤗 Hugging Face Datasets
 
