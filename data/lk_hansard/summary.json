@@ -1,14 +1,14 @@
 {
   "doc_class_label": "lk_hansard",
   "doc_class_emoji": "\ud83c\udfdb\ufe0f",
-  "doc_class_description": "A Hansard is the official, verbatim record of parliamentary debates and proceedings. It documents everything said by members of parliament, including speeches, questions, and discussions, ensuring a transparent public record of legislative activity.\n\nIn Sri Lanka, the Hansard is especially important because it provides citizens, researchers, journalists, and policymakers with direct access to parliamentary debates since independence. It serves as a key historical and political resource, helping track how laws were shaped, how elected representatives engaged with national issues, and how parliamentary democracy has evolved over time.",
-  "time_updated": "2025-09-19 17:34:51",
+  "doc_class_description": "A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers\u2019 words and decisions for history, law, and public accountability.",
+  "time_updated": "2025-09-19 18:45:26",
   "n_docs": 1662,
   "n_docs_with_pdfs": 1662,
   "n_docs_with_text": 1662,
   "date_str_min": "2006-02-01",
   "date_str_max": "2025-09-11",
-  "dataset_size": 22219582229,
+  "dataset_size": 19519698371,
   "url_source": "https://www.parliament.lk/en/business-of-parliament/hansards",
   "url_data": "https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard",
   "langs": [
