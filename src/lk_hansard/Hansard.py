@@ -16,6 +16,19 @@ class Hansard(AbstractPDFDoc):
     LANG = "si-ta-en"
 
     @classmethod
+    def get_doc_class_description(cls) -> str:
+        return "\n\n".join(
+            [
+                "A Hansard is the official, verbatim record of parliamentary debates and proceedings. It documents everything said by members of parliament, including speeches, questions, and discussions, ensuring a transparent public record of legislative activity.",  # noqa: E501
+                "In Sri Lanka, the Hansard is especially important because it provides citizens, researchers, journalists, and policymakers with direct access to parliamentary debates since independence. It serves as a key historical and political resource, helping track how laws were shaped, how elected representatives engaged with national issues, and how parliamentary democracy has evolved over time.",  # noqa: E501
+            ]
+        )
+
+    @classmethod
+    def get_doc_class_emoji(cls) -> str:
+        return "🏛️"
+
+    @classmethod
     def __parse_tr__(cls, tr) -> "Hansard":
         td = tr.find("td")
         description = td.get_text().strip()
