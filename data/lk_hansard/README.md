@@ -1,6 +1,6 @@
 # 🏛️#SriLanka 🇱🇰 Hansard `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--20_11:34:22-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--20_12:22:23-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard)
 
@@ -27,9 +27,7 @@ A Hansard is the official verbatim record of parliamentary debates, preserving l
 }
 ```
 
-## Documents By Year & Language
-
-![Documents By Year & Language](docs_by_year_and_lang.png)
+![Chart](https://raw.githubusercontent.com/nuuuwan/lk_hansard/refs/heads/data/data/lk_hansard/docs_by_year_and_lang.png)
 
 ## 🤗 Hugging Face Datasets
 
