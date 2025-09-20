@@ -2,13 +2,13 @@
   "doc_class_label": "lk_hansard",
   "doc_class_emoji": "\ud83c\udfdb\ufe0f",
   "doc_class_description": "A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers\u2019 words and decisions for history, law, and public accountability.",
-  "time_updated": "2025-09-20 09:40:30",
+  "time_updated": "2025-09-20 10:37:57",
   "n_docs": 1662,
   "n_docs_with_pdfs": 1662,
   "n_docs_with_text": 1662,
   "date_str_min": "2006-02-01",
   "date_str_max": "2025-09-11",
-  "dataset_size": 22220208523,
+  "dataset_size": 22220156241,
   "url_source": "https://www.parliament.lk/en/business-of-parliament/hansards",
   "url_data": "https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard",
   "langs": [
@@ -23,5 +23,67 @@
     "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
     "lang": "si-ta-en",
     "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/1758278142029989.pdf"
+  },
+  "year_to_lang_to_n": {
+    "2025": {
+      "si-ta-en": 74
+    },
+    "2024": {
+      "si-ta-en": 61
+    },
+    "2023": {
+      "si-ta-en": 105
+    },
+    "2022": {
+      "si-ta-en": 101
+    },
+    "2021": {
+      "si-ta-en": 86
+    },
+    "2020": {
+      "si-ta-en": 58
+    },
+    "2019": {
+      "si-ta-en": 90
+    },
+    "2018": {
+      "si-ta-en": 77
+    },
+    "2017": {
+      "si-ta-en": 95
+    },
+    "2016": {
+      "si-ta-en": 97
+    },
+    "2015": {
+      "si-ta-en": 81
+    },
+    "2014": {
+      "si-ta-en": 92
+    },
+    "2013": {
+      "si-ta-en": 89
+    },
+    "2012": {
+      "si-ta-en": 85
+    },
+    "2011": {
+      "si-ta-en": 95
+    },
+    "2010": {
+      "si-ta-en": 67
+    },
+    "2009": {
+      "si-ta-en": 70
+    },
+    "2008": {
+      "si-ta-en": 75
+    },
+    "2007": {
+      "si-ta-en": 98
+    },
+    "2006": {
+      "si-ta-en": 66
+    }
   }
 }
