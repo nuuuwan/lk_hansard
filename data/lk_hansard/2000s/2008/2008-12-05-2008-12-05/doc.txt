@@ -1,0 +1,5785 @@
+පාර්ලිෙම්න්තු විවාද
+
+(හැන්සාඩ්) பாராᾦமன்ற விவாதங்கள்
+
+(ஹன்சாட்)
+
+PARLIAMENTARY DEBATES
+
+(HANSARD)
+
+නිල වාර්තාව அதிகார அறிக்ைக
+
+OFFICIAL REPORT
+
+(අෙශෝධිත පිටපත/பிைழ திᾞத்தப்படாதᾐ/Uncorrected)
+
+179 වන කාණ්ඩය - 15 වන කලාපය
+
+ெதாகுதி 179 - இல. 15 Volume 179 - No. 15
+
+2008 ෙදසැම්බර් 05 වන සිකුරාදා
+
+2008 ᾊசம்பர் 05, ெவள்ளிக்கிழைம
+
+Friday, 05th December, 2008
+
+අන්තර්ගත පධාන කරුණු
+
+பிரதான உள்ளடக்கம்
+
+2 — PL 003633 — 1,600 — (2009/01)
+
+ANNOUNCEMENTS: Nation Building Tax Bill: Determination of the Supreme Court Speaker’s Certificate REPORT OF THE SELECT COMMITTEE TO DISCUSS THE HEADS OF EXPENDITURE OF MINISTRIES SELECTED FROM THE BUDGET ESTIMATES 2009 ORAL ANSWERS TO QUESTIONS QUESTION BY PRIVATE NOTICE:
+
+Problems faced by Sri Lankan expatriates due to world economic crisis LEAVE OF ABSENCE: Hon. Sarath Ranawaka PRIVILEGE: Death threats on Hon. Palitha Range Bandara ANIMALS (AMENDMENT) BILL: Read the First time
+
+PRINCIPAL CONTENTS
+
+නිෙව්දන:
+
+ජාතිය ෙගොඩ නැඟීෙම් බදු පනත් ෙකටුම්පත: ෙශේෂ්ඨාධිකරණෙය් තීරණය
+
+කථානායකතුමාෙග් සහතිකය 2009 වර්ෂෙය් අය වැය ඇස්තෙම්න්තුෙවන් ෙතෝරා ගත්
+
+අමාතɕාංශවල වැය ශීර්ෂයන් පිළිබඳ සාකච්ඡා කිරීම සඳහා වන විෙශේෂ කාරක සභාෙව් වාර්තාව
+
+පශ්නවලට වාචික පිළිතුරු ෙපෞද්ගලිකව දැනුම් දීෙමන් ඇසූ පශ්නය:
+
+ෙලෝක ආර්ථික අර්බුදය ෙහේතුෙවන් විෙද්ශගත ශී ලාංකිකයන් මුහුණ පා ඇති
+
+ගැටලු ෙනොපැමිණීෙම් අවසරය;
+
+ගරු සරත් රණවක මහතා වරපසාද:
+
+ගරු පාලිත රංෙග බණ්ඩාර මහතාට මරණීය තර්ජන කිරීම සත්ව (සංෙශෝධන) පනත් ෙකටුම්පත:
+
+පළමු වන වර කියවන ලදී
+
+அறிவிப்ᾗக்கள்:
+
+நாட்ைடக் கட்ᾊெயᾨப்ᾗதல் வாி சட்டᾚலம் : உயர்நீதிமன்றத் தீர்ப்ᾗ சபாநாயகரᾐ சான்ᾠைர 2009ஆம் ஆண்ᾌக்கான வரᾫெசலᾫத் திட்ட மதிப்பீᾌகளிᾢᾞந்ᾐ
+
+ெதாிᾫெசய்யப்பட்ட அைமச்சுக்களின் ெசலᾫத் தைலப்ᾗகள் பற்றிக் கலந்ᾐைரயாᾌவதற்கான ெதாிகுᾨவினᾐ அறிக்ைக வினாக்கᾦக்கு வாய்ᾚல விைடகள் தனி அறிவித்தல் ᾚல வினா:
+
+உலகப் ெபாᾞளாதார ெநᾞக்கᾊயின் விைளவாக ெவளிநாᾌகளில்
+
+பணிᾗாிᾜம் இலங்ைகயர் எதிர்ேநாக்கும் பிரச்சிைனகள் வராதிᾞக்க அᾔமதி: மாண்ᾗமிகு சரத் ரணவக்க சிறப்ᾗாிைம:
+
+மாண்ᾗமிகு பாᾢத ரங்ேக பண்டாரᾫக்கு மரண அச்சுᾠத்தல் விலங்குகள் (திᾞத்தம்) சட்டᾚலம்:
+
+ᾙதன்ᾙைற மதிப்பிடப்பட்டᾐ ஒᾐக்கீட்ᾌச் சட்டᾚலம், 2009: [ஒᾐக்கப்பட்ட இᾞபத்திரண்டாம் நாள்]:
+
+[தைலப்ᾗகள் 101, 201-205 (மத அᾤவல்கள், ஒᾨக்க ேமம்பாᾌ);
+
+தைலப்ᾗகள் 142, 206-209 (கலாசார அᾤவல்கள், ேதசிய மரᾗாிைமகள்); தைலப்ᾗ 163 (இைளஞர் வᾤᾬட்ᾌைக, சᾚக ெபாᾞளாதார அபிவிᾞத்தி); தைலப்ᾗகள் 129, 215 (வாழ்க்ைகத்
+
+විසර්ජන පනත් ෙකටුම්පත, 2009 - [විසිෙදවන ෙවන් කළ දිනය]:
+
+[ශීර්ෂ 101, 201 - 205 (ආගමික කටයුතු හා සදාචාර වර්ධන); ශීර්ෂ 142, 206 -
+
+209 (සංස්කෘතික කටයුතු හා ජාතික උරුමයන් පිළිබඳ); ශීර්ෂය 163 (තරුණ අභිවෘද්ධි හා සමාජ ආර්ථික සංවර්ධන); ශීර්ෂ 129, 215 (වෘත්තීය කාර්මික පුහුණු); ශීර්ෂ 110, 228 - 235 (අධිකරණ හා නීති පතිසංස්කරණ); ශීර්ෂය 133 (විදɕා හා තාක්ෂණ); ශීර්ෂ 134, 236 (ආණ්ඩුකම වɕවස්ථා හා ජාතික ඒකාබද්ධතා); ශීර්ෂ 140, 292 (පශු සම්පත් සංවර්ධන); ශීර්ෂ 169, 309 - 310 (ඉදිකිරීම් හා ඉංජිෙන්රු ෙසේවා); ශීර්ෂ 108, 308 (තැපැල් හා විදුලි සංෙද්ශ); ශීර්ෂය 172 (අතිෙර්ක වැවිලි ෙභෝග සංවර්ධන); ශීර්ෂය 168 (ජනතා වතු කළමනාකරණ හා සංවර්ධන); ශීර්ෂ 149, 303 (කර්මාන්ත සංවර්ධන); ශීර්ෂය 128 (ගාමීය කර්මාන්ත හා ස්වයං රැකියා පවර්ධන); ශීර්ෂය 143 (පාර්ලිෙම්න්තු කටයුතු); ශීර්ෂ 104, 280 (සැලසුම් කියාත්මක කිරීෙම්); ශීර්ෂ 138, 220 (ෙද්ශීය ෛවදɕ); ශීර්ෂ 124, 216 (සමාජ ෙසේවා හා සමාජ සුබසාධන); ශීර්ෂ 120, 217 (ළමා සංවර්ධන හා කාන්තා අභිවෘද්ධි); ශීර්ෂය 164 (පජා සංවර්ධන හා සමාජ විෂමතා දුරලීෙම්); ශීර්ෂය 156 (තරුණ කටයුතු)] - කාරක සභාෙව්දී සලකා බලන ලදී වීර ෙපොදුජන පදනම (සංස්ථාගත කිරීෙම්) පනත් ෙකටුම්පත: සලකා බලා සංෙශෝධිතාකාරෙයන් තුන් වන වර කියවා සම්මත කරන ලදී කල්තැබීෙම් ෙයෝජනාව: “ලීඩ ර්” චිතපටය කප්පාදුවට ලක් කිරීම
+
+ெதாழில் மற்ᾠம் ெதாழில்ᾒட்பப் பயிற்சி); தைலப்ᾗகள் 110, 228-235 (நீதி, சட்ட மᾠசீரைமப்ᾗ); தைலப்ᾗ 133 (விஞ்ஞான, ெதாழில்ᾒட்பவியல்); தைலப்ᾗகள் 134, 236 (அரசியலைமப்ᾗ அᾤவல்கள், ேதசிய ஒᾞைமப்பாᾌ); தைலப்ᾗகள் 140, 292 (கால்நைட அபிவிᾞத்தி); தைலப்ᾗகள் 169, 309-310 (நிர்மாணத்ᾐைற, ெபாறியியல் ேசைவகள்); தைலப்ᾗகள் 108, 308 (தபால், ெதாைலத்ெதாடர்ᾗ); தைலப்ᾗ 172 (ᾐைணப் பயிர் அபிவிᾞத்தி); தைலப்ᾗ 168 (மக்கள் ேதாட்ட ᾙகாைம, அபிவிᾞத்தி); தைலப்ᾗகள் 149, 303 (ைகத்ெதாழில் அபிவிᾞத்தி); தைலப்ᾗ 128 (கிராமிய ைகத்ெதாழில், சுயெதாழில் வாய்ப்ᾗ ஊக்குவிப்ᾗ); தைலப்ᾗ 143 (பாராᾦமன்ற அᾤவல்கள்); தைலப்ᾗகள் 104, 280 (திட்டச் ெசயற்பᾌத்ᾐைக); தைலப்ᾗகள் 138, 220 (சுேதச மᾞத்ᾐவத்ᾐைற); தைலப்ᾗகள் 124, 216 (சᾚக ேசைவகள், சᾚக நலேனாம்ᾗைக); தைலப்ᾗகள் 120, 217 (சிᾠவர் அபிவிᾞத்தி மற்ᾠம் மகளிர் வᾤᾬட்ᾌைக); தைலப்ᾗ 164 (சᾚக அபிவிᾞத்தி, சᾚக அநீதி ஒழிப்ᾗ); தைலப்ᾗ 156 (இைளஞர் அᾤவல்கள்)] – குᾨவில் ஆராயப்பட்டᾐ. குᾊமக்களின் ᾪரச்ெசயல்கᾦக்கான மன்றம் (கூட்ᾊைணத்தல்) சட்டᾙலம்:
+
+பாிசீᾢக்கப்பட்ᾌ, திᾞத்தப்பட்டவாᾠ ᾚன்றாம்ᾙைற மதிப்பிடப்பட்ᾌ
+
+நிைறேவற்றப்பட்டᾐ. ஒத்திைவப்ᾗப் பிேரரைண:
+
+“லீடர்” திைரப்படத் தணிக்ைக
+
+APPROPRIATION BILL, 2009 – [TWENTY-SECOND ALLOTTED DAY]
+
+Considered in Committee – [Heads 101, 201–205 (Religious Affairs and
+
+Moral Upliftment); Heads 142, 206-209 (Cultural Affairs and National Heritage); Head 163 (Youth Empowerment and Socio Economic Development); Heads 129, 215(Vocational and Technical Training); Heads 110, 228-235 (Justice and Law Reforms); Head 133 (Science and Technology); Heads 134, 236 (Constitutional Affairs and National Integration); Heads 140, 292 (Livestock Development); Heads 169, 309-310 (Construction and Engineering Services); Heads 108, 308 (Posts and Telecommunications); Head 172 (Supplementary Plantation Crops Development); Head 168 (Public Estate Management and Development); Heads 149, 303 (Industrial Development); Head 128 (Rural Industries and Self Employment Promotion); Head 143 (Parliamentary Affairs); Heads 104, 280 (Plan Implementation); Heads 138, 220 (Indigenous Medicine); Heads 124, 216 (Social Services and Social Welfare); Heads120, 217 (Child Development and Women’s Empowerment): Head 164 (Community Development and Social Inequity Eradication); Head 156 (Youth Affairs)] FOUNDATION FOR CIVILIAN BRAVERY (INCORPORATION) BILL:
+
+Considered, read the Third time, and passed as amended
+
+ADJOURNMENT MOTION: Censor of film “Leader”
+
+2008 ෙදසැම්බර් 05 3147 3148
+
+පාර්ලිෙම්න්තුව
+
+பாராᾦமன்றம்
+
+PARLIAMENT 2008 ෙදසැම්බර් 05 වන සිකුරාදා 2008 ᾊசம்பர் 05, ெவள்ளிக்கிழைம
+
+Friday, 05th December, 2008 පූ. භා. 9.30ට පාර්ලිෙම්න්තුව රැස්විය. කථානායකතුමා [ගරු වි. ජ. මු. ෙලොකුබණ්ඩාර මහතා] මූලාසනාරූඪ විය.
+
+பாராᾦமன்றம் ᾙ. ப. 9.30 மணிக்குக் கூᾊயᾐ. சபாநாயகர் அவர்கள் [மாண்ᾗமிகு டபிள்ᾜ. ேஜ. எம். ெலாக்குபண்டார] தைலைம வகித்தார்கள்.
+
+The Parliament met at 9.30 a.m. MR. SPEAKER [THE HON. W. J. M. LOKUBANDARA] in the Chair.
+
+නිෙව්දන அறிவிப்ᾗக்கள் ANNOUNCEMENTS
+
+ජාතිය ෙගොඩනැඟීෙම් බදු පනත් ෙකටුම්පත :
+
+ෙශේෂ්ඨාධිකරණෙය් තීරණය நாட்ைடக் கட்ᾊெயᾨப்ᾗதல் வாி சட்டᾚலம் : உயர்
+
+நீதிமன்றத் தீர்ப்ᾗ NATION BUILDING TAX BILL : DETERMINATION OF THE
+
+SUPREME COURT
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) “ජාතිය ෙගොඩනැඟීෙම් බදු” යන නමින් යුත් පනත් ෙකටුම්පත පිළිබඳව නිෙව්දනයක් කරනු කැමැත්ෙතමි.
+
+ජාතිෙය් හිත පිණිස වහා අවශɕ යයි අමාතɕ මණ්ඩලය විසින් සහතික කරනු ලැබූ ෙමම පනත් ෙකටුම්පත ආණ්ඩුකම වɕවස්ථාෙව් 122(1)(ආ) වɕවස්ථාව පකාර අතිගරු ජනාධිපතිතුමා විසින් ෙශේෂ්ඨාධිකරණය ෙවත ෙයොමු කරනු ලැබීය.
+
+ෙශේෂ්ඨාධිකරණ තීරණෙයහි සඳහන් සංෙශෝධන සහ නිවැරදි කිරීම්වලට යටත්ව 123(1) වɕවස්ථාව පකාරව පනත් ෙකටුම්පත ෙහෝ එහි කිසිම විධිවිධානයක් ආණ්ඩුකම වɕවස්ථාවට අනනුකූල ෙනොවන බව ෙශේෂ්ඨාධිකරණය විසින් තීරණය කර ඇති බව දන්වනු කැමැත්ෙතමි.
+
+ෙශේෂ්ඨධිකරණෙය් තීරණය අද දින කාර්ය සටහන් දැක්ෙවන නිල වාර්තාෙව් මුදණය කළ යුතු යැයි මම නිෙයෝග කරමි.
+
+IN THE SUPREME COURT OF THE DEMOCRATIC
+
+SOCIALIST REPUBLIC OF SRI LANKA
+
+AN ACT TO PROVIDE FOR THE IMPOSITION AND COLLECTION OF A TAX TO BE CALLED THE NATION BUILDING TAX ON THE LIABLE TURNOVER OF EVERY PERSON TO WHOM THIS ACT APPLIES; AND TO PROVIDE FOR
+
+MATTERS CONNECTED THEREWITH OR INCIDENTAL
+
+THERETO. In the matter of a Reference under Article 122(1)(b) of the Constitution
+
+S. C. Special Determination No. 05/2008 PRESENT SALEEM MARSOOF Judge of the Supreme Court JAGATH BALAPATABENDI Judge of the Supreme Court CHANDRA EKANAYAKE Judge of the Supreme Court Counsel : Viraj Dayaratne, Senior State Counsel with Rajiv Goonetilleke, State Counsel for the Attorney - General
+
+The Court assembled for the hearing at 10.00 a. m. on 3rd December, 2008.
+
+A Bill titled “Nation Building Tax Act” was referred to this Court by His Excellency the President, in terms of Article 122(1)(b) of the Constitution, for the special determination of this Court whether the Bill or any provision thereof is inconsistent with the Constitution. The Bill contains a certificate to the effect that in the view of the Cabinet of Ministers the Bill is urgent in the national interest.
+
+As set out in the preamble to the Bill, the purpose of the Bill is to provide for the imposition and collection of a tax to be called the Nation Building Tax on the liable turnover of every person to whom this Act applies; and to provide for matters connected therewith or incidental thereto. The categories of persons to whom the Bill is sought to be made applicable are set out in Clause 2 of the Bill, which provides as follows;
+
+“2. (1) The provisions of this Act shall apply to every person who, - (a) imports any article into Sri Lanka; or (b) carries on the business of manufacture of any article; or (c) carries on the business of providing a service of any
+
+description.”
+
+Learned Senior State Counsel submitted that as provided in Clause 3(1) of the Bill, it was proposed to charge from every person to whom the Bill applies, a tax called the “Nation Building Tax” calculated at the rate of 1 percentum, in the following manner. (i) in the case of a person referred to in paragraph (a) of subsection
+
+(1) of section (2), who imports any article into Sri Lanka on or after January 1, 2009 the tax shall be chargeable in respect of the liable turnover of such person arising from the importation into Sri Lanka of such article; and (ii) in the case of a person referred to in paragraph (b) or © of
+
+subsection (1) of section 2, for every quarter commencing on or after January 1, 2009 (hereinafter referred to as “relevant quarter”) the tax shall be chargeable in respect of the liable turnover of such person for such relevant quarter.
+
+With respect to the definition of “liable turnover” contained in Clause 3(2), learned Senior State Counsel wished to make certain corrections, and the corrected version reads as follows:
+
+(i) with reference to any person referred to in paragraph (a) of
+
+subsection (1) of section 2 arising from the importation of any article, means the value of that article ascertained for the purpose of Value Added Tax under Section 6 of the Value added Tax Act No. 14 of 2002; (ii) With reference to any person and to any relevant quarter
+
+referred to in paragraph (b) of subsection (1) of section 2, means the sum receivable whether received or not from the sale in Sri Lanka in that quarter, of every article manufactured by such person; (iii) with reference to any person referred to in paragraph © of
+
+subsection (1) of section 2 and to any relevant quarter means the sum receivable, whether received or not, from the provision of any service in Sri Lanka in that quarter as referred to in that paragraph.
+
+Learned Senior State Counsel submitted that Clause 2(1) sought to make the provisions of the Bill applicable to every person who imprts any article into Sri Lanka other than those articles that are sought to be exempted in Part 1 of the Schedule to the Bill, irrespective of whether or not he was engaged in any business. He submitted that the exemptions made in the Schedule took into consideration the national interest on the basis of objective and intelligible criteria. He conceded that sub-paragraphs (b) and (c) of Clause 2(1) sought to catch up only those engaged in the business of manufacturing articles or providing services, on the basis of any sum “receivable” from the sale of such manufactured article or supply of service. This formula is not applicable with respect to sub-paragraph (a) of Clause 2(1) wherein a different formula based on the “value” of the article as provided in the Value Added Tax, Act No.
+
+පාර්ලිෙම්න්තුව 3149 3150
+
+14 of 2002 was adopted . In view of this difference, and the broad ambit of Clause 2(1) of the Bill, learned Senior State Counsel indicated that the said sub-paragraph will be amended as follows: “2. (1) The provisions of this Act shall apply to every person who,-
+
+(a) imports any article, other than personal effects, into Sri Lanka or” In view of the proposed amendment, and in the light of the submissions of learned Senior State Counsel, we are of the opinion that the aforesaid provisions of the Bill (as amended) do not violate Article 12 of the Constitution. We are also of the opinion that none of the provisions of the Bill are inconsistent with the provisions of the Constitution. Learned State Counsel conceded that there were certain drafting errors in the English version of the Bill which be sought to correct by the addition of the words “EXCEPTED ARTICLES” alongside “PART 1” in the first sub-heading of the Schedule, and the words “EXCEPTED SERVICES” alongside “PART II” in the second sub-heading of the Schedule. In Part 1 of the Schedule he also sought to correct item (i) by the substitution of the word “manufacturer” in place of “manufacture”. He also sought to correct item (iii) as follows” “(i) any article sold to any person to whom this act applies as an exporter, if the commissioner General’s is satisfied on the production of a letter of credit opened in any bank in Sri Lanka in respect of the export of that article or other documentary evidence, that such article has in fact been exported from Sri Lanka;” Learned Senior State Counsel also moved to amend item (iv) by re-designating sub-items i), ii), iii), and iv) thereof as respectively a), b), c) and d) and converting sub-item (v) of item (iv) as item (v). In item (vii) he also sought to correct the words “aircraft of shift” as “aircraft or ship”. He also moved to re-designate sub-items a), b), c), and d) of item (ix) as respectively items (x), (xi), (xii), and (xiii), Learned Senior State Counsel also moved to amend item (xx) of Part II of the Schedule as follows: xx) exhibiting films in cinema: and” Learned Senior State Counsel also moved to amend Clause 3(4)(i) by adding the word “or” immediate after the semicolon in that sub-paragraph. He also stated that the words “person to whom this Act applies” should be substituted in place of the words “liable person” in Clause 4, Clause 6 and Clause 7 of the Bill. Court specifically notes that the safeguards provided in the Customs Ordinance and the Inland Revenue Act have been expressly incorporated by Clause 5(3) and (8) of the Bill to protect persons to whom the Bill is intended to apply from any violations of their rights. We therefore determine that in view of the amendments and corrections that have been proposed by learned Senior State Counsel to the various provisions of the Bill noted above, none of the provisions of the Bill (as so amended) are inconsistent with the provisions of the Constitution. Sgd. Saleem Marsoof Judge of the Supreme Court Sgd. Jagath Balapatabendi Judge of the Supreme Court Sgd. Chandra Ekanayake Judge of the Supreme Court II
+
+කථානායකතුමාෙග් සහතිකය
+
+சபாநாயகரᾐ சான்ᾠைர SPEAKER’S CERTIFICATE කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ශී ලංකා පජාතාන්තික සමාජවාදී ජනරජෙය් ආණ්ඩුකම වɕවස්ථාෙව් 79 වැනි වɕවස්ථාව අනුව, 2008 ෙදසැම්බර් මස 03
+
+වන දින මවිසින් පහත සඳහන් පනත් ෙකටුම්පෙතහි සහතිකය සටහන් කරන ලද බව දන්වනු කැමැත්ෙතමි. ශී ලංකා ණය ෙතොරතුරු කාර්යාංශය (සංෙශෝධන)
+
+ලිපි ෙල්ඛනාදිය පිළිගැන්වීම
+
+சமர்ப்பிக்கப்பட்ட பத்திரங்கள்
+
+PAPERS PRESENTED (235 වැනි අධිකාරය) වන ෙර්ගු ආඥාපනෙත් 10 වැනි වගන්තිය යටෙත් ආනයන තීරු ගාස්තු සම්බන්ධෙයන් වූ ෙයෝජනාව.— (අගාමාතɕතුමා, අභɕන්තර පරිපාලන අමාතɕතුමා සහ රාජɕ ආරක්ෂක, මහජන ආරක්ෂාව, නීතිය හා සාමය පිළිබඳ නි ෙයෝජɕ අමතɕතුමා ෙවනුවට ගරු දිෙන්ෂ් ගුණවර්ධන මහතා)
+
+සභාෙම්සය මත තිබිය යුතු යයි නිෙයෝග කරන ලදී. சபாபீடத்தில் இᾞக்கக் கட்டைளயிடப்பட்டᾐ. Ordered to lie upon the Table.
+
+2009 වර්ෂෙය් අය වැය ඇස්තෙම්න්තුෙවන්
+
+ෙතෝරා ගත් අමාතɕාංශවල වැය ශීර්ෂයන්
+
+පිළිබඳ සාකච්ඡා කිරීම සඳහා වන විෙශේෂ
+
+කාරක සභාෙව් වාර්තාව 2009 ஆம் ஆண்ᾌக்கான வரᾫெசலᾫத் திட்ட
+
+மதிப்பீᾌகளிᾢᾞந்ᾐ ெதாிᾫ ெசய்யப்பட்ட அைமச்சுக்களின் ெசலᾫத் தைலப்ᾗக்கள் பற்றிக் கலந்ᾐைரயாᾌவதற்கான ெதாிகுᾨவினᾐ அறிக்ைக REPORT OF THE SELECT COMMITTEE TO DISCUSS THE HEADS OF EXPENDITURE OF MINISTRIES SELECTED FROM
+
+THE BUDGET ESTIMATES 2009
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (ෙසෞඛɕ ආරක්ෂණ හා ෙපෝෂණ අමාතɕතුමා සහ පාර්ලිෙම්න්තුෙව් සභානායකතුමා)
+
+(மாண்ᾗமிகு நிமல் சிறிபால த சில்வா - சுகாதார நலத்ᾐைற, ேபாசைண அைமச்சᾞம் பாராᾦமன்றச் சைப ᾙதல்வᾞம்)
+
+(The Hon. Nimal Siripala de Silva - Minister of Healthcare and Nutrition and Leader of the House of Parliament)
+
+ගරු කථානායකතුමනි, ඔබතුමාත් දන්නා පරිදි පක්ෂ නායක රැස්වීෙම්දී ගන්නා ලද තීරණයක් අනුව පාර්ලිෙම්න්තුව නිෙයෝජනය කරන සියලු පක්ෂවල එකඟත්වෙයන් තීරණයක් ගත්තා, විෙශේෂ පාර්ලිෙම්න්තු කාරක සභාවක් පත් කිරීමට. ඒ තීරණය අනුව පාර්ලිෙම්න්තුව නිෙයෝජනය කරන සියලු පක්ෂවල එකඟත්වෙයන් පත් කළ විෙශේෂ පාර්ලිෙම්න්තු කාරක සභාවක් මගින්, ෙමවර අය වැය විවාදෙය් දී විපක්ෂය විසින් ෙතෝරා ගන්නා ලද අමාතɕාංශ විසිඑකක විෂයන් පිළිබඳව ෙවනම සාකච්ඡාවක් කළා. ගරු කථානායකතුමනි, එහි සභාපතිවරයා වශෙයන් මා එම සාකච්ඡාවලට සහභාගි වුණා. විපක්ෂෙය්ත්, ආණ්ඩු පක්ෂෙය්ත්, මන්තීවරු - මැති ඇමතිවරු - මුදල් ෙවන් කිරීම් පිළිබඳව, මුදල් වියදම් කිරීම පිළිබඳව, වɕාපෘතීන් පිළිබඳව ඉතාම ඵලදායී ෙලස සාකච්ඡා කරමින්, විවිධ ෙයෝජනා ඉදිරිපත් කරමින් ඉතාම ඵලදායී ආරම්භයක් ඇති කළාය කියා මා හිතනවා.
+
+විෙශේෂෙයන්ම විපක්ෂය මගින් කරන ලද සමහර ෙයෝජනා අමාතɕවරුන්ෙග් සහ අමාතɕාංශවල දැඩි සැලකිල්ලට භාජනය වුණ බව ඉතාම සතුටින් කියනවා. ඒ වාෙග්ම ඒ අමාතɕාංශවල කටයුතු පිළිබඳව මහජන නිෙයෝජිතයන් දක්වන මතය ඔවුන්ට තිෙබන පශ්න, ගැටලු හා එම වැඩ සටහන් ෙකොයි ආකාරෙයන් සකස් කළ යුතුද කියන කාරණය පිළිබඳව අෙප් නිලධාරිවරුන්ටත් සුවිෙශේෂ අත් දැකිමක් ලැබුණා.
+
+ගරු කථානායකතුමනි, ඒ නිසා සභානායකවරයා වශෙයනුත්, අමාතɕවරයකු වශෙයනුත් මා විශ්වාස කරනවා, පක්ෂ නායකයන් විසින් ගන්නා ලද එම තීරණය ඉතාම ඵලදායී තීරණයක් පමණක් ෙනොව, අනාගතෙය්දී ෙම් පාර්ලිෙම්න්තු වɖහය තුළ සිටින ජනතා නිෙයෝජිතයන්ෙග් සහභාගිත්වය ඇතිව අෙප් අමාතɕාංශවල වැඩ
+
+2008 ෙදසැම්බර් 05 3151 3152
+
+කටයුතු වඩාත් ෙහොඳින් කර ෙගන යෑම සඳහා ඉතාම පතිඵලදායක ආරම්භයක් බව. ඒ නිසා ඇත්ත වශෙයන්ම ෙම් අය වැය විවාදය ගැන පමණක් ෙනොෙවයි, ෙවනත් අමාතɕාංශවල කටයුතුවලදීත් ඉදිරිෙය්දී අපි ෙමවැනි සාකච්ඡා කළ යුතුයි. විෙශේෂෙයන්ම අෙප් උපෙද්ශක කාරක සභා වඩාත් ශක්තිමත් කරමින් ඒ ඒ අමාතɕාංශවල ඇති වන පශ්න හා ගැටලු පිළිබඳ නිරන්තරෙයන් කුමන පක්ෂයක වුවත්, සියලුම මහජන නිෙයෝජිතයන් සමග සාකච්ඡා කරමින් පුළුවන් තරම් දුරට එකඟතාවකට පැමිණ අපට ෙම් වැඩ කටයුතු කරන්නට පුළුවන් නම්, ෙම් පාර්ලිෙම්න්තුෙව් මහජන නිෙයෝජිතයන් වශෙයන් අප ෙගන යන ෙම් වැඩ පිළිෙවළ වඩාත් සාර්ථක ෙවයි කියලා මා හිතනවා. ඒ නිසා මා ඉතාම සතුටින් එම වාර්තාව ඔබතුමා ෙවත ඉදිරිපත් කරනවා. ගරු එම්. ෙජෝශප් මයිකල් ෙපෙර්රා මහතා (மாண்ᾗமிகு எம். ேஜாசப் ைமக்கல் ெபேரரா) (The Hon. M. Joseph Michael Perera) ගරු කථානායකතුමනි, අමාතɕාංශ 21ක් පිළිබඳව විෙශේෂ කාරක සභාෙව්දී සාකච්ඡා කරලා එහි වාර්තාව ෙම් ගරු සභාවට ඉදිරිපත් කිරීම ගැන එහි සභාපතිතුමාටත්, එම කාරක සභාවට සහභාගී වුණු සියලුම ගරු මන්තීතුමන්ලාටත් අපි ස්තූතිවන්ත ෙවනවා. විෙශේෂෙයන්ම ෙමම පශ්නය සිය කැමැත්ෙතන්ම පාර්ලිෙම්න්තුවට ඉදිරිපත් කෙළේ, ආණ්ඩු පක්ෂෙය් පධාන සංවිධායක දිෙන්ෂ් ගුණවර්ධන මැතිතුමායි. එතුමාට මෙග් විෙශේෂ ස්තූතිය ෙම් අවස්ථාෙව්දී පුද කරන්නට ඕනෑ. ඒ අවස්ථාෙව්දී අෙප් නායකතුමා, ගරු රනිල් විකමසිංහ මැතිතුමාත් ෙම් ආසනෙය් සිටියා. එතුමා මට කිව්වා, අපි සියයට සියයක්ම එයට එකඟ බව කියන්නය කියලා. ෙමොකද, එතුමාෙග් තිබුණු ෙලොකු බලාෙපොෙරොත්තුවක් ඒක. ඉතින් අපි සියලු ෙදනාම පිළිගන්නවා සාර්ථක පතිඵල ලැබුණාය කියලා.
+
+ඒ එක්කම මා විෙශේෂෙයන්ම ෙම් අවස්ථාෙව්දී ෙම්කත් සඳහන් කරන්නට ඕනෑ. අෙප් ගරු නිමල් සිරිපාල ද සිල්වා සභානායකතුමා කිව්වා වාෙග් අපි පාර්ලිෙම්න්තුෙව් සුහදව වැඩ කළ යුතුයි. දැන් ෙබොෙහෝ දුරට අය වැය පිළිබඳව කටයුතු ඉවරයි. ෙමම Select Committee එක ස්ථීර Select Committee එකක් විධියට ඉදිරියට ෙගන යන්න පුළුවන් නම්, ෙම් අය වැෙය් කටයුතු සිද්ධ වන්ෙන්, කියාත්මක වන්ෙන් ෙකොෙහොම ද කියලා අපට සාකච්ඡා කර අඩු පාඩු හදා ගන්න එය ෙලොකු උදව්වක් ෙවයි.
+
+විෙශේෂෙයන්ම ෙම් වැඩ පිළිෙවල තුළ අපට අදාළ අවුරුද්දට යම් කිසි සැලැස්මක් - programme එකක් - හදා ගන්න පුළුවන් නම් ඒෙක් පගතිය අපට ලබා ගන්න පුළුවන් වන බව ඔබතුමාෙග් අවධානයට ෙයොමු කරනවා. එවිට හුඟාක් දුරට Supplementary Estimates එෙහම එන්ෙන් නැහැ. ෙබොෙහොම ෙහොඳට ඒ වැඩ කටයුතු කරන්න පුළුවන් Supplementary Estimate එකක් අවශɕ වනවා නම් අපට පුළුවන්, ඒ ෙවලාෙව්ම කථා කරලා ෙත්රුම් කර ගන්න. ෙමතැන විවාද කරන්නත් අවශɕ වන්ෙන් නැහැ. ෙමොකද, පාර්ලිෙම්න්තුවට ෙවන් ෙවලා තිෙබන්ෙන් වටිනා කාලයක්. ඒ කාලෙය්දී ෙම් සුළු සුළු ෙද්වල් වලට අප වාද කරන්ෙන් නැතිව උපරිම පෙයෝජනය ගන්න ඕනෑ. ඒ නිසා ආණ්ඩු පක්ෂෙය් පධාන සංවිධායක ගරු දිෙන්ෂ් ගුණවර්ධන ඇමතිතුමාට ස්තුතිවන්ත වන අතරම අප ඉල්ලනවා, අය වැය පිළිබඳ ෙම් Select Committee එක ස්ථීර කමිටුවක් ෙලස අපට දිගටම ෙගන යන්නට ආණ්ඩුව පැත්ෙතන් අවස්ථාව ලබා ෙදන්නය කියලා.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙබොෙහොම ස්තූතියි. ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ගරු කථානායකතුමනි, ඒ පිළිබඳව තත්ත්වය -
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) දැන් ඇති ෙන්ද? ගරු විපක්ෂෙය් පධාන සංවිධායකතුමා කථා කළා.
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ගරු කථානායකතුමනි, පාර්ලිෙම්න්තුෙව්දී ඒ ඒ අමාතɕාංශවලට ෙවන් කරන ලද මුදල් වර්ෂ අවසාන වන ෙතක් ලබා ෙනොදීම තුළ ෙම් පිළිබඳව පාර්ලිෙම්න්තුෙව් යම් පශ්නයක් පැන නැඟුණු ෙව්ලාවකයි ෙමම විෙශේෂ කාරක සභාව පිහිටු වීම පිළිබඳව ෙම් සාකච්ඡාවට අවශɕ මුල පිරීම ගරු දිෙන්ෂ් ගුණවර්ධන අමාතɕතුමා විසින් ගනු ලැබුෙව්. දැන් මහ බැංකු වාර්තාෙවන් ඉදිරිපත් කර තිෙබනවා, 2007 වසෙර් අය වැෙයන් ඒ ඒ අමාතɕාංශ සඳහා ෙවන් කරන ලද මූලධන වියදම්වලින් වියදම් කරන්න පුළුවන් ෙවලා තිෙබන්ෙන්, වැඩ කටයුතු කරන්න පුළුවන් ෙවලා තිෙබන්ෙන් සියයට 24කින් කියලා. ඒ කියන්ෙන් අපි අය වැය ෙල්ඛනෙයන් වර්ෂයකට ෙවන් කරන මුදල් වලින් අවශɕ සංවර්ධන වැඩ කටයුතු ෙහෝ අවශɕ කියාමාර්ග අරෙගන තිෙබන්ෙන් හතෙරන් පංගුවකටත් වඩා අඩුෙවන්. ඒක පසු ගියදා ඉදිරිපත් ෙවලා තිබුණා. මා දැක්කා, ඒක පුවත් පත්වලත් වාර්තා කර තිෙබනවා. ගරු කථානායකතුමනි, ඒ නිසා දැන් තිෙබන පශ්නය අපි පාර්ලිෙම්න්තුෙව් අය වැය සම්මත කර ඒ ඒ අදාළ වන මුදල් සම්මත කර දුන්නාට වැඩක් නැහැ, එයට මැදිහත් වන අමාතɕවරු නිසි කාර්යක්ෂමතාවකින් යුතුව ඒ අමාතɕාංශ ෙමෙහයවන්ෙන් නැත්නම්. දැන් ඉතා පැහැදිලි ෙලස ෙපන්නුම් කර තිෙබනවා, මූලධන වියදම්වලින් සියයට 24කට ආසන්න මුදලක් තමයි වියදම් ෙවලා තිෙබන්ෙන් කියා. ඒ නිසා දැන් පාර්ලිෙම්න්තුව ෙවන් කරන මුදල් වලින් කවර ආකාර විධියට ඒ අමාතɕාංශවල කටයුතු කරනවාද කියා බැෙලන පසු විපරම් කියාවලියක් ෙම් කමිටුව හරහාම සිදු වනවා නම් තමයි වඩාත් ෙයෝගɕ. එෙහම නැතිව සිද්ධ වන ෙද් තමයි යම් යම් ෙවලාවට ෙවන් කරන මුදල් ආපසු හැරිලා යාම. නමුත් සමහර අමාතɕාංශවල යළි යළි මුදල් ලබා ගැනීමට දරන පයත්නයන් තිෙබනවා.ඒ නිසා ෙම්ෙක් පගතියක් තිෙබනවා නම් ඒ පගතිය ඉදිරියට ෙගන යන්න නම් - ෙමොකද, ෙම්ෙකන් මුදල් සම්මත කර දුන්නාට වැඩක් නැහැ - ඒ පිළිබඳ යම් පසු විපරම් කියාවලියක් ආරම්භ කිරීම ෙකෙරහි ගරු සභානායකතුමාෙග්ත්, ආණ්ඩු පක්ෂෙය් පධාන සංවිධායකතුමාෙග්ත් අවධානය ෙයොමු කරන්නය කියා මම ඉල්ලා සිටිනවා.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) අෙප් ස්ථාවර නිෙයෝග ඊට සරිලන විධියට ෙවනස් කිරීමට අපි පියවර ගනිමු.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (නාගරික සංවර්ධන හා පූජා භූමි සංවර්ධන අමාතɕතුමා සහ ආණ්ඩු පක්ෂෙය් පධාන සංවිධායකතුමා)
+
+(மாண்ᾗமிகு திேனஷ் குணவர்தன - நகர அபிவிᾞத்தி, ᾗனித பகுதிகள் அபிவிᾞத்தி அைமச்சர்)
+
+(The Hon. Dinesh Gunawardena - Minister of Urban Development and Sacred Area Development and chief Government whip)
+
+ගරු කථානායකතුමනි, එකී වාර්තාව මුදණය කළ යුතුය” යි මා ෙයෝජනා කරනවා.
+
+පශ්නය විමසන ලදින්, සභා සම්මත විය. வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. Question put, and agreed to. වාර්තාව මුදණය කළ යුතුයයි නිෙයෝග කරන ලදී. அறிக்ைக அச்சிடப்படக்ட்டைளயிடப்பட்டᾐ Ordered that the Report be printed.
+
+පාර්ලිෙම්න්තුව 3153 3154
+
+උපෙද්ශක කාරක සභා වාර්තා
+
+ஆேலாசைனக் குᾨ அறிக்ைககள் CONSULTATIVE COMMITTEE REPORTS
+
+ගරු ඒ. එම්. එම්. නවුෂාඩ් මහතා (மாண்ᾗமிகு ஏ. எம். எம். நᾫஷாத்) (The Hon. A. M. M. Naoshaad
+
+Mr. Speaker, on behalf of the Chairman of the Consultative Committee on Disaster Management and Human Rights, I presrnt the Report of the Consultative Committee on Disaster Management and Human Rights on the Annual Reports and Accounts of the Disaster Management Centre for the years 2005 and 2006.
+
+සභා ෙම්සය මත තිබිය යුතු යයි නිෙයෝග කරන ලදී. சபாபீடத்தில் இᾞக்கக் கட்டைளயிடப்பட்டᾐ. Ordered to lie upon the Table. ගරු එම්. එච්. ෙසේගු ඉසඩින් මහතා (අපනයන සංවර්ධන අමාතɕතුමා)
+
+(மாண்ᾗமிகு எம். எச். ேசகு இஸ்ஸதீன் - ஏற்ᾠமதி அபிவிᾞத்தி அைமச்சர்)
+
+(The Hon. M. H. Cegu Isadean - Minister of Export Development)
+
+Mr. Speaker, on behalf of the Chairman of the Consultative Committee on Fisheries and Aquatic Resources, I present the Report of the Consultative Committee on Fisheries and Aquatic Resources on-
+
+(i) the Annual Report and Accounts of the National
+
+Aquatic Resources, Research and Development Agency for the year 2005;
+
+(ii) the Annual Report of the National Aquaculture
+
+Development authority of Sri Lanka for the year 2005; and (iii) the Annual Report of the Ceylon Fishery Harbours
+
+Corporation for the year 2005.
+
+සභා ෙම්සය මත තිබිය යුතු යයි නිෙයෝග කරන ලදී. சபாபீடத்தில் இᾞக்கக் கட்டைளயிடப்பட்டᾐ. Ordered to lie upon the Table.
+
+ගරු මහාචාර්ය තිස්ස විතාරණ මහතා (විදɕා හා තාක්ෂණ අමාතɕතුමා)
+
+(மாண்ᾗமிகு (ேபராசிாியர்) திஸ்ஸ விதாரண - விஞ்ஞான, ெதாழில்ᾒட்பவியல் அைமச்சர்)
+
+(The Hon. (Prof.) Tissa Vitharana - Minister of Science and Technology)
+
+ගරු කථානායකතුමනි, 2005 වර්ෂය සඳහා ජාතික විදɕා හා තාක්ෂණ ෙකොමිෂන් සභාෙව් වාර්ෂික වාර්තාව සම්බන්ධෙයන් විදɕා හා තාක්ෂණ කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාෙව් වාර්තාව මම ඉදිරිපත් කරමි.
+
+සභා ෙම්සය මත තිබිය යුතු යයි නිෙයෝග කරන ලදී. சபாபீடத்தில் இᾞக்கக் கட்டைளயிடப்பட்டᾐ. Ordered to lie upon the Table.
+
+ෙපත්සම්
+
+மᾔக்கள்
+
+PETITIONS
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු අතාවුද ෙසනවිරත්න මහතා - පැමිණ නැත. ගරු එම්. සච්චිතානන්දන් මහතා - පැමිණ නැත.
+
+පශ්නවලට වාචික පිළිතුරු வினாக்கᾦக்கு வாய்ᾚல விைடகள்
+
+ORAL ANSWERS TO QUESTIONS
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) පශ්න අංක 1-0079/’08-(2), ගරු රවි කරුණානායක මහතා.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ගරු කථානායකතුමනි, පළමු වන පශ්නය අහන්න ඉස්සර ෙවලා මම උත්තරය කියන්නම්. මම ෙම් පශ්නය පාර්ලිෙම්න්තුවට ඉදිරිපත් කෙළේ ෙම් වසෙර් ජුනි මාසෙය් 10 වන දායි. ඒ අවස්ථාෙව්දී ෙමය නɕාය පතයට ඇතුළත් ෙවලා, සැප්තැම්බර් මාසෙය් 09 වන දින උත්තර ෙදන්නයි තිබුෙණ්. ඒ අවස්ථාෙව්දී මාසයක් කල් ගත්තා. දැන් අද ෙද වන වතාවට ෙම් පශ්නය අහන ෙකොට කියනවා, ෙම් පශ්නය ෙත්ෙරන්ෙන් නැහැයි කියලා. ගරු කථානායකතුමනි, එෙහම පශ්නයක් තිබුණා නම්, මම පශ්නය දුන්නාට පසුව ඒ අවස්ථාෙව්දී අහන්න තිබුණා. එෙහම නැත්නම් පශ්නය ඉන් පසුව සභාව හමුවට ෙගනා පළමු වන අවස්ථාෙව් අහන්න තිබුණා. ෙම් ෙද ෙවන අවස්ථාෙව්දී ෙමෙහම අහන්ෙන් ෙම් සම්බන්ධෙයන් ෙම් පාර්ලිෙම්න්තුවට උත්තර දීමට අකමැත්තක් තිෙබන නිසායි: භයක් තිෙබන නිසායි. එෙහම කියමින් මම ෙම් පශ්නය අහන අතර, ෙම් පශ්නයට උත්තරය ලබා ෙදන්නයි කියලා ඉල්ලනවා. ෙම් වාෙග් පශ්නවලට උත්තරයක් සපයන්ෙන් කවුද “ෙම්ක ෙත්ෙරන්ෙන් නැහැ” කියා පශ්න අහනවා. අපි ෙම් ෙද වන වතාවට තමයි පිළිතුරු ඉල්ලන්ෙන්.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) මුදල් හා කමසම්පාදන ඇමතිතුමා. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) එෙහම ෙන්ද දිෙන්ෂ් ඇමතිතුමනි, ඒකයි ලැෙබන උත්ත රය. එතුමාට කියලා වැඩක් නැහැ. [බාධා කිරීමක්] එතුමාට උත්තරය කියවන්න තිෙබන්ෙන් පධාන සංවිධායකතුමා වශෙයන්.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ගරු කථානායකතුමනි, මුදල් හා කමසම්පාදන ඇමතිතුමා ෙවනුෙවන් මා එම පශ්නයට පිළිතුරු දීම සඳහා සුමාන ෙදකක් කල් ඉල්ලනවා.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ලියා තිෙබන පශ්නය . [බාධා කිරීමක්] ෙත්ෙරන්ෙන් නැහැලු. ඇමතිතුමනි, ඒකයි අහන්න අවශɕ වන්ෙන්.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ෙම්ක අසම්පූර්ණ නිසා සුමාන ෙදකක් කල් ඉල්ලනවා. සම්පුර්ණ පිළිතුරක් දීම සඳහායි සුමාන ෙදකක් කල් ඉල්ලන්ෙන්.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙබොෙහොම ස්තූතියි.
+
+2008 ෙදසැම්බර් 05 3155 3156
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඒක ෙනොෙවයි ඔතැනට අවශɕ උත්තරය වන්ෙන් කමක් නැහැ. ඔතැන තිෙබන්ෙන් ෙත්ෙරන්ෙන් නැහැ කියලායි. ඒ කියන්ෙන් ෙබොරුවට කල් ඉල්ලනවා.
+
+පශ්නය මතු දිනකදී ඉදිරිපත් කිරීමට නිෙයෝග කරන ලදී. வினாைவ மற்ெறாᾞ தினத்திற் சமர்ப்பிக்கக் கட்டைளயிடப்பட்டᾐ. Question ordered to stand down. ගරු රනිල් විකමසිංහ මහතා (විරුද්ධ පාර්ශ්වෙය් නායකතුමා)
+
+(மாண்ᾗமிகு ரணில் விக்கிரமிசிங்க - எதிர்க்கட்சி ᾙதல்வர்) (The Hon. Ranil Wickremasinghe - Leader of the Opposition)
+
+මම කැමතියි. එතුමා අපිට පිළිතුරු ෙදනවාද කියා දැන ගන්න. Hedging ණය, ඒ වාෙග්ම ඇතුළත් ෙනොකරපු ෙනොෙගවූ ණය ගණනාවක් තිෙබනවා. Hedging පශ්නය ගැන සම්පූර්ණ වටිනාකමක් ඒකට ඇතුළත් කර ෙදනවාද? අද ෙම්ක ෙලොකු පශ්නයක් ෙවලා zero collar එක dog collar එකක් බවට පත් ෙවලා.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) පශ්න අංක 2 - 0126/’08 - (1), ගරු රවි කරුණානායක මහතා. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ගරු කථානායකතුමනි මා එම පශ්නය අහනවා. ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ගරු කථානායකතුමනි, විෙද්ශ රැකියා පවර්ධන හා සුබසාධන අමාතɕතුමා ෙවනුෙවන් මා එම පශ්නයට පිළිතුරු දීම සඳහා සතියක් කල් ඉල්ලනවා.
+
+පශ්නය මතු දිනකදී ඉදිරිපත් කිරීමට නිෙයෝග කරන ලදී. வினாைவ மற்ெறாᾞ தினத்திற் சமர்ப்பிக்கக் கட்டைளயிடப்பட்டᾐ. Question ordered to stand down. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) තුන් වන පශ්නය අහන්න ඉස්සර ෙවලා, ඒකට උත්තර ලැෙබන්න ඉස්සර ෙවලා මම අහනවා. අෙප් විපක්ෂ නායකතුමා ඇහුවා වාෙග් ෙම් තුන් ෙවනි පශ්නෙය් තිෙබන්ෙන්ත් hedging and petroleum ගැන. ෙම් පශ්නයටත් කල් ඉල්ලනවා නම්, උසාවියටත් අෙගෞරව කරනවා. පාර්ලිෙම්න්තුෙව්දීවත් උත්තර ෙදන්ෙන් නැතිව ඒ ෙදකම කරනවා නම් - [බාධා කිරීමක්] ඒ වාෙග් මාසයක් කල් ඉල්ලීෙමන් උත්තරයක් ලැෙබන්ෙන් නැහැ කියන විශ්වාසෙයන් මා එම පශ්නය අහනවා.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker)
+
+පශ්න අංක 3-0553/’08-(1), ගරු රවී කරුණානායක මන්තීතුමා.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena)
+
+තුන් වන පශ්නය අහලා තිෙබන්ෙන් ඉරානෙයන් ෙතල් ෙගන ඒම ගැන. එම නිසා පාර්ලිෙම්න්තුව හැම එකටම ෙව්දිකාව හැටියට පාවිච්චි කරන්න එපා. හැම එකටම සම්බන්ධයි එෙහම නම් ෙම්ක අපිට ඉවරයක් නැති බඩවැලක් ෙවනවා.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) Hedge කරලා තිෙබන්ෙන් ඉරාන ෙතල්වලට තමයි. ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena)
+
+ගරු කථානායකතුමනි, ඛනිජෙතල් සහ ඛනිජෙතල් සම්පත් සංවර්ධන අමාතɕතුමා ෙවනුෙවන් මා එම පශ්නයට පිළිතුරු දීම සඳහා සති ෙදකක් කල් ඉල්ලනවා.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ගරු කථානායතුමනි, ෙම් අවස්ථාෙව්දී මම අහන්ෙන් ෙම්කයි. තිෙබන පශ්නය අනුව කල් ඉල්ලුවාට කමක් නැහැ.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා
+
+(மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena)
+
+ඇමතිතුමා නැහැ. ඒ නිසායි සති ෙදකක් කල් ඉල්ලන්ෙන්. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) කමක් නැහැ. ගරු කථානායකතුමාටත්, ඔබ සියලු ෙදනාටමත් මම කථා කරන්ෙන්. ෙම් අවස්ථාෙව්දී මම කියන්න කැමැතියි ගරු කථානායකතුමනි, ෙමතැන ෙලොකු පශ්නයක්,-
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker)
+
+අතුරු පශ්නයක්ද? ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඔව්, අතුරු පශ්නයක්. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker)
+
+ෙමොකක්ද අතුරු පශ්නය? ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) මෙග් පළමු වන අතුරු පශ්නය - [බාධා කිරීමක්] ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe)
+
+The Hon. Basil Rajapaksa or the Hon. Fowzie. [Interruption]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker)
+
+ස්ථාවර නිෙයෝග අනුව,- ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena)
+
+ගරු කථානායකතුමනි, විපක්ෂ නායකතුමා දැන් ෙප්නත් බලනවා. අංජනම් එළි අරනවා. ඔබතුමා ඉවසීෙමන් ඉන්න. ඇයි
+
+පාර්ලිෙම්න්තුව 3157 3158
+
+ඔබතුමා බැසිල් රාජපක්ෂ මැතිතුමාට ඔච්චර බය. එතුමා අපට, අෙප් ආණ්ඩුවට විශාල ශක්තියක්. අපි ෙම් සාකච්ඡා කරන ෙද් කථා කරමු. ෙකොෙහේද ඔය ෙප්න බැලුෙව්? ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ගරු කථානායකතුමනි - [බාධා කිරීමක්]
+
+ගරු එම්. ෙජෝශප් මයිකල් ෙපෙර්රා මහතා (மாண்ᾗமிகு எம். ேஜாசப் ைமக்கல் ெபேரரா) (The Hon. M. Joseph Michael Perera) අපි බය නැහැ. තමුන්නාන්ෙසේලා බයයි. ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena)
+
+තමුන්නාන්ෙසේලා බය ෙමොකද? එතුමාෙග් පරාජයට ෙලොකුම ශක්තියක් හැටියට වැඩ කළා. ඒකයි බය.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker)
+
+දැන් ඇති ෙන්ද? [බාධා කිරීමක්] ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena)
+
+මට කාෙගන්වත් ලකුණු ඕනෑ නැහැ. ෙම් ඉස්සරහ ෙප්ළියට ලකුණු දමා ගන්න හැටි. අවුරුදු තිහකට ඉස්සර ෙවලා ඉඳන් එතුමා ඔබතුමාෙගයි, මෙගයි මිතෙයක්. තමුන්නාන්ෙසේලා-අෙප් ෙද්ශපාලන මත අතර ගැටුම් තිබුණාට අපි මිතයන් ෙන්. [බාධා කිරීමක්] නැහැ. එෙහම කිසිම ෙවනසක් ෙවලා නැහැ.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) පළමු වන අතුරු පශ්නය ඉවර වුණා. මම ෙද වැනි අතුරු පශ්නය අහන්නම් ගරු කථානායකතුමනි.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker)
+
+අතුරු පශ්න අහන්ෙන් ෙකොෙහොමද පශ්නයට පිළිතුරු දීලා නැහැ. පිළිතුරු දීලා නැති පශ්නයකට අතුරු පශ්න අහන්ෙන් ෙකොෙහොමද?
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) උසාවිෙයන් ලැබුණු තීන්දුව අනුව මුදල් අමාතɕාංශෙයන් මට ලිපියක් එවා තිෙබනවා. මට කියා තිබුණා, ෙදසැම්බර් මාසෙය් 15 වැනි දා වන විට කරුණාකර මුදල් අමාතɕාංශෙය් ෙල්කම් එක්ක කථා කරලා නිර්ෙද්ශපාලන මට්ටමකට ජාතික පතිපත්තියක් ඇති කරන්න කියලා. ඒ ලැබුණු ලිපිෙයන් කියලා තිෙබනවා, අපි හම්බ ෙවන්න ඕනෑ නැහැ, කරුණාකර ලිඛිතව ඉදිරිපත් කරන්න කියලා. ෙශේෂ්ඨාධිකරණය එදා කිව්වා, ෙම්ක බරපතළ පශ්නයක්, ජනතාවට බරක් තිෙබනවා, කරුණාකර එකතු ෙවලා ෙම්කට උත්තරයක් ලබා ෙදන්න කියලා.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena)
+
+ෙශේෂ්ඨාධිකරණයට ගියා නම් ෙශේෂ්ඨාධිකරණෙයන්ම ඒවා දිගට ෙගන යන්න. පාර්ලිෙම්න්තුව ඒකට සම්බන්ධ ෙවන්න ෙහෝ
+
+ඇඟිලි ගහන්න ෙහෝ පටලැෙවන්න ෙහෝ සූදානම් ෙවන්න ෙහොඳ නැහැ. [බාධා කිරීමක්] අපි දිගටම සිටිෙය් ඒ මතෙය්යි. [බාධා කිරීමක්] අපි දිගටම ඒ මතෙය්යි සිටිෙය්.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ෙම් උත්තරීතර පාර්ලිෙම්න්තුෙවන් ලැෙබන්න තිෙබන ෙද් තමයි ජනතාව ෙවනුෙවන් අපි කථා කෙළේ. එතුමන්ලාට ඇමතිවරු 110 රකින්න අවශɕ වුණත් අපට ජනතාව රකින්න අවශɕ නිසා මම ෙම් වාර්තා තුන සභාගත කරනවා, මුදණය කරන්න කියලා.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena)
+
+No, no, you cannot. ගරු කථානායකතුමනි,- ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඒ තුළින් මම අහනවා, කරුණාකර ආණ්ඩුවට- ගරු නිමල් සිරිපාල ද සිල්වා මහතා ( மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ගරු කථානායකතුමනි, මම එතුමාට කියන්න ඕනෑ, Oral Questions අහන ෙවලාෙව්, ස්ථාවර නිෙයෝගවලට අනුව එතුමාෙග් වාර්තා සභාගත කරන්න පුළුවන්කමක් නැහැ.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker)
+
+ගරු රවී කරුණානායක මන්තීතුමා, දැන් ඔබතුමා පශ්නයක් අහනවා. අහන පශ්නයට කල් ඉල්ලනවා. එතෙකොට එයින් නවතිනවා. එයින් එහාට අතුරු පශ්න මතු කිරීමට විධියක් නැහැ. ෙකොෙහොමද, එෙහම වන්ෙන්? අෙප් ස්ථාවර නිෙයෝග ඉතා පැහැදිලියි. ස්ථාවර නිෙයෝගවලට අනුව එෙහම එකකට ඉඩ දීලා නැහැ. එය විවාදයකට ෙහේතුවක් කර ගත යුතු ෙනොෙවයි කියලා ස්ථාවර නිෙයෝගවල ඉතා පැහැදිලිව කියලා තිෙබනවා. ස්ථාවර නිෙයෝග ගැන ඔබතුමා ෙහොඳට දන්නවා.
+
+දැන් ඊළඟ පශ්නයට යමු. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ෙම් අවස්ථාෙව් මම ඉල්ලන්ෙන්. - [බාධා කිරීමක්] කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker)
+
+ඒකට අදාළ වන්ෙන් නැහැ. ඒ පශ්නයට පිළිතුර දීලා නැහැ ෙන්.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඒක තමයි උත්තරය, සුමාන ෙදකක් කල් ඉල්ලනවාය කියන එක . සුමාන ෙදකක් කල් ඉල්ලන අවස්ථාෙව්දී මෙග් පළමු වැනි අතුරු පශ්නයට උත්තරයක් ෙදන්න පුළුවන්.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ස්ථාවර නිෙයෝග 29(2), “පශ්නයක් විවාදයකට වɕාජ ෙහේතුවක් කර ෙනොගත යුතුය.”
+
+[ගරු දිෙන්ෂ් ගුණවර්ධන මහතා]
+
+2008 ෙදසැම්බර් 05 3159 3160
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) විවාදයක් ෙනොෙවයි ෙන්. ෙම්ක විවාදයක් ෙනොෙවයි. ෙම්ක අර්ථ කථනය කරන්ෙන්, - [බාධා කිරීමක්]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) අදාළ වන්ෙන් නැහැ. අදාළ වන්ෙන් නැත්ෙත්, පශ්නයට උත්තරය දීලා නැති නිසයි.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඔබතුමා අකැමැතිද ෙම් රෙට් ෙතල් මිල අඩු කරනවාට? ෙම් අවස්ථාෙව්දී ෙශේෂ්ඨාධිකරණය, - [බාධා කිරීමක්]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) කරුණාකර, මා පටලවා ගන්න එපා ෙම්කට. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) රුපියල් පනහකින් ෙතල් මිල අඩු කරන්න තිෙබන අවස්ථාවක්. ඔබතුමා කල් ලබා ෙදනවා, - [බාධා කිරීමක්] මගඩියක් ඇති කරන්න.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙමොකක්ද? ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ජනතාව බලාෙගන ඉන්නවා ෙතල් ලීටරයක් රුපියල් හැටකට, හැත්තෑවකට ලබා ෙද්විය කියා. ඒ අවස්ථාව ඇයි යටපත් කරන්ෙන්? ආණ්ඩුව කළු කඩ වɕාපාරයක් ෙගන යනවා. ෙශේෂ්ඨාධිකරණය කියා තිෙබනවා, කරුණාකර එකතු ෙවලා නිර්ෙද්ශපාලනීකරණයක් කරලා මිල අඩු කරන්නය කියා. මා ඒකට බැඳී සිටිනවා.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ගරු කථානායකතුමනි, - [බාධා කිරීමක්] කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු රවි කරුණානායක මන්තීතුමනි, ඔබතුමා නිශ්චිත ෙයෝජනාවක් ඉදිරිපත් කරන්න එෙහම ෙදයක් තිෙබනවා නම්. ෙම් ඒකට අවස්ථාව ෙනොෙවයි. දැන් ෙවලාව ෙපරවරු 09.40යි.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ගරු කථානායකතුමනි, නඩුකාරයන්ෙග් ෙගවල්වලට ගල් ගහලා, - [බාධා කිරීමක්]
+
+ගරු ලලිත් දිසානායක මහතා (மாண்ᾗமிகு லᾢத் திஸாநாயக்க) (The Hon. Lalith Dissanayake) රවි කරුණානායක මන්තීතුමනි, ෙමොකක්ද ඔබතුමාට තිෙබන අනුකම්පාව?
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ෙතල් මිල අඩු කරන්න වැඩසටහනක් කියාත්මක කරන්න. පශ්නය මතු දිනකදී ඉදිරිපත් කිරීමට නිෙයෝග කරන ලදී. வினாைவ மற்ெறாᾞ தினத்திற் சமர்ப்பிக்கக் கட்டைளயிடப்பட்டᾐ. Question ordered to stand down. ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ගරු කථානායකතුමනි, ඊළඟ පශ්නයට යමු.[බාධා කිරීමක්] කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) පශ්න අංක 4, ගරු රණවීර පතිරණ මන්තීතුමා. පශ්නය අහන්ෙන් අපනයන සංවර්ධන හා ජාතɕන්තර ෙවෙළඳ කටයුතු ඇමතිතුමාෙගන්.
+
+ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා (மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) ගරු කථානායකතුමනි, මා එම පශ්නය අහනවා. ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ගරු කථානායකතුමනි, අෙප් රජය අධිකරණයට ෙගෞරව කරනවා. එහි ගැටලුවක් නැහැ.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) 4 වැනි පශ්නය. ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා (மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) දිෙන්ෂ් ගුණවර්ධන ඇමතිතුමා කියන එක මෙග් උත්තරයට අදාළ නැහැ ගරු කථානායකතුමනි.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ඒක තමයි මා කථා කරන්න යන්ෙන්. ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා (மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) ගරු කථානායකතුමනි, ඒ කියන එක මෙග් උත්තරයට අදාළ නැහැ.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ෙශේෂ්ඨාධිකරණෙය් නඩුකාරයන්ෙග් ෙගවල්වලට ගල් ගහපු මිනිසුන්, - [බාධා කිරීමක්]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙමොකක්ද ඔය? ෙමොන පශ්නයට පිළිතුරක්ද?
+
+පාර්ලිෙම්න්තුව 3161 3162
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) නඩු තීන්දු දුන්නාම රෑට ගිහිල්ලා නඩුකාරයන්ෙග් ෙගවල් වලට ගල් ගහපු මිනිසුන් දැන් කථා කරනවා උසාවියට ගරු කිරීම ගැන. අප මැරිලා ඉපදිලා නැහැ. ෙශේෂ්ඨාධිකරණෙය් නඩුකාරයන්ෙග් ෙගවල්වලට ගල් ගැහුවා මතක ද? කවුද කෙළේ?
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) අදාළ නැහැ. ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ඔව්. අදාළ නැහැ. මටත් කියන්න තිෙයනවා ෙම්ක. අප ෙශේෂ්ඨාධිකරණෙය් නඩුකාරයන්ෙග් ෙගවල්වලට ගල් ගැහුෙව් නැහැ. කවුද උසාවියට අපහාස කෙළේ? උසාවිෙය් තීන්දුවක් දුන්නාම ගිහින් නඩුකාරයන්ෙග් ෙගවල්වලට ගල් ගහනවාද? [බාධා කිරීම්]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) අදාළ ෙනොවන පශ්නය. අදාළ ෙනොවන පිළිතුර. පශ්න අංක 4. [බාධා කිරීම්] ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ඒක තමයි එතුමන්ලාෙග් උරුමය. ඉතිහාසෙය් ලියවිලා තිෙබන උරුමය ඒකයි.
+
+ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා (மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) ෙද වන වතාවටත් පශ්නය ඇහුවා. එතුමාට ඇෙහන්ෙන් නැහැ.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ඇෙහනවා. ෙහොඳට ඇෙහනවා. අපනයන සංවර්ධන අමාතɕතුමා : නිල නිවස
+
+ஏற்ᾠமதி அபிவிᾞத்தி அைமச்சர் : உத்திேயாகᾘர்வ
+
+வசிப்பிடம் MINISTER OF EXPORT DEVELOPMENT : OFFICIAL RESIDENCE
+
+0249/’08
+
+4. ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා
+
+(மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) අපනයන සංවර්ධන හා ජාතɕන්තර ෙවෙළඳ කටයුතු අමාතɕතුමාෙගන් ඇසූ පශ්නය - (1) : (අ) (i) අපනයන සංවර්ධන (කැබිනට් ෙනොවන) අමාතɕතුමා
+
+සඳහා නිල නිවාසයක් ලබා දී තිෙබ්ද; (ii) එෙසේ නම්, එය රජය සතු ෙද්පලක්ද; (iii) රජය සතු ෙනොෙව් නම් කවර පදනමක් යටෙත් එය ලබා දී
+
+තිෙබ්ද; යන්න එතුමා ෙමම සභාවට දන්වන්ෙනහිද? (ආ) (i) නිල නිවසක් ලබා දී තිෙබ් නම්, එය 2005, 2006 සහ
+
+2007 වර්ෂ තුළ අලුත්වැඩියා කර ෙහෝ වැඩිදියුණු කර තිෙබ්ද;
+
+(ii) අලුත්වැඩියා කෙළේ නම් ඉහත එක් එක් වර්ෂවල වැයකළ
+
+මුදල ෙකොපමණද; (iii) ඉහත නිවාසෙය් පෙයෝජනය සඳහා 2005, 2006 සහ
+
+2007 වර්ෂ තුළ රජෙය් වියදමින් ගෘහභාණ්ඩ ෙහෝ ෙවනත් උපකරණ මිලදී ෙගන තිෙබ්ද; (iv) එෙසේ නම්, ඒ සඳහා වැය කරන ලද මුදල ෙකොපමණද; යන්න ෙවන් ෙවන් වශෙයන් එතුමා ෙමම සභාවට ඉදිරිපත් කරන්ෙනහිද?
+
+(ඇ) (i) ෙමම නිල නිවාසය සඳහා 2005, 2006 සහ 2007 වර්ෂවල
+
+එක් එක් මාසය තුළ භාවිතා කර ඇති විදුලිය හා ජල ඒකක පමාණය ෙවන් ෙවන් වශෙයන් ෙකොපමණද; (ii) ඒ සඳහා අදාළ අමාතɕාංශය මගින් ඉහත එක් එක්
+
+වර්ෂෙය් සහ එක් එක් මාසය තුළ වැය කර ඇති මුදල ෙකොපමණද; යන්න එතුමා සඳහන් කරන්ෙනහිද? (ඈ) ෙනොඑෙසේ නම්, ඒ මන්ද? ஏற்ᾠமதி அபிவிᾞத்தி, சர்வேதச வர்த்தக அᾤவல்கள் அைமச்சைரக் ேகட்ட வினா :
+
+(அ) (i) ஏற்ᾠமதி அபிவிᾞத்தி (அைமச்சரைவ அந்தஸ்தற்ற)
+
+அைமச்சᾞக்கு உத்திேயாகᾘர்வ விᾌதிெயான்ᾠ வழங்கப்பட்ᾌள்ளதா என்பைதᾜம், (ii) ஆெமனில், அᾐ அரசாங்க உடைமயா என்பைதᾜம், (iii) அரசாங்க உடைம இல்ைலெயனில், எந்த அᾊப்பைட
+
+யில் அவ்விᾌதி வழங்கப்பட்ᾌள்ள ெதன்பைதᾜம்
+
+அவர் இச்சைபயில் அறிவிப்பாரா? (ஆ) (i) உத்திேயாகᾘர்வ விᾌதிெயான்ᾠ வழங்கப்பட்ᾊᾞப்
+
+பின், அᾐ 2005, 2006 மற்ᾠம் 2007 ஆம் ஆண்ᾌகளில் திᾞத்தப்பட்ᾌ அல்லᾐ ேமம்பᾌத்தப்பட்ᾌள்ளதா என்பைதᾜம், (ii) திᾞத்தப்பட்ᾊᾞப்பின், ேமற்பᾊ ஒவ்ெவாᾞ ஆண்ᾊᾤம்
+
+ெசலவிடப்பட்ᾌள்ள ெதாைக எவ்வளெவன்பைதᾜம், (iii) ேமற்பᾊ விᾌதியின் பாவைனக்காக 2005, 2006
+
+மற்ᾠம் 2007 ஆம் ஆண்ᾌகளில் அரசாங்கச் ெசலவில் தளபாடங்கள் அல்லᾐ ேவᾠ உபகரணங்கள் ெகாள்வனᾫ ெசய்யப்பட்ᾌள்ளதா என்பைதᾜம், (iv) ஆெமனில், ெசலவிடப்பட்ᾌள்ள ெதாைக எவ்வள ெவன்பைதᾜம்
+
+அவர் ெவவ்ேவறாக இச்சைபயில் சமர்ப்பிப்பாரா? (இ) (i) ேமற்பᾊ உத்திேயாகᾘர்வ விᾌதிக்காக 2005, 2006
+
+மற்ᾠம் 2007 ஆம் ஆண்ᾌகளில் பயன்பᾌத்தப் பட்ᾌள்ள மின்சாரம் மற்ᾠம் நீர் அலகுகளின் எண்ணிக்ைக ெவவ்ேவறாக எவ்வளெவன்பைதᾜம், (ii) ேமற்பᾊ ஒவ்ெவாᾞ ஆண்ᾊᾤம் ஒவ்ெவாᾞ மாதᾙம்
+
+அரசாங்கத்தினால் ெசலவிடப்பட்ட ெதாைக எவ்வள ெவன்பைதᾜம்
+
+அவர் குறிப்பிᾌவாரா?
+
+(ஈ) இன்ேறல், ஏன்? asked the Minister of Export Development and International Trade,:
+
+(a) Will he inform this House,— (i) whether an official residence has been provided
+
+for the Minister of Export Development (non Cabinet);
+
+2008 ෙදසැම්බර් 05 3163 3164
+
+(ii) if so, whether it is a property owned by the State; and (iii) if it is not owned by the State, the basis on which it has been allocated? (b) Will he submit to this House separately,— (i) if an official residence has been allocated, whether it has been repaired or upgraded during the years 2005, 2006 and 2007; (ii) if it has been repaired, the amount of money spent in each year for that purpose; (iii) whether furniture or any other equipment for the use of the aforesaid official residence, has been purchased at Government expense during the years 2005, 2006 and 2007; and (iv) if so, the amount spent on them? (c) Will he state,— (i) separately, the number of units of electricity and water that have been used at this official residence during each month of the years 2005, 2006 and 2007; and (ii) the amount of money spent by the relevant Ministry for electricity and water used at the above mentioned official residence in each month of the aforesaid years? (d) If not, why?
+
+ගරු එම්. එච්. ෙසේගු ඉසඩීන් මහතා (අපනයන සංවර්ධන අමාතɕතුමා)
+
+(மாண்ᾗமிகு எம். எச் . ேசகு இஸ்ஸதீன் - ஏற்ᾠமதி அபிவிᾞத்தி அைமச்சர்)
+
+(The Hon. M. H. Cegu Isadean - Minister of Export Developement)
+
+Sir, on be half of the Hon. Minister of Export Development and International trade, I answer the question.
+
+(a) (i) Yes. (ii) Yes. (iii) Does not arise. (b) (i) No. (ii) Does not arise. (iii) No. (iv) Does not arise. (c) (i) This Ministry was established in January, 2007
+
+and relevant details are attached in the Annex. Sir, I table* the Annex. (ii) Please refer to the Annex. (d) not applicable.
+
+*සභාෙම්සය මත තබන ලද ඇමුණුම: சபாபீடத்தில் ைவக்கப்பட்ட இைணப்ᾗ : Annex tabled : Year : 2007 Month Units Amount Units Amout Units Amount Water of rupees Electricity of rupees Electricity of Paid paid (Security rupees (Quarters) Rs. post) paid Rs. Rs. February 116 8,926.00 1190 22,237.00 377 5,871.52 March 85 6,429.75 1195 26,267.76 393 7,212.24 April 77 6,143.63 1260 27,738.24 422 7,827.36 May 80 6,531.00 1034 22561.32 678 14,057.76 June 70 5,629.88 61 14,171.28 361 7,043.28 July 63 5,138.50 1205 26,357.52 461 8,680.80 August 74 5,918.00 926 20,393.76 389 7,634.64 September 72 5,753.00 1233 27,096.72 551 10,892.40 October 74 6,072.00 1231 27,197.04 499 9,804.72 November 74 6,220.00 1242 27,532.32 374 6,908.64 December 144 10,952.00 1221 27,255.12 380 7,272.96 Total 929 73,713.76 12398 268,808.08 4885 93,206.32
+
+ජනතා වතු කළමනාකරණ හා සංවර්ධන
+
+නිෙයෝජɕ අමාතɕතුමා : නිල නිවස மக்கள் ேதாட்ட ᾙகாைமத்ᾐவ மற்ᾠம் அபிவிᾞத்தி
+
+பிரதி அைமச்சர் : உத்திேயாகᾘர்வ வசிப்பிடம் DEPUTY MINISTER OF PUBLIC ESTATE MANAGEMENT
+
+AND DEVELOPMENT : OFFICIAL RESIDENCE
+
+0277/’08 5. ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා
+
+(மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) ජනතා වතු කළමනාකරණ හා සංවර්ධන අමාතɕතුමාෙගන් ඇසූ පශ්නය - (1) : (අ) (i) ජනතා වතු කළමනාකරණ හා සංවර්ධන නිෙයෝජɕ
+
+අමාතɕතුමා සඳහා නිල නිවාසයක් ලබා දී තිෙබ්ද; (ii) එෙසේ නම් එය රජය සතු ෙද්පළක්ද; (iii) රජය සතු ෙනොෙව් නම් කවර පදනමක් යටෙත් එය ලබා දී තිෙබ්ද; යන්න එතුමා ෙමම සභාවට දන්වන්ෙනහිද? (ආ) (i) නිල නිවසක් ලබා දී තිෙබ් නම් එය 2005, 2006 සහ 2007
+
+වර්ෂ තුළ අලුත්වැඩියා කර ෙහෝ වැඩි දියුණු කර තිෙබ්ද; (ii) අලුත්වැඩියා කෙළේ නම් ඉහත එක් එක් වර්ෂවල වැය කළ
+
+මුදල ෙකොපමණද; (iii) ඉහත නිවාසෙය් පෙයෝජනය සඳහා 2005, 2006 සහ
+
+2007 වර්ෂ තුළ රජෙය් වියදමින් ගෘහ භාණ්ඩ ෙහෝ ෙවනත් උපකරණ මිල දී ෙගන තිෙබ්ද; (iv) එෙසේ නම්, ඒ සඳහා වැය කරන ලද මුදල ෙකොපමණද;
+
+යන්න ෙවන් ෙවන් වශෙයන් එතුමා ෙමම සභාවට ඉදිරිපත් කරන්ෙනහිද? (ඇ) (i) ෙමම නිල නිවාසය සඳහා 2005, 2006 සහ 2007 වර්ෂවල
+
+එක් එක් මාසය තුළ භාවිත කර ඇති විදුලිය හා ජල ඒකක පමාණය ෙවන් ෙවන් වශෙයන් ෙකොපමණද; (ii) ඒ සඳහා අදාළ අමාතɕාංශය මගින් ඉහත එක් එක්
+
+වර්ෂෙය් සහ එක් එක් මාසය තුළ වැය කර ඇති මුදල ෙකොපමණද; යන්න එතුමා සඳහන් කරන්ෙනහිද? (ඈ) ෙනොඑෙසේ නම් ඒ මන්ද?
+
+පාර්ලිෙම්න්තුව 3165 3166
+
+மக்கள் ேதாட்ட ᾙகாைமத்ᾐவ மற்ᾠம் அபிவிᾞத்தி அைமச்சைரக் ேகட்ட வினா : (அ) (i) மக்கள் ேதாட்ட ᾙகாைமத்ᾐவ மற்ᾠம் அபிவிᾞத்தி பிரதி அைமச்சᾞக்கு உத்திேயாகᾘர்வ விᾌதிெயான்ᾠ வழங்கப்பட்ᾌள்ளதா என்பைதᾜம், (ii) ஆெமனில், அᾐ அரசாங்க உடைமயா என்பைதᾜம், (iii) அரசாங்க உடைம இல்ைலெயனில், எந்த அᾊப்பைட யில் அவ்விᾌதி வழங்கப்பட்ᾌள்ளெதன்பைதᾜம்
+
+அவர் இச்சைபயில் அறிவிப்பாரா? (ஆ) (i) உத்திேயாகᾘர்வ விᾌதிெயான்ᾠ வழங்கப்பட்ᾊᾞப் பின், அᾐ 2005, 2006 மற்ᾠம் 2007 ஆம் ஆண்ᾌகளில் திᾞத்தப்பட்ᾌ அல்லᾐ ேமம்பᾌத்தப்பட்ᾌள்ளதா என்ப ைதᾜம், (ii) திᾞத்தப்பட்ᾊᾞப்பின், ேமற்பᾊ ஒவ்ெவாᾞ ஆண்ᾊᾤம் ெசலவிடப்பட்ᾌள்ள ெதாைக எவ்வளெவன்பைதᾜம், (iii) ேமற்பᾊ விᾌதியின் பாவைனக்காக 2005, 2006 மற்ᾠம் 2007 ஆம் ஆண்ᾌகளில் அரசாங்கச் ெசலவில் தளபாடங்கள் அல்லᾐ ேவᾠ உபகரணங்கள் ெகாள் வனᾫ ெசய்யப்பட் ᾌள்ளதா என்பைதᾜம், (iv) ஆெமனில், ெசலவிடப்பட்ᾌள்ள ெதாைக எவ்வள ெவன்பைதᾜம்
+
+அவர் ெவவ்ேவறாக இச்சைபயில் சமர்ப்பிப்பாரா? (இ) (i) ேமற்பᾊ உத்திேயாகᾘர்வ விᾌதிக்காக 2005, 2006 மற்ᾠம் 2007 ஆம் ஆண்ᾌகளில் பயன்பᾌத்தப்பட்ᾌள்ள மின்சாரம் மற்ᾠம் நீர் அலகுகளின் எண்ணிக்ைக ெவவ்ேவறாக எவ்வளெவன்பைதᾜம், (ii) ேமற்பᾊ ஒவ்ெவாᾞ ஆண்ᾊᾤம் ஒவ்ெவாᾞ மாதᾙம் அரசாங்கத்தினால் ெசலவிடப்பட்ட ெதாைக எவ்வள ெவன்பைதᾜம்
+
+அவர் குறிப்பிᾌவாரா?
+
+(ஈ) இன்ேறல், ஏன்? asked the Minister of Public Estate Management and Development: (a) Will he inform this House,— (i) whether an official residence has been provided for the Deputy Minister of Public Estate Management and Development; (ii) if so, whether it is a property owned by the State; and (iii) if it is not owned by the State, the basis on which it has been allocated? (b) Will he submit to this House separately,— (i) if an official residence has been allocated, whether it has been repaired or upgraded during the years 2005, 2006 and 2007; (ii) if it has been repaired, the amount of money spent in each year for that purpose;
+
+(iii) whether furniture or any other equipment for the use of the aforesaid official residence, has been purchased at Government expense during the years 2005, 2006 and 2007; and (iv) if so, the amount spent on them? (c) Will he state,— (i) separately, the number of units of electricity and water that have been used at this official residence during each month of the years 2005, 2006 and 2007; and (ii) the amount of money spent by the relevant Ministry for electricity and water used at the above - mentioned official residence in each month of the aforesaid years? (d) If not, why?
+
+ගරු මිල්ෙරෝයි පනාන්දු මහතා (ජනතා වතු කළමනාකරණ හා සංවර්ධන අමාතɕතුමා)
+
+(மாண்ᾗமிகு மில்ேராய் ெபர்னாந்ᾐ - மக்கள் ேதாட்ட ᾙகாைமத்ᾐவம் மற்ᾠம் அபிவிᾞத்தி அைமச்சர்)
+
+(The Hon. Milroy Fernando—Minister of Public Estate Management and Development)
+
+(අ) ඔව්. (i) නැත. (ii) අදාළ නැත. (iii) රාජɕ පරිපාලන 8/2007 චකෙල්ඛනයට අනුව රුපියල්
+
+ලක්ෂයක මුදලක් මාසිකව නිවාස කුලිය ෙලස ලබා දීම. (ආ) ඔව් (i) අදාළ නැත. (ii) අදාළ නැත. (iii) නැත. (iv) අදාළ නැත. (ඇ) (i) අදාළ නැත. (ii) අදාළ නැත. (ඈ) අදාළ නැත.
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ගරු ඇමතිතුමනි, ඔබතුමා පකාශ කළා. චකෙල්ඛනය අනුව රුපියල් ලක්ෂයක් ලැෙබනවාය කියලා.
+
+ගරු මිල්ෙරෝයි පනාන්දු මහතා (மாண்ᾗமிகு மில்ேராய் ெபர்னாந்ᾐ ) (The Hon. Milroy Fernando) ඔව්. ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) එතෙකොට මා දැන ගන්න කැමතියි. ඒ රුපියල් ලක්ෂයට ඔබතුමා නිවසක් කුලියට අරෙගන තිෙබනවාද කියලා.
+
+[ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා]
+
+2008 ෙදසැම්බර් 05 3167 3168
+
+ගරු මිල්ෙරෝයි පනාන්දු මහතා (மாண்ᾗமிகு மில்ேராய் ெபர்னாந்ᾐ ) (The Hon. Milroy Fernando) මෙග් ෙනොෙවයි. ෙම්ක නිෙයෝජɕ ඇමතිතුමාෙග් නිවස. ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ඔව්. නිෙයෝජɕ ඇමතිතුමාෙග් නිවස ගැන තමයි අහන්ෙන්. ඉතින් ඔබතුමා උත්තර ෙදන්න එපා යැ.
+
+ගරු මිල්ෙරෝයි පනාන්දු මහතා (மாண்ᾗமிகு மில்ேராய் ெபர்னாந்ᾐ ) (The Hon. Milroy Fernando) ඒක නිෙයෝජɕ ඇමතිතුමාෙගන් අහන්න. ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) එෙහම බැහැ ෙන්. ගරු මිල්ෙරෝයි පනාන්දු මහතා (மாண்ᾗமிகு மில்ேராய் ெபர்னாந்ᾐ ) (The Hon. Milroy Fernando) අපි මුදල් ලබා දීලා තිෙබනවා. ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) මාර කථාවක් ෙන්. ගරු මිල්ෙරෝයි පනාන්දු මහතා (மாண்ᾗமிகு மில்ேராய் ெபர்னாந்ᾐ ) (The Hon. Milroy Fernando) අපි මුදලක් දීලා තිෙබන්ෙන්. ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) අතුරු පශ්නය මා දැන් අහනවා. ගරු ඒ. පී. ජගත් පුෂ්පකුමාර මහතා (ජාතිය ෙගොඩනැඟීෙම් අමාතɕතුමා)
+
+(மாண்ᾗமிகு ஏ. பீ. ஜகத் ᾗஷ்பகுமார - ேதசத்ைதக் கட்ᾊெயᾨப்ᾗ வதற்கான அைமச்சர்)
+
+(The Hon. A. P. Jagath Pushpakumara - Minister of Nation Building)
+
+පුංචි අම්මා ඉන්නවාද කියලා දැන ගන්න.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙමොකක්ද? ගරු ඒ. පී. ජගත් පුෂ්පකුමාර මහතා (மாண்ᾗமிகு ஏ. பீ. ஜகத் ᾗஷ்பகுமார) (The Hon. A. P. Jagath Pushpakumara) නිෙයෝජɕ ඇමතිතුමා ඉන්නවාද, පුංචි අම්මා ඉන්නවාද කියා දැන ගන්නයි.
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ගරු කථානායකතුමනි, ඉතා පැහැදිලි ෙලස මා අහන්ෙන් ෙමොකක්ද? [බාධා කිරීමක්] මා පැහැදිලි ෙලස අහනවා. - [බාධා කිරීම්]
+
+ගරු ඒ. පී. ජගත් පුෂ්පකුමාර මහතා (மாண்ᾗமிகு ஏ. பீ. ஜகத் ᾗஷ்பகுமார) (The Hon. A. P. Jagath Pushpakumara) ඔය දැන ගන්ෙන් පුංචි අම්මා ඉන්නවාද කියලායි. ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ෙම් අතුරු පශ්නෙයන් මා අහන්ෙන් ෙමොකක්ද? ෙම් ෙගයට රුපියල් ලක්ෂයක් ගන්නවාය කියා එතුමා කියනවා. මම ඇසුෙව් ඒ රුපියල් ලක්ෂයකට එතුමා ෙගයක් කුලියට අර ෙගන තිෙබනවාද නැද්ද කියායි.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker)
+
+ඒ ගැන ෙසොයා බලා එතුමා උත්තර ෙද්වි.
+
+ගරු මිල්ෙරෝයි පනාන්දු මහතා (மாண்ᾗமிகு மில்ேராய் ெபர்னாந்ᾐ) (The Hon. Milroy Fernando) ඒ පශ්නය ෙමතැන නැහැ ෙන්. ෙමතැන අහලා තිෙබන්ෙන්,-
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayaka) ඒක අතුරු පශ්නයක්. [බාධා කිරීම්] කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker)
+
+එතුමා සූදානම් ෙවලා නැහැ, ඒකට පිළිතුරු ෙදන්න.
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayaka) ගරු කථානායකතුමනි, නමුත් කිව්ෙව් ෙමොකක්ද? ෙමතුමා කිව්වා නිෙයෝජɕ ඇමතිතුමාෙගන් අහන්නය කියලා. [බාධා කිරීම්]
+
+ගරු මිල්ෙරෝයි පනාන්දු මහතා (மாண்ᾗமிகு மில்ேராய் ெபர்னாந்ᾐ) (The Hon. Milroy Fernando) පශ්නය අහලා තිෙබන්ෙන් ෙමෙහමයි ෙන්. “ජනතා වතු කළමනාකරණ හා සංවර්ධන නිෙයෝජɕ අමාතɕතුමා සඳහා නිල නිවාසයක් ලබා දී තිෙබ්ද?” ඒ පශ්නයට “නැත” කියා පිළිතුරු දී තිෙබනවා. ඒකට උත්තර දී තිෙබන්ෙන් එෙහමයි.
+
+අධිකරණ හා නීති පතිසංස්කරණ නිෙයෝජɕ
+
+අමාතɕතුමා : නිල නිවස நீதி, சட்ட மᾠசீரைமப்ᾗ பிரதி அைமச்சர் :
+
+உத்திேயாகᾘர்வ வசிப்பிடம் DEPUTY MINSTER OF JUSTICE AND LAW REFORMS :
+
+OFFICIAL RESIDENCE
+
+0278/’08 6. ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා (மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) අධිකරණ හා නීති පතිසංස්කරණ අමාතɕතුමාෙගන් ඇසූ පශ්නය,— (1) : (අ) (i) අධිකරණ හා නීති පතිසංස්කරණ නිෙයෝජɕ අමාතɕතුමා
+
+සඳහා නිල නිවාසයක් ලබා දී තිෙබ්ද; (ii) එෙසේ නම් එය රජය සතු ෙද්පළක්ද; (iii) රජය සතු ෙනොෙව් නම් කවර පදනමක් යටෙත් එය ලබා දී
+
+තිෙබ්ද; යන්න එතුමා ෙමම සභාවට දන්වන්ෙනහිද?
+
+පාර්ලිෙම්න්තුව 3169 3170
+
+[ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා]
+
+(ආ) (i) නිල නිවසක් ලබා දී තිෙබ් නම් එය 2005, 2006 සහ 2007 වර්ෂ තුළ අලුත්වැඩියා කර ෙහෝ වැඩිදියුණු කර තිෙබ්ද; (ii) අලුත්වැඩියා කෙළේ නම් ඉහත එක් එක් වර්ෂවල වැය කළ මුදල ෙකොපමණද; (iii) ඉහත නිවාසෙය් පෙයෝජනය සඳහා 2005, 2006 සහ 2007 වර්ෂ තුළ රජෙය් වියදමින් ගෘහ භාණ්ඩ ෙහෝ ෙවනත් උපකරණ මිල දී ෙගන තිෙබ්ද; (iv) එෙසේ නම් ඒ සඳහා වැය කරන ලද මුදල ෙකොපමණද; යන්න ෙවන් ෙවන් වශෙයන් එතුමා ෙමම සභාවට ඉදිරිපත් කරන්ෙනහිද? (ඇ) (i) ෙමම නිල නිවාසය සඳහා 2005, 2006 සහ 2007 වර්ෂවල එක් එක් මාසය තුළ භාවිත කර ඇති විදුලිය හා ජල ඒකක පමාණය ෙවන් ෙවන් වශෙයන් ෙකොපමණද; (ii) ඒ සඳහා අදාළ අමාතɕාංශය මගින් ඉහත එක් එක් වර්ෂෙය් සහ එක් එක් මාසය තුළ වැය කර ඇති මුදල ෙකොපමණද; යන්න එතුමා සඳහන් කරන්ෙනහිද? (ඈ) ෙනොඑෙසේ නම් ඒ මන්ද? நீதி, சட்டமᾠசீரைமப்ᾗ அைமச்சைரக் ேகட்ட வினா : (அ) (i) நீதி, சட்டமᾠசீரைமப்ᾗ பிரதி அைமச்சᾞக்கு உத்தி ேயாகᾘர்வ விᾌதி ெயான்ᾠ வழங்கப்பட்ᾌள்ளதா என்பைதᾜம், (ii) ஆெமனில், அᾐ அரசாங்க உடைமயா என்பைதᾜம், (iii) அரசாங்க உடைம இல்ைலெயனில், எந்த அᾊப்பைட யில் அவ்விᾌதி வழங்கப்பட்ᾌள்ளெதன்பைதᾜம் அவர் இச்சைபயில் அறிவிப்பாரா? (ஆ) (i) உத்திேயாகᾘர்வ விᾌதிெயான்ᾠ வழங்கப்பட்ᾊᾞப் பின், அᾐ 2005, 2006 மற்ᾠம் 2007 ஆம் ஆண்ᾌகளில் திᾞத்தப்பட்ᾌ அல்லᾐ ேமம்பᾌத்தப் பட்ᾌள்ளதா என்பைதᾜம், (ii) திᾞத்தப்பட்ᾊᾞப்பின், ேமற்பᾊ ஒவ்ெவாᾞ ஆண்ᾊᾤம் ெசலவிடப்பட்ᾌள்ள ெதாைக எவ்வளெவன்பைதᾜம், (iii) ேமற்பᾊ விᾌதியின் பாவைனக்காக 2005, 2006 மற்ᾠம் 2007 ஆம் ஆண்ᾌகளில் அரசாங்கச் ெசலவில் தளபாடங்கள் அல்லᾐ ேவᾠ உபகரணங்கள் ெகாள்வனᾫ ெசய்யப்பட்ᾌள்ளதா என்பைதᾜம், (iv) ஆெமனில், ெசலவிடப்பட்ᾌள்ள ெதாைக எவ்வள ெவன்பைதᾜம் அவர் ெவவ்ேவறாக இச்சைபயில் சமர்ப்பிப்பாரா? (இ) (i) ேமற்பᾊ உத்திேயாகᾘர்வ விᾌதிக்காக 2005, 2006 மற்ᾠம் 2007 ஆம் ஆண்ᾌகளில் பயன்பᾌத்தப் பட்ᾌள்ள மின்சாரம் மற்ᾠம் நீர் அலகுகளின் எண்ணிக்ைக ெவவ்ேவறாக எவ்வளெவன்பைதᾜம், (ii) ேமற்பᾊ ஒவ்ெவாᾞ ஆண்ᾊᾤம் ஒவ்ெவாᾞ மாதᾙம் அரசாங்கத்தினால் ெசலவிடப்பட்ட ெதாைக எவ்வள ெவன்பைதᾜம் அவர் குறிப்பிᾌவாரா?
+
+(ஈ) இன்ேறல், ஏன்?
+
+asked the Minister of Justice and Law Reforms :
+
+(a) Will he inform this House,— (i) whether an official residence has been provided for the Deputy Minister of Justice and Law Reforms;
+
+(ii) if so, whether it is a property owned by the State; and (iii) if it is not owned by the State, the basis on which it has been allocated? (b) Will he submit to this House separately,— (i) if an official residence has been allocated, whether it has been repaired or upgraded during the years 2005, 2006 and 2007; (ii) if it has been repaired, the amount of money spent in each year for that purpose; (iii) whether furniture or any other equipment for the use of the aforesaid official residence, has been purchased at Government expense during the years 2005, 2006 and 2007; and (iv) if so, the amount spent on them? (c) Will he state,— (i) separately, the number of units of electricity and water that have been used at this official residence during each month of the years 2005, 2006 and 2007; and (ii) the amount of money spent by the relevant Ministry for electricity and water used at the above mentioned official residence in each month of the aforesaid years? (d) If not, why?
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ගරු කථානායකතුමනි, අධිකරණ හා නීති පතිසංස්කරණ අමාතɕතුමා ෙවනුෙවන් මා එම පශ්නයට පිළිතුර ෙදනවා.
+
+(අ) (i) නැත. (ii) අදාළ ෙනොෙව්. (iii) අදාළ ෙනොෙව්. (නිල නිවස කුලී දීමනාව රා.ප.ච. 10/2007
+
+පරිදි ලබා ෙද්.) (ආ) (i) අදාළ ෙනොෙව්. (ii) අදාළ ෙනොෙව්. (iii) අදාළ ෙනොෙව්. (iv) අදාළ ෙනොෙව්. (ඇ) (i) අදාළ ෙනොෙව්. (ii) අදාළ ෙනොෙව්. (ඈ) අදාළ ෙනොෙව්.
+
+ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා (மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) ඒ චකෙල්ඛනෙය් තිෙබන්ෙන් දීමනාව ෙදන්ෙන් වියදම් පියවා ගැනීම සඳහාය කියායි. රුපියල් ලක්ෂයක් වැනි මුදලක් ලැෙබන නිසා, සමහර මිල ගණන් ෙවනස් වන නිසා, හැෙමෝටම ලක්ෂයක්
+
+2008 ෙදසැම්බර් 05 3171 3172
+
+ෙනොවන නිසා ඒ මුදල් ලබා ගැනීෙම්දී සෑම ඇමතිවරෙයක්ම රුපියල් ලක්ෂයක්ම ගන්නවාද එෙහම නැත්නම් ඊට වඩා අඩු මුදලක් ගන්නා අයත් ඉන්නවාද කියා දැන ගන්න කැමැතියි. ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ඒ ගැන ෙවනම පශ්නයක් ඇසුෙවොත් -චකෙල්ඛනය ගැන -පැහැදිලි කරන්න පුළුවන්.
+
+ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා (மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) අග විනිශ්චයකාරතුමාටවත් නිල නිවාසයක් සඳහා එවැනි මුදලක් ෙගවන්ෙන් නැහැ.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) කාටද? ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා (மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) අග විනිශ්චයකාරතුමාටවත් ෙගවල් කුලිය සඳහා එතරම් මුදලක් ෙගවන්ෙන් නැහැ.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ෙවන්න පුළුවන්. ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා (மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) එතුමාෙග් තනතුර අගමැතිතුමාෙග් තනතුරට සමාන්තර මට්ටමකයි පිහිටුවා තිෙබන්ෙන්. එතුමාෙග් තනතුර එවැනි මට්ටමක පිහිටුවා තිෙබන සමාන්තර තනතුරක්.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) අග විනිශ්චයකාරතුමාද? ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා (மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) ඔව්. ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) එතුමාට අපි ගරු කරලා එතුමාට ලබා දිය හැකි—[බාධා කිරීම්] ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) ෙගවල් කුලිය ෙගවීෙම්දී ගරු කරන්ෙන් නැහැ. [බාධා කිරීම්] අග විනිශ්චයකාරවරයාට ගරු කරලා රුපියල් විසිහත්දහසයි. ඇමතිතුමාට ගරු කරලා ලක්ෂයයි. [බාධා කිරීම්]
+
+ගාල්ල ෙසෞඛɕ ෛවදɕ නිලධාරි කාර්යාලය : කාර්ය මණ්ඩලය காᾢ சுகாதார மᾞத்ᾐவ அதிகாாி காாியாலயம் : ஊழியர்
+
+குழாம் GALLE MOH OFFICE : STAFF 0761/’08 7. ගරු තිලකරත්න විතානාච්චි මහතා
+
+(மாண்ᾗமிகு திலகரத்ன வித்தானாச்சி) (The Hon. Thilakaratne Withanachchi) ෙසෞඛɕ ආරක්ෂණ හා ෙපෝෂණ අමාතɕතුමාෙගන් ඇසූ පශ්නය,— (1) : (අ) (i) ගාල්ල ෙසෞඛɕ ෛවදɕ නිලධාරි කාර්යාලෙය් වත්මන් කාර්ය මණ්ඩලය සංඛɕාත්මකව ෙකොපමණද; (ii) එම පෙද්ශෙය් ජනගහනය අනුව සිටිය යුතු කාර්ය මණ්ඩලය සංඛɕාත්මකව ෙකොපමණද; (iii) ඒ අනුව සිටිය යුතු කාර්ය මණ්ඩලය හා දැනට සිටින කාර්ය මණ්ඩලය අතර ෙවනස ෙවන් ෙවන් වශෙයන් කවෙර්ද; (iv) කාර්ය මණ්ඩලෙය් ගමන් වියදම් ඇතුළු ෙගවීම් හිඟයකින් ෙතොරව ෙගවා තිෙබ්ද; යන්න එතුමා ෙමම සභාවට ඉදිරිපත් කරන්ෙනහිද? (ආ) (i) ගාල්ල ෙසෞඛɕ ෛවදɕ නිලධාරි (M. O. H.) කාර්යාලයට අයත් ෙකොට්ඨාසය තුළ පිහිටි ගාෙමෝදය ෙසෞඛɕ මධɕස්ථාන සංඛɕාව ෙකොපමණද; (ii) ඒවාෙය් ජලය, විදුලිය, බර කිරීෙම් උපකරණ සහ පැමිෙණන මව්වරුන්ට ආසන පහසුකම් සම්පූර්ණ කර තිෙබ්ද; (iii) වැසිකිලි තැනීෙම්දී උපකෘත ෙයෝජනා කමය යටෙත් අවශɕ වැසිකිළි පහසුකම් සම්පූර්ණ කර තිෙබ්ද; යන්න එතුමා සඳහන් කරන්ෙනහිද? (ඇ) (i) ෙමම කාර්යාලය සතුව වාහන පහසුකම් තිෙබ්ද; (ii) ඒ සඳහා මසකට ලබා ෙදන ඉන්ධන පමාණය
+
+ෙකොපමණද; (iii) එම පමාණය රාජකාරී ගමන් සඳහා පමාණවත්ද; යන්න එතුමා ෙමම සභාවට දන්වන්ෙනහිද? (ඈ) (i) මහජන ෙසෞඛɕ පරීක්ෂකවරුන්ට සහ පවුල් ෙසෞඛɕ
+
+ෙසේවිකාවන්ට නියමිත යතුරු පැදි ලබා දී තිෙබ්ද; (ii) ෙනොඑෙසේ නම් ෙකොපමණ කාල සීමාවක් තුළ ඒවා ලබා
+
+ෙදන්ෙන්ද; යන්න එතුමා සඳහන් කරන්ෙනහිද? (ඉ) ෙනොඑෙසේ නම් ඒ මන්ද? சுகாதார நலத்ᾐைற, ேபாசைண அைமச்சைரக் ேகட்ட வினா : (அ) (i) காᾢ, சுகாதார மᾞத்ᾐவ அதிகாாி காாியாலயத்தில்
+
+தற்ேபாைதய ஊழியர் குழாமின் எண்ணிக்ைக யாᾐ, (ii) அப்பிரேதச சனத்ெதாைகயின்பᾊ இᾞக்க ேவண்ᾊய
+
+ஊழியர்களின் எண்ணிக்ைக யாᾐ, (iii) அதன் பிரகாரம் இᾞக்கேவண்ᾊய ஊழியர்களின் எண்ணிக்ைக மற்ᾠம் தற்ேபாᾐள்ள ஊழியர்களின் எண்ணிக்ைக ஆகியவற்ᾠக்கிைடயிᾤள்ள வித்தியாசம் ெவவ்ேவறாக யாᾐ, (iv) ஊழியர்களின் ேபாக்குவரத்ᾐச் ெசலவினங்கள் அடங்கலாக ெகாᾌப்பனᾫகள் நிᾤைவகேளᾐமின்றி ெசᾤத்தப்பட்ᾌள்ளனவா
+
+என்பைத அவர் இச்சைபக்கு சமர்ப்பிப்பாரா?
+
+පාර්ලිෙම්න්තුව 3173 3174
+
+[ගරු තිලකරත්න විතානාච්චි මහතා]
+
+(ஆ) (i) காᾢ சுகாதார மᾞத்ᾐவ அதிகாாி காாியாலத்ᾐக்குாிய பிாிᾫகளில் அைமந்ᾐள்ள கிராேமாதய சுகாதார நிைலயங்கள் எத்தைன, (ii) அவற்றில் நீர், மின்சாரம், நிைற பார்க்கும் உபகரணங்கள் மற்ᾠம் வᾞைக தᾞம் தாய்மார் கᾦக்கான ஆசன வசதிகள் ᾙᾨைமயாக உள்ளனவா, (iii) மலசலகூடங்கள் அைமக்கும்ேபாᾐ, இத்திட்டத்தின் கீழ் ேதைவப்பᾌம் மலசலகூட வசதிகள் நிைறᾫ ெசய்யப்பட்ᾌள்ளதா
+
+என்பைத அவர் இச்சைபக்கு அறிவிப்பாரா? (இ) (i) இக்காாியாலயத்தில் வாகனவசதிகள் உள்ளனவா, (ii) அதற்ெகன மாதாந்தம் வழங்கப்பᾌம் எாிெபாᾞளின் அளᾫ எவ்வளᾫ, (iii) இᾐ கடைமப் பிரயாணங்கᾦக்குப் ேபாᾐமானதா
+
+என்பைத அவர் இச்சைபக்கு அறிவிப்பாரா? (ஈ) (i) ெபாᾐ சுகாதாரப் பாிேசாதகர்கள் மற்ᾠம் குᾌம்ப சுகாதார ஊழியர்கᾦக்குாிய ேமாட்டார் ைசக்கிள்கள் வழங்கப்பட்ᾌள்ளனவா, (ii) இன்ேறல், எவ்வளᾫ காலத்தில் அைவ வழங்கப்பᾌம்
+
+என்பைத அவர் இச்சைபக்கு அறிவிப்பாரா?
+
+(உ) இன்ேறல், ஏன்? asked the Minister of Healthcare and Nutrition : (a) Will he submit to this House,—
+
+(i) the number of members of the staff of the Galle MOH office at present; (ii) the number of members of the staff that should be there in relation to the population of the aforesaid area; (iii) separately, the difference between the staff that should be there and the present staff; and (iv) whether payments including traveling expenses have been paid to the staff without arrears? (b) Will he state,— (i) the number of Gramodaya Health Centres situated in the area of the Galle MOH office; (ii) whether the facilities such as water, electricity, weighing machines and seating facilities for the mothers who come to these centers have been provided; and (iii) whether necessary toilet facilities have been provided under the aided latrine scheme? (c) Will he inform this House,— (i) whether the aforesaid office has vehicles; (ii) the amount of fuel allocated monthly for the aforesaid vehicles; and (iii) whether that amount is sufficient for traveling related to official work?
+
+(d) Will he state,— (i) whether Public Health Inspectors and Family Health Officers have been given the motor cycles entitled to them; and (ii) if not, the time period within which the aforesaid motor cycles will be given? (e) If not, why?
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා
+
+( மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ගරු කථානායකතුමනි, එම පශ්නයට පිළිතුර සභාගත* කරනවා.
+
+*සභා ෙම්සය මත තබන ලද පිළිතුර * சபாபீடத்தில் ைவக்கப்பட்ட விைட : * Answer tabled (අ) (i) ඇමුණුම බලන්න. (ii) ෙසෞඛɕ ෛවදɕ නිලධාරි කාර්යාලයක ජනගහණය අනුව කාර්ය
+
+මණ්ඩලය ගණනය කිරීෙම්දී තීරණය කරනු ලබන්ෙන් මහජන ෙසෞඛɕ පරීක්ෂකවරුන් හා පවුල් ෙසෞඛɕ ෙසේවා නිලධාරීනීන් සඳහා පමණි. ඒ අනුව ජනගහනය 300 : 01ක් පවුල් ෙසෞඛɕ ෙසේවිකාවන් ද, ජනගහණය 10,000 : 01ක් මහජන ෙසෞඛɕ පරීක්ෂකවරුන් ෙලසද සැලකිය යුතු ෙව්. ගාල්ල ෙසෞඛɕ ෛවදɕ නිලධාරි කාර්යාලයට අයත් ජනගහනය වන්ෙන් 97,269කි. ජනගහණයට අනුව සිටිය යුතු කාර්ය මණ්ඩල ෙසේවක සංඛɕාව පිළිබඳ විස්තර පහත වගුෙව් දක්වා ඇත. තනතුර අනුමත දැනට පුරප්පාඩු ජනගහනය ෙසේවක සිටින සංඛɕාව අනුව සිටිය සංඛɕාව ෙසේවක යුතු කාර්ය සංඛɕාව මණ්ඩලය ෙසෞඛɕ ෛවදɕ නිලධාර් 01 01 - 01 මහජන ෙසෞඛɕ ෙහද 01 01 - 02 ෙසොයුරිය මහජන ෙසෞඛɕ පරීක්ෂක 06 02 04 10 පවුල් ෙසෞඛɕ ෙසේවා 15 15 - 25 නිලධාරිනීන් (iii) තනතුර අනුමත දැනට ජනගහනය ෙවනස ෙසේවක සිටින අනුව සිටිය සංඛɕාව ෙසේවක යුතු කාර්ය සංඛɕාව මණ්ඩලය ෙසෞඛɕ ෛවදɕ නිලධාරී 01 01 01 - මහජන ෙසෞඛɕ ෙහද 01 01 02 01 ෙසොයුරිය මහජන ෙසෞඛɕ පරීක්ෂක 06 02 10 08 පවුල් ෙසෞඛɕ ෙසේවා 15 15 25 10 නිලධාරිනීන් (iv) කාර්ය මන්ඩලෙය් ගමන් වියදම් ගාල්ල නගර සභාෙව් අනුමත නීති
+
+රීතිවලට අනුකූලව හිඟයකින් ෙතොරව ෙගවා ඇත. (ආ) (i) ගාෙමෝදය ෙසෞඛɕ මධɕස්ථාන ගණන 12කි. (ii) ගාෙමෝදය ෙසෞඛɕ මධɕස්ථාන සඳහා, ජලය ළිං මගින් සපයා
+
+තිෙබ්. විදුලිය සපයා ඇත. බර කිරීෙම් උපකරණ, ළදරු බර කිරීෙම් තරාදි, මවුවරුන් බර කිරීෙම් තරාදි,01 බැගින් ලබා දී තිෙබ්. එක් වරකට මවුවරුන් 40ක් 50ක් කැඳවනු ලබන අතර, ඒ සඳහා අවශɕ ආසන පහසුකම් සපයා තිෙබ්. (iii) වැසිකිළි පහසුකම් ලබා දී ඇති පවුල් සංඛɕාව 200කි. යුනිෙසෆ්
+
+ආධාර යටෙත්. (ඇ) (i) නගර සභාෙව් වාහන සංචිතෙයන් රාජකාරි අවශɕතාව මත වාහන
+
+සපයා ගනු ලැෙබ්.
+
+2008 ෙදසැම්බර් 05 3175 3176
+
+3 — PL 003633 — (2009/01)
+
+(ii) ඉන්ධන වියදම් කටයුතු වාහන සංචිතය අයත් නාගරික ඉංජිෙන්රු ෙදපාර්තෙම්න්තුව විසින් ෙගවනු ලැෙබ්. (iii) ඔව්. (ඈ) (i) ෙමහි ෙසේවෙය් නියුතු මහජන ෙසෞඛɕ පරීක්ෂකවරුන් 02කි. මහජන ෙසෞඛɕ පරීක්ෂකවරුන් එක් අෙයකුට යතුරු පැදි ලබා දී ඇති අතර, තව ෙසෞඛɕ පරීක්ෂකවරෙයකුට යතුරු පැදියක් ලබා දීමට ඇත. ෙමහි ෙසේවෙය් නියුතු පවුල් ෙසෞඛɕ ෙසේවිකාවන් සංඛɕාව 15කි. පවුල් ෙසෞඛɕ ෙසේවිකාවන් 07 ෙදෙනකුට යතුරු පැදි ලබා දී ඇති අතර, තව 08 ෙදෙනකුට යතුරු පැදි ලබා දීමට නියමිතය. (ii) අෙප්ක්ෂිත යතුරු පැදි සංඛɕාව ලබා දීමට යුනිෙසෆ් ආධාර හා ෙලෝක බැංකු ආධාර යටෙත් දැනටමත් ෙටන්ඩර් කැඳවා ඇති අතර, ෙදසැම්බර් අවසාන වීමට පථම ලබා දීමට අෙප්ක්ෂිතය. (ඉ) පැන ෙනොනඟී. ගාල්ල ෙසෞඛɕ ෛවදɕ නිලධාරි කාර්යාලය ඇමුණුම ෙසේවක සංඛɕා විස්තරය තනතුර අනුමත දැනට ෙවනස ෙසේවක සිටින සංඛɕාව ෙසේවක සංඛɕාව 1. ෙසෞඛɕ ෛවදɕ නිලධාරි 01 01 - 2. ලියාපදිංචි ෛවදɕ නිලධාරි 01 01 - 3. කළමනාකරණ සහකාර 03 03 - 4. මහජන ෙසෞඛɕ ෙහදි ෙසොයුරි 01 01 - 5. පධාන මහජන ෙසෞඛɕ පරීක්ෂක 01 01 - 6. මහජන ෙසෞඛɕ පරීක්ෂක 06 02 04 (2008.10.10 දින සිට පුරප්පාඩු වී පවතී. 7. පවුල් ෙසෞඛɕ ෙසේවා නිලධාරි 15 15 - 8. වැඩසටහන් හා සැලසුම් සහකාර 01 01 - 9. කාර්යාල කාර්ය සහායක 01 01 - 10. කාර්යාල කම්කරු 01 01 - 11. නිරීක්ෂක 05 05 - 12. නිරීක්ෂක (ෙකොන්තාත් පදනම මත) - 01 - 13. කම්කරු 50 50 - 14. කම්කරු (ආෙද්ශක) - 06 - 15. පාෙද්ශීය පරිසර නිලධාරි 01 01 - 16. ආයුර්ෙව්ද ෛවදɕ නිලධාරි 01 01 - 17. ෛභසර්ජක 01 01 - 18. ඖෂධ සංෙයෝජක 01 01 - 19. ආයුර්ෙව්ද කම්කරු 01 01 - 20. සුසානාගාර භාරකරු 01 01 - 21. වධකාගාර භාරකරු 01 01 - 22. රියැදුරු 02 02 -
+
+ගරු තිලකරත්න විතානාච්චි මහතා (மாண்ᾗமிகு திலகரத்ன வித்தானாச்சி) (The Hon. Thilakaratne Withanachchi) ගරු ඇමතිතුමනි, පශ්නෙය් (ඈ) ෙකොටසට අදාළ උත්තරය කියවන්න පුළුවන්ද?.
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා
+
+( மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) (i) ෙමහි ෙසේවෙය් නියුතු මහජන ෙසෞඛɕ පරීක්ෂකවරුන් 02කි. මහජන ෙසෞඛɕ පරීක්ෂකවරුන් එක් අෙයකුට යතුරු පැදි ලබා දී ඇති අතර, තව ෙසෞඛɕ පරීක්ෂකවරෙයකුට යතුරු පැදියක් ලබා දීමට ඇත. ෙමහි ෙසේවෙය් නියුතු පවුල් ෙසෞඛɕ ෙසේවිකාවන් සංඛɕාව 15කි. පවුල් ෙසෞඛɕ ෙසේවිකාවන් හත් ෙදෙනකුට යතුරු පැදි ලබා දී ඇති අතර, තව අට ෙදෙනකුට යතුරු පැදි ලබා දීමට නියමිතය.
+
+(ii) අෙප්ක්ෂිත යතුරු පැදි සංඛɕාව ලබා දීමට යුනිෙසෆ් ආධාර හා ෙලෝක බැංකු ආධාර යටෙත් දැනටමත් ෙටන්ඩර් කැඳවා ඇති අතර එය අවසන් වූ වහාම ඔවුන්ටද යතුරු පැදි ලබා ෙදනු ඇත.
+
+ගරු තිලකරත්න විතානාච්චි මහතා (மாண்ᾗமிகு திலகரத்ன வித்தானாச்சி) (The Hon. Thilakaratne Withanachchi) ෙබොෙහොම ස්තුතියි.
+
+හබරාදූව ෙසෞඛɕ ෛවදɕ නිලධාරී
+
+කාර්යාලය : කාර්ය මණ්ඩලය ஹபராᾐவ சுகாதார மᾞத்ᾐவ அதிகாாி காாியாலயம் :
+
+ஊழியர் குழாம் HABARADUWA MOH OFFICE : STAFF
+
+0762/’08 8. ගරු තිලකරත්න විතානාච්චි මහතා
+
+(மாண்ᾗமிகு திலகரத்ன வித்தானாச்சி) (The Hon. Thilakaratne Withanachchi) ෙසෞඛɕ ආරක්ෂණ හා ෙපෝෂණ අමාතɕතුමාෙගන් ඇසූ පශ්නය - (1) :
+
+(අ) (i) ගාල්ල, හබරාදූව ෙසෞඛɕ ෛවදɕ නිලධාරි කාර්යාලෙය්
+
+වත්මන් කාර්ය මණ්ඩලය සංඛɕාත්මකව ෙකොපමණද; (ii) එම පෙද්ශෙය් ජනගහනය අනුව සිටිය යුතු කාර්ය
+
+මණ්ඩලය සංඛɕාත්මකව ෙකොපමණද; (iii) ඒ අනුව සිටිය යුතු කාර්ය මණ්ඩලය හා දැනට සිටින
+
+කාර්ය මණ්ඩලය අතර ෙවනස ෙවන් ෙවන් වශෙයන් කවෙර්ද; (iv) කාර්ය මණ්ඩලෙය් ගමන් වියදම් ඇතුළු ෙගවීම් හිඟයකින්
+
+ෙතොරව ෙගවා තිෙබ්ද; යන්න එතුමා ෙමම සභාවට ඉදිරිපත් කරන්ෙනහිද? (ආ) (i) හබරාදූව ෙසෞඛɕ ෛවදɕ නිලධාරි (M. O. H.)
+
+කාර්යාලයට අයත් ෙකොට්ඨාසය තුළ පිහිටි ගාෙමෝදය ෙසෞඛɕ මධɕස්ථාන සංඛɕාව ෙකොපමණද ; (ii) ඒවාෙය් ජලය, විදුලිය, බර කිරීෙම් උපකරණ සහ
+
+පැමිෙණන මව්වරුන්ට ආසන පහසුකම් සම්පූර්ණ කර තිෙබ්ද; (iii) වැසිකිළි තැනීෙම්දී උපකෘත ෙයෝජනා කමය යටෙත්
+
+අවශɕ වැසිකිළි පහසුකම් සම්පූර්ණ කර තිෙබ්ද; යන්න එතුමා සඳහන් කරන්ෙනහිද? (ඇ) (i) ෙමම කාර්යාලය සතුව වාහන පහසුකම් තිෙබ්ද; (ii) ඒ සඳහා මසකට ලබා ෙදන ඉන්ධන පමාණය ෙකොපමණද; (iii) එම පමාණය රාජකාරි ගමන් සඳහා පමාණවත්ද; යන්න එතුමා ෙමම සභාවට දන්වන්ෙනහිද? (ඈ) (i) මහජන ෙසෞඛɕ පරීක්ෂකවරුන්ට සහ පවුල් ෙසෞඛɕ
+
+ෙසේවිකාවන්ට නියමිත යතුරු පැදි ලබා දී තිෙබ්ද; (ii) ෙනොඑෙසේ නම් ෙකොපමණ කාල සීමාවක් තුළ ඒවා ලබා
+
+ෙදන්ෙන් ද; යන්න එතුමා සඳහන් කරන්ෙනහිද? (ඉ) ෙනොඑෙසේ නම් ඒ මන්ද? சுகாதார நலத்ᾐைற, ேபாசைண அைமச்சைரக் ேகட்ட வினா : (அ) (i) காᾢ, ஹபராᾐவ சுகாதார மᾞத்ᾐவ அதிகாாி காாியாலயத்தில் தற்ேபாைதய ஊழியர் குழாமின் எண்ணிக்ைக யாᾐ,
+
+පාර්ලිෙම්න්තුව 3177 3178
+
+(ii) அப்பிரேதச சனத்ெதாைகயின்பᾊ இᾞக்க ேவண்ᾊய ஊழியர்களின் எண்ணிக்ைக யாᾐ, (iii) அதன் பிரகாரம் இᾞக்கேவண்ᾊய ஊழியர்களின் எண்ணிக்ைக மற்ᾠம் தற்ேபாᾐள்ள ஊழியர்களின் எண்ணிக்ைக ஆகியவற்ᾠக்கிைடயிᾤள்ள வித்தியாசம் ெவவ்ேவறாக யாᾐ, (iv) ஊழியர்களின் ேபாக்குவரத்ᾐச் ெசலவினங்கள் அடங் கலாக ெகாᾌப்பனᾫகள் நிᾤைவகேளᾐமின்றி ெசᾤத்தப்பட்ᾌள்ளனவா
+
+என்பைத அவர் இச்சைபக்கு சமர்பிப்பாரா? (ஆ) (i) ஹபராᾐவ சுகாதார மᾞத்ᾐவ அதிகாாி காாியால யத்ᾐக்குாிய பிாிᾫகளில் அைமந்ᾐள்ள கிராேமாதய சுகாதார நிைலயங்கள் எத்தைன, (ii) அவற்றில் நீர், மின்சாரம், நிைற பார்க்கும் உபகரணங் கள் மற்ᾠம் வᾞைக தᾞம் தாய்மார்கᾦக்கான ஆசன வசதிகள் ᾙᾨைமயாக உள்ளனவா, (iii) மலசலகூடங்கள் அைமக்கும்ேபாᾐ, இத்திட்டத்தின் கீழ் ேதைவப்பᾌம் மலசலகூட வசதிகள் நிைறᾫ ெசய்யப்பட்ᾌள்ளதா
+
+என்பைத அவர் இச்சைபக்கு அறிவிப்பாரா? (இ) (i) இக்காாியாலயத்தில் வாகனவசதிகள் உள்ளனவா, (ii) அதற்ெகன மாதாந்தம் வழங்கப்பᾌம் எாிெபாᾞளின் அளᾫ எவ்வளᾫ, (iii) இᾐ கடைமப் பிரயாணங்கᾦக்குப் ேபாᾐமானதா
+
+என்பைத அவர் இச்சைபக்கு அறிவிப்பாரா? (ஈ) (i) ெபாᾐ சுகாதாரப் பாிேசாதகர்கள் மற்ᾠம் குᾌம்ப சுகாதார ஊழியர்கᾦக்குாிய ேமாட்டார் ைசக்கிள்கள் வழங்கப்பட்ᾌள்ளனவா, (ii) இன்ேறல், எவ்வளᾫ காலத்தில் அைவ வழங்கப்பᾌம்
+
+என்பைத அவர் இச்சைபக்கு அறிவிப்பாரா?
+
+(உ) இன்ேறல், ஏன்? asked the Minister of Healthcare and Nutrition: (a) Will he submit to this House— (i) the number of members of the staff of the Habaraduwa MOH office in Galle at present; (ii) the number of members of the staff that should be there in relation to the population of the aforesaid area; (iii) separately, the difference between the staff that should be there and the present staff; and (iv) whether payments including traveling expenses have been paid to the staff without arrears? (b) Will he state— (i) the number of Gramodaya Health Centres situated in the area of the Habaraduwa MOH office; (ii) whether the facilities such as water, electricity, weighing machines and seating facilities for the mothers who come to these centres have been provided; and
+
+(iii) whether necessary toilet facilities have been provided under the aided latrine scheme? (c) Will he inform this House— (i) whether the aforesaid office has vehicles; (ii) the amount of fuel allocated monthly for the aforesaid vehicles; and (iii) whether that amount is sufficient for traveling related to official work? (d) Will he state— (i) whether Public Health Inspectors and Family Health Officers have been given the motor cycles entitled to them; and (ii) if not, the time period within which the aforesaid motor cycles will be given? (e) If not, why?
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා ( மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva)
+
+ගරු කථානායකතුමනි, මා එම පශ්නයට පිළිතුර සභාගත* කරනවා.
+
+*සභා ෙම්සය මත තබන ලද පිළිතුර : *சபாபீடத்தில் ைவக்கப்பட்ட விைட : *Answer tabled : (අ) (i) ඇමුණුම බලන්න. (ii) ෙසෞඛɕ ෛවදɕ නිලධාරී කාර්යාලයක ජනගහනය අනුව කාර්ය
+
+මණ්ඩලය ගණනය කිරීෙම්දී තීරණය කරනු ලබන්ෙන් මහජන ෙසෞඛɕ පරීක්ෂකවරුන් හා පවුල් ෙසෞඛɕ ෙසේවා නිලධාරීන් සඳහා පමණි. ඒ අනුව ජනගහනය 3000 : 01ක් පවුල් ෙසෞඛɕ ෙසේවිකාවන් ද ජනගහනය 10,000 : 01ක් මහජන ෙසෞඛɕ පරීක්ෂකවරුන් ෙලසද සැලකිය යුතු ෙව්. හබරාදූව ෙසෞඛɕ ෛවදɕ නිලධාරී කාර්යාලයට අයත් ජනගහනය වන්ෙන් 63,106කි. (iii) ජනගහනයට අනුව සිටිය යුතු කාර්ය මණ්ඩල ෙසේවක සංඛɕාව
+
+පිළිබඳ ෙයෝජනාව දකුණු පළාත් ෙසෞඛɕ අමාතɕාංශය දැන් සකස් කරමින් පවතී. භාණ්ඩාගාරෙය් සහ කළමනාකරණ ෙසේවා ෙදපාර්තෙම්න්තුවට ෙයොමු කර අනුමැතිය ලැබීෙමන් අනතුරුව ෙමම නව පත් කිරීම් කරනු ලැෙබ්. තනතුර අනුමත දැනට සිටින ෙවනස ෙසේවක සංඛɕාව ෙසේවක සංඛɕාව මහජන ෙසෞඛɕ 04 06 02 පරීක්ෂක පවුල් ෙසෞඛɕ 19 20 01 ෙසේවා නිලධාරීන් (iv) කාර්ය මණ්ඩලෙය් ගමන් වියදම් 2008 ජුනි මස දක්වා ෙගවා
+
+ඇති අතර, අෙනක් මාස 04ක ගමන් වියදම් ෙගවීම සඳහා ෙනොවැම්බර් මස පතිපාදන අෙප්ක්ෂිත බැවින් 2008 ෙදසැම්බර් මස ෙගවීමට කටයුතු කරමි. (ආ) (i) ගාෙමෝදය ෙසෞඛɕ මධɕස්ථාන ගණන 03කි. මීට අමතරව පහත සඳහන් ළමා හා මාතෘ සායන ද පැවැත්ෙව්. 1. කතළුව සායනය 2. තල්ෙප් සායනය 3. හබරාදූව ෙසෞ. ෛව. නි. කාර්යාල සායනය (2ක් පවතී) 4. උණවටුන ෙරෝහල් සායනය 5. හබරාදූව සායනය 6. අහංගම සායනය
+
+[ගරු තිලකරත්න විතානාච්චි මහතා]
+
+2008 ෙදසැම්බර් 05 3179 3180
+
+(ii) ගෙමෝදය ෙසෞඛɕ මධɕස්ථාන සඳහා, ජලය ළිං මඟින් සපයා තිෙබ්. විදුලිය සපයා ඇත. බර කිරීෙම් උපකරණ, ළදරු බර කිරීෙම් තරාදි, මව්වරුන් බර කිරීෙම් තරාදි 01 බැගින් ලබා දී තිෙබ්. එක් වරකට මවුවරුන් 40ක් 50ක් කැඳවනු ලබන අතර, ඒ සඳහා අවශɕ ආසන පහසුකම් සපයා තිෙබ්. (iii) වැසිකිළි පහසුකම් ලබා දී ඇති පවුල් සංඛɕාව 90කි. යුනිෙසෆ් ආධාර ඉල්ලුම් කර ඇති අතර, එමගින් ෙයෝජිත වැසිකිළි 368 සම්පූර්ණ කිරීමට බලාෙපොෙරොත්තු ෙව්. (ඇ) (i) ෙමම කාර්යාලය සඳහා අංක SPGC - 9647 දරන Cab රථය ලබා දී තිෙබ්. (ii) ඉන්ධන සීමාවකින් ෙතොරව ලබා ෙද්. (iii) ඔව්. (ඇ) (i) ෙමහි ෙසේවෙය් නියුතු මහජන ෙසෞඛɕ පරීක්ෂකවරුන් 05කි. මහජන ෙසෞඛɕ පරීක්ෂකවරුන් 05 ෙදෙනකුට යතුරු පැදි ලබා දී ඇති අතර, තව ෙසෞඛɕ පරීක්ෂකවරු එක්අෙයකුට යතුරු පැදියක් ලබා දීමට ඇත. ෙමහි ෙසේවෙය් නියුතු පවුල් ෙසෞඛɕ ෙසේවිකාවන් සංඛɕාව 20කි. පවුල් ෙසෞඛɕ ෙසේවිකාවන් 16 ෙදෙනකුට යතුරු පැදි ලබා දී ඇති අතර , තව සිව් ෙදෙනකුට යතුරු පැදි ලබා දීමට නියමිතය. (ii) අෙප්ක්ෂිත යතුරු පැදි සංඛɕාව ලබාදීමට යුනිෙසෆ් ආධාර හා ෙලෝක බැංකු ආධාර යටෙත් දැනටමත් ෙටන්ඩර් කැඳවා ඇති අතර ෙදසැම්බර් අවසාන වීමට පථම ලබා දීමට අෙප්ක්ෂිතය. (ඉ) පැන ෙනොනඟී. ඇමුණුම හබරාදූව ෙසෞඛɕ ෛවදɕ නිලධාරි කාර්යාලය ෙසේවක සංඛɕා විස්තරය තනතුර අනුමත ෙසේවක දැනට සිටින ෙවනස සංඛɕාව ෙසේවක සංඛɕාව 1. ෙසෞඛɕ ෛවදɕ නිලධාරි 01 - 01 2. අතිෙර්ක ෙසෞඛɕ ෛවදɕ 01 01 - නිලධාරි 3. කළමනාකරණ සහකාර 01 01 - 4. මහජන ෙසෞඛɕ ෙහදි ෙසොයුරි 01 - 01 5. පරිපාලන මහජන ෙසෞඛɕ 01 01 - පරීක්ෂක 6. මහජන ෙසෞඛɕ පරීක්ෂක 04 06 02 7. පරිපාලන පවුල් ෙසෞඛɕ ෙසේවා 01 - 01 නිලධාරි 8. පවුල් ෙසෞඛɕ ෙසේවා නිලධාරි 19 20 01 9. වැඩ සටහන් හා සැලසුම් සහකාර 01 01 - 10. කම්කරු සාමානɕ 01 - 01 11. කම්කරු සනීපාරක්ෂක 01 02 01 12. රියැදුරු 01 01 - 13. පාසල් දන්ත චිකිත්සක 02 02 - 14. දන්ත කම්කරු 02 02 - 15. මුරකරු 01 - 01 ගරු කථානායකතුමනි, එම පශ්නයටත් කලින් වාෙග්ම උත්තරයක් තමයි දීලා තිෙබන්ෙන්. යතුරුපැදි නැති පවුල් ෙසෞඛɕ ෙසේවිකාවන් 20ක් ඉන්නවා. එයින් දහසය ෙදනකුට යතුරු පැදි ලබා දී තිෙබනවා. ඔබතුමාට ෙපෙනනවා ඇති, ලංකාෙව් සිටින 8,000කට අධික පවුල් ෙසෞඛɕ ෙසේවිකාවන්ෙගන් සියයට 90කට විතර අෙප් රජෙයන් යතුරුපැදි ලබා දී තිෙබන බව. මහජන ෙසෞඛɕ පරීක්ෂකවරු පස් ෙදෙනක් ඉන්නවා. එයින් හතර ෙද නකුටම යතුරුපැදි ලබා දී තිෙබනවා. ඉතිරි ඒවාත් ලබා ෙදනවා. ගරු තිලකරත්න විතානාච්චි මහතා (மாண்ᾗமிகு திலகரத்ன வித்தானாச்சி) (The Hon. Thilakaratne Withanachchi) ගරු ඇමතිතුමනි, ඒ ගැන අපි ස්තුතිවන්ත ෙවනවා. ඉතිරි පිරිසටත් ලබා ෙදන්නය කියන ඉල්ලීම තමයි අපි කරන්ෙන්. සමස්ත රෙට්ම තත්ත්වය ඒකද?
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva)
+
+ඔව්. සමස්ත රෙට්ම තත්ත්වය එෙහමයි. ගරු තිලකරත්න විතානාච්චි මහතා (மாண்ᾗமிகு திலகரத்ன வித்தானாச்சி) (The Hon. Thilakaratne Withanachchi) ඉතිරි පිරිසටත් කඩිනමින් ලබා ෙදන්නය කියන ඉල්ලීම කරනවා.
+
+ඉමදූව ෙසෞඛɕ ෛවදɕ නිලධාරි කාර්යාලය :
+
+කාර්ය මණ්ඩලය இமᾑவ சுகாதார மᾞத்ᾐவ அதிகாாி காாியாலயம் :
+
+ஊழியர் குழாம் IMADUWA MOH OFFICE : STAFF
+
+0763/’08 9. ගරු තිලකරත්න විතානාච්චි මහතා (மாண்ᾗமிகு திலகரத்ன வித்தானாச்சி) (The Hon. Thilakaratne Withanachchi)
+
+ෙසෞඛɕ ආරක්ෂණ හා ෙපෝෂණ අමාතɕතුමාෙගන් ඇසූ පශ්නය - (1) : (අ) (i) ගාල්ල, ඉමදූව ෙසෞඛɕ ෛවදɕ නිලධාරි කාර්යාලෙය්
+
+වත්මන් කාර්ය මණ්ඩලය සංඛɕාත්මකව ෙකොපමණද; (ii) එම පෙද්ශෙය් ජනගහනය අනුව සිටිය යුතු කාර්ය
+
+මණ්ඩලය සංඛɕාත්මකව ෙකොපමණද; (iii) ඒ අනුව සිටිය යුතු කාර්ය මණ්ඩලය හා දැනට සිටින
+
+කාර්ය මණ්ඩලය අතර ෙවනස ෙවන් ෙවන් වශෙයන් කවෙර්ද; (iv) කාර්ය මණ්ඩලෙය් ගමන් වියදම් ඇතුළු ෙගවීම් හිඟයකින්
+
+ෙතොරව ෙගවා තිෙබ්ද; යන්න එතුමා ෙමම සභාවට ඉදිරිපත් කරන්ෙනහිද? (ආ) (i) ඉමදූව ෙසෞඛɕ ෛවදɕ නිලධාරි (M. O. H.) කාර්යාලයට
+
+අයත් ෙකොට්ඨාසය තුළ පිහිටි ගාෙමෝදය ෙසෞඛɕ මධɕස්ථාන සංඛɕාව ෙකොපමණද; (ii) ඒවාෙය් ජලය, විදුලිය, බර කිරීෙම් උපකරණ සහ
+
+පැමිෙණන මව්වරුන්ට ආසන පහසුකම් සම්පූර්ණ කර තිෙබ්ද; (iii) වැසිකිළි තැනීෙම්දී උපකෘත ෙයෝජනා කමය යටෙත්
+
+අවශɕ වැසිකිළි පහසුකම් සම්පූර්ණ කර තිෙබ්ද; යන්න එතුමා සඳහන් කරන්ෙනහිද? (ඇ) (i) ෙමම කාර්යාලය සතුව වාහන පහසුකම් තිෙබ්ද; (ii) ඒ සඳහා මසකට ලබා ෙදන ඉන්ධන පමාණය
+
+ෙකොපමණද; (iii) එම පමාණය රාජකාරී ගමන් සඳහා පමාණවත්ද; යන්න එතුමා ෙමම සභාවට දන්වන්ෙනහිද? (ඈ) (i) මහජන ෙසෞඛɕ පරීක්ෂකවරුන්ට සහ පවුල් ෙසෞඛɕ
+
+ෙසේවිකාවන්ට නියමිත යතුරු පැදි ලබා දී තිෙබ්ද; (ii) ෙනොඑෙසේ නම් ෙකොපමණ කාල සීමාවක් තුළ ඒවා ලබා
+
+ෙදන්ෙන්ද; යන්න එතුමා සඳහන් කරන්ෙනහිද? (ඉ) ෙනොඑෙසේ නම් ඒ මන්ද?
+
+පාර්ලිෙම්න්තුව 3181 3182
+
+சுகாதார நலத்ᾐைற, ேபாசைண அைமச்சைரக் ேகட்ட வினா : (அ) (i) காᾢ, இமᾑவ சுகாதார மᾞத்ᾐவ காாியாலயத்தில் தற்ேபாைதய ஊழியர் குழாமின் எண்ணிக் ைக யாᾐ, (ii) அப்பிரேதச சனத்ெதாைகயின்பᾊ இᾞக்க ேவண்ᾊய ஊழியர்களின் எண்ணிக்ைக யாᾐ, (iii) அதன் பிரகாரம் இᾞக்கேவண்ᾊய ஊழியர்களின் எண்ணிக்ைக மற்ᾠம் தற்ேபாᾐள்ள ஊழியர்களின் எண்ணிக்ைக ஆகியவற்ᾠக்கிைடயிᾤள்ள வித்தியாசம் ெவவ்ேவறாக யாᾐ, (iv) ஊழியர்களின் ேபாக்குவரத்ᾐச் ெசலவினங்கள் அடங்கலாக ெகாᾌப்பனᾫகள் நிᾤைவகேளᾐமின்றி ெசᾤத்தப்பட்ᾌள்ளனவா என்பைத அவர் இச்சைபக்கு சமர்ப்பிப்பாரா? (ஆ) (i) இமᾑவ சுகாதார மᾞத்ᾐவ அதிகாாி காாியாலத்ᾐக் குாிய பிாிᾫகளில் அைமந்ᾐள்ள கிராேமாதய சுகாதார நிைலயங்கள் எத்தைன, (ii) அவற்றில் நீர், மின்சாரம், நிைற பார்க்கும் உபகரணங்கள் மற்ᾠம் வᾞைக தᾞம் தாய்மார் கᾦக்கான ஆசன வசதிகள் ᾙᾨைமயாக உள்ளனவா, (iii) மலசலகூடங்கள் அைமக்கும்ேபாᾐ, இத்திட்டத்தின் கீழ் ேதைவப்பᾌம் மலசலகூட வசதிகள் நிைறᾫ ெசய்யப்பட்ᾌள்ளதா என்பைத அவர் இச்சைபக்கு அறிவிப்பாரா? (இ) (i) இக்காாியாலயத்தில் வாகனவசதிகள் உள்ளனவா, (ii) அதற்ெகன மாதாந்தம் வழங்கப்பᾌம் எாிெபாᾞளின் அளᾫ எவ்வளᾫ, (iii) இᾐ கடைமப் பிரயாணங்கᾦக்குப் ேபாᾐமானதா என்பைத அவர் இச்சைபக்கு அறிவிப்பாரா? (ஈ) (i) ெபாᾐ சுகாதாரப் பாிேசாதகர்கள் மற்ᾠம் குᾌம்ப சுகாதார ஊழியர்கᾦக் குாிய ேமாட்டார் ைசக்கிள்கள் வழங்கப்பட்ᾌள்ளனவா, (ii) இன்ேறல், எவ்வளᾫ காலத்தில் அைவ வழங்கப்பᾌம் என்பைத அவர் இச்சைபக்கு அறிவிப்பாரா? (உ) இன்ேறல், ஏன்? asked the Minister of Healthcare and Nutrition,— : (a) Will he submit to this House,— (i) the number of members of the staff of the Imaduwa MOH office in Galle at present; (ii) the number of members of the staff that should be there in relation to the population of the aforesaid area; (iii) separately, the difference between the staff that should be there and the present staff; and (iv) whether payments including traveling expenses have been paid to the staff without arrears? (b) Will he state,— (i) the number of Gramodaya Health Centres situated in the area of the Imaduwa MOH office;
+
+(ii) whether the facilities such as water, electricity, weighing machines and seating facilities for the mothers who come to these centers have been provided; and (iii) whether necessary toilet facilities have been provided under the aided latrine scheme? (c) Will he inform this House,— (i) whether the aforesaid office has vehicles; (ii) the amount of fuel allocated monthly for the aforesaid vehicles; and (iii) whether that amount is sufficient for traveling related to official work? (d) Will he state,— (i) whether Public Health Inspectors and Family Health Officers have been given the motor cycles entitled to them; and (ii) if not, the time period within which the aforesaid motor cycles will be given? (e) If not, why?
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva)
+
+ගරු කථානායකතුමනි, මා එම පශ්නයට පිළිතුර සභාගත* කරනවා.
+
+* සභා ෙම්සය මත තබන ලද පිළිතුර : * சபாபீடத்தில் ைவக்கப்பட்ட விைட : * Answer tabled : (අ) (i) ඇමුණුම බලන්න. (ii) ෙසෞඛɕ ෛවදɕ නිලධාරි කාර්යාලයක ජනගහණය අනුව කාර්ය
+
+මණ්ඩලය ගණනය කිරීෙම්දී තීරණය කරනු ලබන්ෙන් මහජන ෙසෞඛɕ පරීක්ෂකවරුන් හා පවුල් ෙසෞඛɕ ෙසේවා නිලධාරිනින් සඳහා පමණි. ඒ අනුව ජනගහණය 3000:1ක් පවුල් ෙසෞඛɕ ෙසේවිකාවන්ද ජනගහණය 10,000:1ක් මහජන ෙසෞඛɕ පරීක්ෂකවරුන් ෙලසද සැලකිය යුතු ෙව්. ඉමදූව ෙසෞඛɕ ෛවදɕ නිලධාරී කාර්යාලයට අයත් ජනගහණය වන්ෙන් 45155කි. ජනගහණයට අනුව සිටිය යුතු කාර්ය මණ්ඩල ෙසේවක සංඛɕාව
+
+පිළිබඳ ෙයෝජනාව දකුණු පළාත් ෙසෞඛɕ අමාතɕාංශය දැන් සකස් කරමින් පවතී. භාණ්ඩාගාරෙය් සහ කළමනාකරණ ෙසේවා ෙදපාර්තෙම්න්තුවට ෙයොමු කර අනුමැතිය ලැබීෙමන් අනතුරුව ෙමම නව පත් කිරීම් කරනු ලැෙබ්. (iii) තනතුර අනුමත දැනට ෙවනස ෙසේවක සිටින සංඛɕාව ෙසේවක සංඛɕාව මහජන ෙසෞඛɕ පරීක්ෂක 04 03 01 පවුල් ෙසෞඛɕ ෙසේවා නිලධාරිනීන් 16 16 - (iv) කාර්ය මණ්ඩලෙය් ගමන් වියදම් 2008 ජූනි මස දක්වා ෙගවා ඇති
+
+අතර, අෙනක් මාස 04ක ගමන් වියදම් ෙගවීම සඳහා ෙනොවැම්බර් මස පතිපාදන අෙප්ක්ෂිත බැවින් 2008 ෙදසැම්බර් මස ෙගවීමට කටයුතු කරමි. (ආ) (i) ගාෙමෝදය ෙසෞඛɕ මධɕස්ථාන ගණන 05කි. (විස්තර ලබා ගත
+
+යුතුය.) මීට අමතරව පහත සඳහන් ළමා හා මාතෘ සායන ද පැවැත්ෙව්. පාන්තාලිය පාෙද්ශීය සභා උප කාර්යාලීය සායනය කහඳ පාෙද්ශීය සභා සායනය
+
+[ගරු තිලකරත්න විතානාච්චි මහතා]
+
+2008 ෙදසැම්බර් 05 3183 3184
+
+(ii) ගාෙමෝදය ෙසෞඛɕ මධɕස්ථාන සඳහා, ජලය ළිං මඟින් සපයා තිෙබ්. විදුලිය සපයා ඇත. බර කිරීෙම් උපකරණ, ළදරු බර කිරීෙම් තරාදි, මවුවරුන් බර කිරීෙම් තරාදි 01 බැගින් ලබා දී තිෙබ්. එක් වරකට මවුවරුන් 40ක් 50ක් කැඳවනු ලබන අතර ඒ සඳහා අවශɕ ආසන පහසුකම් සපයා තිෙබ්. (iii) වැසිකිළි පහසුකම් ලබා දී ඇති පවුල් සංඛɕාව 30කි. යුනිෙසෆ් ආධාර ඉල්ලුම් කර ඇති අතර, එමඟින් ෙයෝජිත වැසිකිළි 300ක් සම්පූර්ණ කිරීමට බලාෙපොෙරොත්තු ෙව්. (ඇ) (i) ෙමම කාර්යාලය සඳහා අංක 56-6230 දරන Double Cab රථය ලබා දී තිෙබ්. (ii) ඉන්ධන සීමාවකින් ෙතොරව ලබා ෙද්.
+
+(iii) ඔව්. (ඈ) (i) ෙමහි ෙසේවෙය් නියුතු මහජන ෙසෞඛɕ පරීක්ෂකවරුන් 03කි. මහජන ෙසෞඛɕ පරීක්ෂකවරුන් ෙදෙදෙනකුට යතුරු පැදි ලබා දී ඇති අතර, තව ෙසෞඛɕ පරීක්ෂවරෙයකුට යතුරු පැදියක් ලබා දීමට නියමිතව ඇත. ෙමහි ෙසේවෙය් නියුතු පවුල් ෙසෞඛɕ ෙසේවිකාවන් සංඛɕාව 16කි. පවුල් ෙසෞඛɕ ෙසේවිකාවන් 05 ෙදෙනකුට යතුරු පැදි ලබා දී ඇති අතර, තව 11 ෙදෙනකුට යතුරු පැදි ලබා දීමට නියමිතය. (ii) අෙප්ක්ෂිත යතුරු පැදි සංඛɕාව ලබා දීමට යුනිෙසෆ් ආධාර හා ෙලෝක බැංකු ආධාර යටෙත් දැනටමත් ෙටන්ඩර් කැඳවා ඇති අතර, ෙදසැම්බර් අවසාන වීමට පථම ලබා දීමට අෙප්ක්ෂිතය. (ඉ) පැන ෙනොනඟී. ඉමදූව ෙසෞඛɕ ෛවදɕ නිලධාරි කාර්යාලය ෙසේවක සංඛɕා විස්තරය ඇමුණුම තනතුර අනුමත දැනට ෙවනස ෙසේවක සිටින සංඛɕාව ෙසේවක සංඛɕාව 1. ෙසෞඛɕ ෛවදɕ නිලධාරි 01 01 - 2. අතිෙර්ක ෙසෞඛɕ ෛවදɕ නිලධාරි 01 01 - 3. කළමනාකරණ සහකාර 01 - 01 4. මහජන ෙසෞඛɕ ෙහදි ෙසොයුරි 01 - 01 5. පරිපාලන මහජන ෙසෞඛɕ පරීක්ෂක 01 - 01 6. මහජන ෙසෞඛɕ පරීක්ෂක 04 03 01 7. පරිපාලන පවුල් ෙසෞඛɕ ෙසේවා නිලධාරි 01 - 01 8. පවුල් ෙසෞඛɕ ෙසේවා නිලධාරි 16 16 01 9. වැඩසටහන් හා සැලසුම් සහකාර 01 - 01 10. කම්කරු සාමානɕ 01 - 01 11. කම්කරු සනීපාරක්ෂක 01 - 01 12. රියැදුරු (අනියම්) 01 01 - 13. පාසල් දන්ත චිකිත්සක 01 01 - 14. දන්ත කම්කරු 01 01 - 15. මුරකරු (අනියම්) 01 01 -
+
+මැදකන්ද හා මඩහෙපොල
+
+වන රක්ෂිත : මායිම් ெமதகந்த மற்ᾠம் மடஹெபால வன பாᾐகாப்ᾗப்
+
+பகுதிகள் : எல்ைலகள் MEDAKANDA AND MADAHAPOLA FOREST RESERVES : DEMARCATION
+
+0774/’08
+
+10. ගරු නිහාල් ගලප්පත්ති මහතා (ගරු එම්. ඩී. නාමල් කරුණාරත්න මහතා ෙවනුවට) (மாண்ᾗமிகு நிஹால் கலப்பத்தி - மாண்ᾗமிகு எம். ᾊ. நாமல் கᾞணாரத்ன - சார்பாக) (The Hon. Nihal Galappaththi on behalf of The Hon. M. D. Namal Karunarathne) පරිසර හා ස්වභාවික සම්පත් අමාතɕතුමාෙගන් ඇසූ පශ්නය,— (1) : (අ) කුරුණෑගල දිස්තික්කෙය් ෙපොල්පිතිගම පාෙද්ශීය ෙල්කම්
+
+ෙකොට්ඨාසෙය් මැදකන්ද හා මඩහෙපොළ ගාම නිලධාරී
+
+වසම්වල, වන සංරක්ෂණ ෙදපාර්තෙම්න්තුවට අයත් රක්ෂිතයන්හි පාරිසරික වටිනාකම කවෙර්ද යන්න එතුමා ෙමම සභාවට ඉදිරිපත් කරන්ෙනහිද? (ආ) (i) ඉහත රක්ෂිතවල ෙහේන් ෙගොවිතැන් කරන ෙගොවීන්
+
+ෙකොපමණ සංඛɕාවකට එෙරහිව 2006/2007 වර්ෂවල නඩු පවරා තිෙබ්ද; (ii) එකී නඩුවල දී දඩ මුදල් ෙලස අය කර ෙගන ඇති මුදල
+
+ෙකොපමණද; (iii) ෙවනත් දඬුවම් ලබා දී තිෙබන සංඛɕාව ෙකොපමණද; යන්න එතුමා ෙමම සභාවට දන්වන්ෙනහිද? (ඇ) (i) ඉහත රක්ෂිතවල “ගම්බද වන වගා වැඩසටහන” යටෙත්
+
+ගැමියන් විසින් වගා කර ඇති ෙකොෙහොඹ, ෙත්ක්ක, කජු හා ඇෙක්ෂියා වැනි ශාඛ සහිත රක්ෂිත වනය කෑගල්ල පෙද්ශෙය් පදිංචි නිමල් කතිආරච්චි යන අයට ඇති ෙපෞද්ගලික ඔප්පුවක් මත ඔහුෙග් අයිතියට ලබා දීම සඳහා රක්ෂිත මායිම් ෙවනස් කර තිෙබ්ද; (ii) අදාළ දැනුවත් කිරීම් මත මැනුම් කටයුතු අවසන් කළද
+
+රක්ෂිතෙය් මායිම සලකුණු කිරීම පමාද වීමට ෙහේතු කවෙර්ද; (iii) අදා ළ මායිම කඩිනමින් සලකුණු කරන්ෙන්ද; යන්න එතුමා සඳහන් කරන්ෙනහිද? (ඈ) ෙනොඑෙසේ නම් ඒ මන්ද? சுற்றாடல், இயற்ைக வளங்கள் அைமச்சைரக் ேகட்ட வினா :
+
+(அ) குᾞநாகல் மாவட்டத்தில் ெபால்பித்திகம பிரேதச ெசயலகப் பிாிவில், ெமதகந்த மற்ᾠம் மடஹெபால கிராம உத்திேயாகத்தர் பிாிᾫகளில் வனபாᾐகாப்ᾗ திைணக்களத்திற்குாிய பாᾐகாக்கப்பட்ட வனப் பிரேதசங்களின் சூழல் ெபᾠமதி என்ன என்பைத அவர் இச்சைபக்கு அறிவிப்பாரா? (ஆ) (i) ேமற்குறிப்பிட்ட வன பாᾐகாப்ᾗப் பகுதிகளில் ேசைனப்பயிர்ச் ெசய்ைகயில் ஈᾌபᾌம் விவசாயிகள் எத்தைன ேபᾞக்கு எதிராக 2006/2007 ஆம் ஆண்ᾌகளில் வழக்குத் தாக்கல் ெசய்யப்பட்டᾐ என்பைதᾜம், (ii) அந்த வழக்குகளில் தண்டப்பணமாக எவ்வளᾫ பணம்
+
+அறவிடப்பட்டᾐ என்பைதᾜம், (iii) ேவᾠ தண்டைனகள் வழங்கப்பட்டவர்களின் எண்ணிக்ைக எவ்வளᾫ என்பைதᾜம்
+
+அவர் இச்சைபக்கு அறிவிப்பாரா? (இ) (i) ேமற்கூறிய வனப் பாᾐகாப்ᾗப் பகுதிகளில் “கிராமிய
+
+வனச் ெசய்ைகத் திட்டத்தின்” கீழ் கிராமத்தவர்களால் ெசய்ைக பண்ணப்பட்ᾌள்ள ேவம்ᾗ, ேதக்கு, ᾙந்திாிைக மற்ᾠம் அேகசியா ேபான்ற மரங்கைளக் ெகாண்ட வனப் பகுதிைய ேககாைல பிரேதசத்ைதச் ேசர்ந்த நிமல் கத்திாி ஆரச்சி என்பவᾞக்குாிய தனிப்பட்ட உᾠதிப் பத்திரத் ᾐக்கு அைமய அவாின் உடைமக்கு வழங்கப்பᾌ வதற்காக வனப்பாᾐகாப்ᾗப் பகுதியின் எல்ைலகளில் மாற்றம் ெசய்யப்பட்ᾌள்ளதா என்பைதᾜம்,
+
+පාර්ලිෙම්න්තුව 3185 3186
+
+(ii) குறிப்பிட்டபᾊ அறிவிக்கப்பட்டவாᾠ அளைவப் பணிகள் ᾘர்த்தி ெசய்யப்பட்ᾌள்ள ேபாதிᾤம் வனப்பாᾐ காப்ᾗப் பகுதியின் எல்ைலகைள குறிப்பதில் தாமதம் ஏற்பᾌவதற்கான காரணம் என்ன என்பைதᾜம், (iii) குறிப்பிட்ட எல்ைலகள் ᾐாிதமாக அைடயாளம் இடப்பᾌமா என்பைதᾜம்
+
+அவர் இச்சைபக்கு அறிவிப்பாரா? (ஈ) இன்ேறல், ஏன்? asked the Minister of Environment and Natural Resources, :
+
+(a) Will he submit to this House, the environmental value of the forest reserves belonging to the Department of Forest Conservation, in the Medakanda and Madahapola Grama Niladhari Divisions of the Polpithigama Divisional Secretary’s Division in the Kurunegala District? (b) Will he inform this House,— (i) the number of farmers engaged in chena cultivation in the above mentioned reserves, against whom cases have been filed in the years 2006/2007; (ii) the amount of money collected as fines in the said cases; and (iii) the number of those who have been given other forms of punishment? (c) Will he state,— (i) whether the boundaries of the reserve have been altered in the forest reserve with trees such as margosa, teak, cashew and acacia planted by farmers under ‘Rural Afforestation Scheme’, in order to transfer its ownership to a person named Nimal Kathriarachchi residing in Kegalle on a private deed possessed by him; (ii) the reasons for the delay in demarcating the boundary of the forest reserve despite surveying activities being completed upon information provided; and (iii) whether the relevant boundary will be demarcated expeditiously? (d) If not, why?
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ගරු කථානායකතුමනි, පරිසර හා ස්වභාවික සම්පත් අමාතɕතුමා ෙවනුෙවන් මා එම පශ්නයට පිළිතුර සභාගත* කරනවා.
+
+*සභා ෙම්සය මත තබන ලද පිළිතුර : சபாபீடத்தில் ைவக்கப்பட்ட விைட : Answer tabled: (අ) ෙපොල්පිතිගම පාෙද්ශීය ෙල්කම් ෙකොට්ඨාසෙය් මැදකන්ද හා මඩහාෙපොල ගාම නිලධාරී වසම් වලට අයත් උ ඩංගෙර් ගල්පාය රක්ෂිතය වන සංරක්ෂණ ෙදපාර්තෙම්න්තුවට අයත් ෙව්. එය ස්වභාවික වනාන්තරයක් වන අතර, එහි භූමි පමාණය ෙහක්ටයාර් 518ක් බවට වාර්තා වී ඇත. ෙමම වනාන්තරය ද්විතියික වනාන්තර ගණයට අයත් වන අතර, මධɕම පමාණෙය් පාරිසරික වටිනාකමක් සහිත ෙව්. (ආ) (i) 2006 සහ 2007 වර්ෂවල ඉහත රක්ෂිතෙය් අනවසර ෙහේන්
+
+ෙගොවිතැන් කිසිවක් වාර්තා වී ෙනොමැත. එබැවින් නඩු පැවරීමක් සිදු වී ෙනොමැත. (ii) ඉහත ආ (i) අනුව අදාළ ෙනොෙව්. (iii) 2006 වර්ෂෙය්දී ඇෙක්ෂියා ගසක් කපා ඉරීම ෙහේතුෙවන්
+
+එස්. ඩබ්ලිව්. ගුණරත්න හා ෙක්. ඩී. සිරිෙසේන යන අයට විරුද්ධව රුපියල් 6,000ක දඩ මුදලක් නියම කර ඇත. (ඇ) (i) එම ඉඩෙම් රක්ෂිත මායිම් ෙවනස් කර ෙනොමැත. එෙහත් ෙමම රක්ෂිත කැලයට මායිම්ව අක්කර 50ක පුද්ගලික
+
+ඉඩමක් වන අතර, දැනට එය භුක්ති විඳින්ෙන් කෑගල්ල පෙද්ශෙය් පදිංචි නිමල් කතීආරච්චි යන අයයි. ෙමම ඉඩෙම් අයිතිවාසිකම් ඉදිරිපත් කිරීම සඳහා ඔහු විසින් 74/13 දරන ඔප්පුව ඉදිරිපත් කර ඇති අතර, එම ඔප්පුව ඉඩම් ලියාපදිංචි කිරීෙම් කාර්යාලෙය් බී. 887/124 යට ෙත් ලියාපදිංචි කර ඇත. ෙමම ඉඩෙම් මුල් අයිතිකරු වන ආර්. ඒ. එල්. බී. එම්. බී. බර්නාඩ් මඩහෙපොල යන අයට අයත්ව තිබූ අක්කර 125ක භූමි පමාණෙයන් උපරිම සීමා පනත යටෙත් ඉඩම් අක්කර 75ක් රජයට ලබා දීෙමන් පසු ඉතිරි අක්කර 50 ඔහු ෙවත මැන ෙවන් කර ලබා දී ඇත. ෙමය ඉඩම් පතිසංස්කරණ ෙකොමිෂන් සභාෙව් අංක මා. ෙල්./117 සහ 1979.11.29 දිනැති ලිපිය මඟින් ඉඩම් පතිසංස්කරණ ෙකොමිෂන් සභාෙව් අධɕක්ෂ (ඉඩම් උපරිම සීමා) විසින් සිදු කර ඇත. 1975.05.03 වන දින ෙමම ඉඩමට අදාළව මැනුම් කර සිතියමක් සකසා ඇති අතර, එය කුරුණෑගල මැනුම් අධීකාරි විසින් ද සහතික කර ඇත. පසු කාලයකදී ඉහත බර්නාඩ් මඩහෙපොල නමැති අය ෙමම ඉඩම දැනට අයිතිවාසිකම් කියන නිමල් කතීආරච්ච මහතාට විකුණා ඇත. වන සම්පත් කළමනාකරණ වɕාපෘතිය යටෙත් මැනීමට අනුව
+
+ෙම් වන විට ෙම් පෙද්ශෙය් මායිම් සළකුණූ කිරීම අවසන් කර ඇත. එහිදී ඉහත දක්වා ඇති අයිතිය තහවුරු වූ පුද්ගලික ඉඩම් සහ දැනට වනාන්තර ලක්ෂණ කිසිවක් ෙනොමැති බිම් ෙකොටස පමණක් වනාන්තරෙයන් බැහැර ෙකොට මායිම් සලකුණු කර සංවර්ධන කටයුතු සිදු කිරීම සඳහා පාෙද්ශීය ෙල්කම් ෙවත පවරා දී ඇත. ඒ අනුව ෙමම මායිම් සළකුණු කිරීෙම්දී ඉහත ෙඡ්දෙය් දක්වා ඇති පරිදි පුද්ගලික අයිතිවාසිකම් හිමි නිමල් කතීආරච්ච මහතාට අයත් ඉඩෙම් ද ෙමම වන රක්ෂිතෙය් මායිමට පිටතට වන ෙසේ එම ඉඩමට අදාළ වූ මැනුම් ෙල්ඛනය අනුව මායිම් සලකුණු කර ඇත. එබැවින් ෙමහිදී රත්ෂිත මායිම් ෙවනස් කර ෙනොමැති අතර, ඉහත කී ආකාරයට පුද්ගලික ඉඩම් ඇතුළත් ෙනොවන ෙසේ මායිම් සළකුණු කිරීමක් පමණක් කර ඇති බව කුරුණෑගල දිසා වන නිලධාරී වාර්තා කර ඇත. (ii) ෙමම මැනුම් සහ මායිම් කණු සිටුවීම වන සම්පත් කළමනාකරණ වɕාපෘතිය මගින් මැනුම් සමාගමක් ෙවත පවරා තිබු අතර, එම මැනුම් කර ඇතත් මායිම් සලකුණු කිරීම එම සමාගම විසින් සිදු කර ෙනොමැත. (iii) වන සංරක්ෂණ ෙදපාර්තෙම්න්තුව මගින් ෙමම මායිම් කණු
+
+සිටුවීම 2009 වර්ෂෙය්දී සැලසුම් කර ඇත. (ඈ) පැන ෙනොනඟී.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ස්ථාවර නිෙයෝග 23 (2) යටෙත් ගරු අනුර දිසානායක මන්තීතුමාෙග් පකාශය.
+
+[ගරු නිහාල් ගලප්පත්ති මහතා]
+
+2008 ෙදසැම්බර් 05 3187 3188
+
+ෙපෞද්ගලිකව දැනුම් දීෙමන් ඇසූ
+
+පශ්නය தனி அறிவித்தல் ᾚல வினா QUESTION BY PRIVATE NOTICE
+
+ෙලෝක ආර්ථික අර්බුදය ෙහේතුෙවන් විෙද්ශගත ශී ලාංකිකයන් මුහුණ පා
+
+ඇති ගැටලු உலகப் ெபாᾞளாதார ெநᾞக்கᾊயின் விைளவாக
+
+ெவளிநாᾌகளில் பணிᾗாிᾜம் இலங்ைகயர்
+
+எதிர்ேநாக்கும் பிரச்சிைனகள் PROBLEMS FACED BY SRI LANKAN EXPATRIATES DUE TO
+
+WORLD ECONOMIC CRISIS
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayaka) ගරු කථානායකතුමනි, මට ෙමම පකාශය කිරීමට ඉඩ ලබා දීම පිළිබඳව මා ඔබතුමාට ස්තුතිවන්ත වනවා.
+
+ෙලෝකය පුරා හමා යන දැඩි ආර්ථික අර්බුදය මඟින් අප රටට කරනු ලැබ ඇති තවත් බලපෑමක් පිළිබඳව මම ෙමම ගරු සභාෙව් අවධානය ෙයොමු කිරීමට බලාෙපොෙරොත්තු ෙවමි. විෙද්ශගත ශී ලාංකික ෙසේවා නියුක්තිකයන් අප රෙට් ආර්ථිකයට විශාල දායකත්වයක් ලබා ෙදයි. ශී ලංකාවට විෙද්ශ විනිමය උපයා ෙදන මාර්ග අතර විෙද්ශගතව රැකියා කරන ලාංකිකයන් පමුඛ ස්ථානයක් උසුලයි. ෙම් වන විට ෙලෝකය මුහුණ පා ඇති ආර්ථික බිඳ වැටීම හමුෙව් ඔවුන් රැකියා අහිමි වීෙම් අනතුරකට මුහුණ පා සිටී.
+
+විෙශේෂෙයන් මැද ෙපරදිග රටවල ෙසේවය කරන ශී ලාංකිකයන් සිය අනාගතය පිළිබඳ අවිනිශ්චිතතාවකට මුහුණ පා ඇත. මැද ෙපරදිග රටවල ෙබොෙහෝ පධාන ෙපෙළේ ඉදි කිරීම් සමාගම් ගණනාවක් සිය ෙසේවක සංඛɕාව කප්පාදු කිරීම අරඹා ඇත. නිදසුනක් ෙලස ගතෙහොත් පසු ගිය සතිය වන විට එක්සත් අරාබි එමීර් රාජɕෙය් පමණක් දහසකට පමණ රැකියා අහිමි වී ඇත. එක්සත් අරාබි එමීර් රාජɕෙය් ඩුබායි ෙපොපටීස් සමාගෙම් ෙසේවකයන් 150ක්ද, ඩැමැක් සමාගෙම් ෙසේවකයන් 200ක්ද, ෙමඩර්ෙමොට් සමාගෙම් ෙසේවකයන් 450ක්ද, ඩී.ජී. ෙජෝන්ස් සමාගෙම් ෙසේවකයන් 20ක්ද ෙසේවෙයන් ඉවත් කර ඇත. නකීල් සමාගෙම් ෙසේවකයන්ෙගන් සියයට 15ක් ඉවත් කරන බව එම සමාගම දැනුම් දී ඇත. ෙමම සමාගම්වල ෙසේවය කරන වැඩි පිරිසක් ශී ලාංකිකයන්ය. ෙමම පශ්නය එක්සත් අරාබි එමීර් රාජɕයට පමණක් සීමා වූවක් ෙනොෙව්. කුෙව්ටය, ෙදෝහා කටාර් ඇතුළු මැද ෙපරදිග රටවල් හා යුෙරෝපෙය් රටවල් ගණනාවක් ෙමම අර්බුදයට ෙගොදුරු වී ඇත. දැනටමත් ඉංජිෙන්රු, පමාණ සමීක්ෂණ, ඉදිකිරීම් ක ්ෙෂේත හා බැංකු ක්ෙෂේතයන්හි රැකියාවල නියුතු ලාංකිකයන් විශාල පිරිසක් ෙමම ඉරණමට මුහුණ පා ඇති අතර, ඉදිරිෙය් දී ෙමම තත්ත්වය වඩාත් බරපතළ වනු ඇතැයි අනාවැකි පළ වී තිෙබ්.
+
+ෙමෙසේ රැකියා අහිමි වන ශී ලාංකිකයන් දුෂ්කරතා ගණනාවකට මුහුණ පා සිටී. ඔවුන්ට එම රෙට් යළිත් වරක් රැකියාවක් ෙසොයා ගැනීම අතිශය අසීරුය. ඔවුන් දැනට රැකියා කරන රටවල්වලදී ලබා ෙගන තිෙබන බැංකු ණය නිසා එම රටවල්වලින් පිට වීමට ද අපහසුය. ෙකෙසේ ෙහෝ එම රටින් පිට වී ශී ලංකාවට පැමිණියද, ඔවුන් පරිහරණය කළ වාහන ඇතුළු ෙබොෙහෝ වත්කම් ෙමරටට ෙගන ඒම අපහසු වී තිෙබ්. ඊට ෙහේතුව ඒවා ෙමරටට ෙගන ඒෙම්දී විශාල ෙර්ගු බද්දක් ආණ්ඩුව විසින් අය කිරීමයි. රටට විෙද්ශ විනිමය උපයන ෙමම ෙසේවකයන් සම්බන්ධෙයන් අවම සහන වැඩ පිළිෙවළක් ෙහෝ කියාත්මක කළ යුතුය. එපමණක් ෙනොෙවයි. ඔවුන්ෙග් දරුවන් හට ලංකාෙව් පාසල් ලබා ගැනීෙම් දී පශ්න ගණනාවක් උද්ගත වන බැවින්
+
+ෙබොෙහෝ දූ දරුවන්ෙග් අධɕාපනයද කඩාකප්පල් වී ඇත. ඔවුන්ෙග් දරුවන් ලංකාෙව් පාසල්වලට ඇතුළු කර ගැනීම පතික්ෙෂේප කිරීම මීට ෙහේතුවයි. ෙමම පශ්නය පිළිබඳව වඩා මානුෂීය පදනමකින් සලකා බැලිය යුතු බව අපෙග් අදහසයි.
+
+මැද ෙපරදිග ඇතුළු විෙද්ශ රටවල ෙසේවෙය් නියුතු ශී ලාංකික ශමිකයන් අප රෙට් ආර්ථිකයට විශාල දායකත්වයක් ලබා ෙදන පිරිසකි. ෙම් අයෙගන් වැඩි පිරිසක් වසර 15ක, 20ක පමණ කාලයක් පුරා විෙද්ශගත වී ෙමරටට විෙද්ශ විනිමය එවූ අයයි. ෙම් ෙමොෙහොෙත්දී ඔවුන් මුහුණ පා ඇති පශ්නය හමුෙව් ඔවුන් පිළිබඳව යම් මැදිහත් වීමක් කිරීම අතɕවශɕ බව පැහැදිලිය. විෙද්ශගත ලාංකික ශමිකයන්ෙග් ගැටලු පිළිබඳව ෙමම ගරු සභාෙව් අවධානය ෙයොමු කරන ෙලස මම ඉල්ලා සිටිමි. ෙම් පිළිබඳව ආණ්ඩුව ෙගන ඇති කියා මාර්ග කවෙර්දැයි ෙමම ගරු සභාවට පැහැදිලි කරන ෙලස ගරු විෙද්ශ රැකියා පවර්ධන හා සුබසාධන අමාතɕතුමාෙගන් ඉල්ලා සිටිමි. ස්තුතියි.
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ගරු කථානායකතුමනි, එතුමා විසින් නඟන ලද පශ්නය පිළිබඳව ගරු ඇමතිතුමා විසින් සඳුදා දිනෙය් දී පතිචාරය දක්වනවා ඇති.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙහොඳමයි. කළුතර මැතිවරණ දිස්තික් පාර්ලිෙම්න්තු මන්තී සරත් රණවක මන්තීතුමා පිළිබඳව නිවාඩු ෙයෝජනාව, ගරු ෙජෝශප් මයිකල් ෙපෙර්රා මන්තීතුමා.
+
+ෙනොපැමිණීෙම් අවසරය : ගරු සරත් රණවක
+
+මහතා வராதிᾞக்க அᾔமதி : மாண்ᾗமிகு சரத் ரணவக்க
+
+LEAVE OF ABSENCE : HON SARATH RANAWAKA
+
+ගරු එම්. ෙජෝශප් මයිකල් ෙපෙර්රා මහතා (மாண்ᾗமிகு எம். ேஜாசப் ைமக்கல் ெபேரரா) (The Hon. M. Joseph Michael Perera) ගරු කථානායකතුමනි, මා පහත සඳහන් ෙයෝජනාව ඉදිරිපත් කරනවා: "ශී ලංකා පජාතාන්තික සමාජවාදී ජනරජෙය් ආණ්ඩුකම වɕවස්ථාෙව් 66 (ඊ) වɕවස්ථාව යටෙත්, කඵතර මැතිවරණ දිස්තික් පාර්ලිෙම්න්තු මන්තී ගරු සරත් රණවක මහතාට 2009 ජනවාරි මස 08 වැනි දින සිට මාස තුනක් තුළ පාර්ලිෙම්න්තුෙව් රැස්වීම්වලට ෙනොපැමිණ සිටිමට අවසර දිය යුතු ය."
+
+පශ්නය විමසන ලදින්, සභා සම්මත විය. வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. Question put, and agreed to.
+
+වරපසාද : ගරු පාලිත රංෙග බණ්ඩාර
+
+මහතාට මරණීය තර්ජන කිරීම சிறப்ᾗாிைம : மாண்ᾗமிகு பாᾢத ரங்ேக பண்டாரᾫக்கு
+
+மரண அச்சுᾠத்தல் PRIVILEGE : DEATH THREATS ON HON. PALITHA RANGE
+
+BANDARA ගරු පාලිත රංෙග බණ්ඩාර මහතා (மாண்ᾗமிகு பாᾢத ரங்ேக பண்டார) (The Hon. Palitha Range Bandara) ගරු කථානායකතුමනි, 2008.12.04 වැනි දින පාර්ලිෙම්න්තුෙව් පැවති අය වැය විවාදෙය්දී රාජɕ ආරක්ෂක, මහජන ආරක්ෂාව, නීතිය හා සාමය පිළිබඳ අමාතɕාංශයට අදාළ වැය ශීර්ෂෙය්
+
+පාර්ලිෙම්න්තුව 3189 3190
+
+විවාදයට සහභාගි වීෙමන් අනතුරුව ෙගදර ෙගොස් සිටියදී, රාතී 9.43ට අංක 0112672126 දරන දුරකථනෙයන් මෙග් ජංගම දුරකථනයට ඇමතුමක් ලැබුණි. එම ඇමතුම කළ අය විකමසිංහ ෙලස හඳුන්වා ෙදමින් අසභɕ, පරුෂ වචනවලින් බැණ වදිමින් ''ෙතෝ .......... පුතා පාර්ලිෙම්න්තුෙව් කථා කරනවා, ශබ්ද දානවා වැඩියි. වැඩිය දඟලන්න එපා, මරලා දානවා'' කියා තර්ජනාත්මකව පකාශ කළා. මම ඔහුෙගන් විමසා සිටියා, ''මාව මරන්ෙන් හදිසිෙය්මද, කවදා විතරද'' කියා. එවිට නැවත වරක් ඉහත අන්දමටම බැණ, තර්ජනය කරමින් ඇමතුම විසන්ධි කරන ලදී. ගරු කථානායකතුමනි, ෙම් පාර්ලිෙම්න්තුෙව්දීත්, ඉන් පිටතදීත් දූෂණ, අකමිකතා සහ අසාධාරණකම්වලට එෙරහිව කථා කළ ටී. මෙහේස්වරන්, රවිරාජ්, ශීපති සූරියආරච්චි යන පාර්ලිෙම්න්තු මන්තීතුමන්ලා ඝාතනය කළ අන්දමටම මාවද විනාශ කිරීමට උත්සාහ දරනවාද, එෙසේ ෙනොමැති නම් දූෂණ, අකමිකතා ෙහළිදරවු කිරීම වැළැක්වීමට ෙමවැනි තර්ජන කරනවාද යන්න පශ්නයකි. ෙම් නිසා ඉහත තර්ජනය පිළිබඳව විධිමත් පරීක්ෂණයක් පැවැත්වීමට කටයුතු කරන ෙලසත්, පාර්ලිෙම්න්තුෙව් අදහස් පකාශ කිරීමට ඇති අයිතිය නැති කිරීමට දරන උත්සාහය වළකා මෙග් වරපසාද ආරක්ෂා කර ෙදන ෙලසත් ඉල්ලමි. ගරු ලක්ෂ්මන් ෙසෙනවිරත්න මහතා (மாண்ᾗமிகு லῆமன் ெசெனவிரத்ன) (The Hon. Lakshman Senewiratne) ගරු කථානායකතුමනි, කරුණක් මතු කරන්න තිෙබනවා. ෙවන දා අපට හැන්සාඩ් වාර්තා පිටපත දවස් තුනකින් ෙහෝ හතරකින් ලැෙබනවා. ෙනොවැම්බර් 12න් පසු අද වනතුරු අපට හැන්සාඩ් වාර්තා ලැබී නැහැ. සමා වන්න. 18, 19 දිනවල හැන්සාඩ් වාර්තා ලැබුණා. ෙවන දා දවස් තුනකින් ඒවා ලැෙබනවා. දැන් සති ගණනක් යනතුරු අපට හැන්සාඩ් පිටපත ලැෙබන්ෙන් නැහැ. මා ඒ ගැන ඔබතුමාෙග් අවධානය ෙයොමු කරවනවා.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker)
+
+මා ෙම් ගැන ෙහොයා බලා කටයුතු කරන්නම්.
+
+පනත් ෙකටුම්පත් පිළිගැන්වීම
+
+சமர்ப்பிக்கப்பட்ட சட்டᾚலங்கள்
+
+BILLS PRESENTED
+
+සත්ව (සංෙශෝධන) පනත් ෙකටුම්පත
+
+விலங்குகள் (திᾞத்தம்) சட்டᾚலம்
+
+ANIMALS (AMENDMENT) BILL
+
+“1958 අංක 29 දරන සත්ව පනත සංෙශෝධනය කිරීම සඳහා වූ පනත්
+
+ෙකටුම්පතකි.”
+
+පිළිගන්වන ලද්ෙද් පශු සම්පත් සංවර්ධන අමාතɕ, ගරු සී.බී. රත්නායක මහතා විසිනි.
+
+2009 ජනවාරි 06 වන අඟහරුවාදා ෙද වන වර කියවිය යුතුයයි ද, එය මුදණය කළ යුතුයයි ද නිෙයෝග කරන ලදී.
+
+கால்நைட வளர்ப்ᾗ அபிவிᾞத்தி அைமச்சர் மாண்ᾗமிகு சீ. பி. ரத்நாயக்க அவர்களால் சமர்ப்பிக்கப்பட்டᾐ.
+
+2009 சனவாி 06, ெசவ்வாய்க்கிழைம இரண்டாம் ᾙைற மதிப்பிடப்பட ேவண்ᾌெமனᾫம் அச்சிடப்பட ேவண்ᾌெமனᾫம் கட்டைளயிடப்பட்டᾐ.
+
+Presented by the Hon. C.B. Rathnayake, Minister of Livestock Development;
+
+to be read a Second time upon Tuesday, 06th January 2009 and to be printed.
+
+පාර්ලිෙම්න්තුෙව් කටයුතු
+
+பாராᾦமன்ற அᾤவல் BUSINESS OF THE PARLIAMENT ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ගරු කථානායකතුමනි, මා පහත සඳහන් ෙයෝජනාව ඉදිරිපත් කරනවා:
+
+“නɕාය පතෙය් පධාන කටයුතුවල අංක 13, 14, සහ 15 දරන විෂයයන් පිළිබඳ වැඩ අද දින රැස්වීෙම්දී අංක 23 දරන ස්ථාවර නිෙයෝගෙයහි විධිවිධානයන්ෙගන් නිදහස් විය යුතුය.”
+
+පශ්නය විමසන ලදින්, සභා සම්මත විය. வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. Question put, and agreed to.
+
+විසර්ජන පනත් ෙකටුම්පත, 2009
+
+ஒᾐக்கீட்ᾌச் சட்டᾚலம், 2009
+
+APPROPRIATION BILL, 2009
+
+කාරක සභාෙව්දී තවදුරටත් සලකා බලන ලදි. - [පගතිය : ෙදසැම්බර් 04]
+
+[කථානායකතුමා මුලාසනාරූඪ විය.]
+
+குᾨவில் ேமᾤம் ஆராயப்ெபற்றᾐ. - [ேதர்ச்சி : ᾊசம்பர் 04 ]
+
+[சபாநாயகர் அவர்கள் தைலைம வகித்தார்கள்]
+
+Considered further in Committee.- [Progress: 4th December ]
+
+[MR. SPEAKER in the Chair.] සභාපතිතුමා (தவிசாளர் அவர்கள்) (The Chairman) ශීර්ෂ අංක 101, 201 සිට 205 ආගමික කටයුතු හා සදාචාර වර්ධන අමාතɕාංශය, ශීර්ෂ අංක 142, 206 සිට 209 සංස්කෘතික කටයුතු හා ජාතික උරුමයන් පිළිබඳ අමාතɕාංශය, ශීර්ෂ අංක 163 තරුණ අභිවෘද්ධි හා සමාජ ආර්ථික සංවර්ධන අමාතɕාංශය, ශීර්ෂ අංක 129, 215 වෘත්තීය හා කාර්මික පුහුණු අමාතɕාංශය, ශීර්ෂ අංක 110, 228 සිට 235 අධිකරණ හා නීති පතිසංස්කරණ අමාතɕාංශය, ශීර්ෂ අංක 133 විදɕා හා තාක්ෂණ අමාතɕාංශය, ශීර්ෂ අංක 134, 236 ආණ්ඩුකම වɕවස්ථා හා ජාතික ඒකාබද්ධතා අමාතɕාංශය, 140, 292 පශු සම්පත් සංවර්ධන අමාතɕාංශය, ශීර්ෂ අංක 169, 309, 310 ඉදිකිරීම් හා ඉංජිෙන්රු ෙසේවා අමාතɕාංශය, ශීර්ෂ අංක 108, 308 තැපැල් හා විදුලි සංෙද්ශ අමාතɕාංශය, ශීර්ෂ අංක 172 අතිෙර්ක වැවිලි ෙභෝග සංවර්ධන අමාතɕාංශය, ශීර්ෂ අංක 168 ජනතා වතු කළමනාකරණ හා සංවර්ධන අමාතɕාංශය, ශීර්ෂ අංක 149, 303 කර්මාන්ත සංවර්ධන අමාතɕාංශය, ශීර්ෂ අංක 128 ගාමීය කර්මාන්ත හා ස්වයංරැකියා පවර්ධන අමාතɕාංශය, ශීර්ෂ අංක 143 පාර්ලිෙම්න්තු කටයුතු අමාතɕාංශය, ශීර්ෂ අංක 104, 280 සැලසුම් කියාත්මක කිරීෙම් අමාතɕාංශය, ශීර්ෂ අංක 138, 220 ෙද්ශීය ෛවදɕ අමාතɕාංශය, ශීර්ෂ අංක 124, 216 සමාජ ෙසේවා හා සමාජ සුබසාධන අමාතɕාංශය, ශීර්ෂ අංක 120, 217 ළමා සංවර්ධන හා කාන්තා අභිවෘද්ධි අමාතɕාංශය, ශීර්ෂ අංක 164 පජා සංවර්ධන හා සමාජ විෂමතා දුරලීෙම් අමාතɕාංශය, ශීර්ෂ අංක 156 තරුණ කටයුතු අමාතɕාංශය.
+
+අද ඉදිරිපත් කරන ලද වාර්තාවට අදාළ ඉහත අමාතɕාංශවල වැය ශීර්ෂ පිළිබඳ විවාදය ආරම්භ කරන්ෙන් ගරු ෙක්.එන්. ෙචොක්සි මන්තීතුමා.
+
+101 වන ශීර්ෂය.- ආගමික කටයුතු හා සදාචාර වර්ධන අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 7,02,37,000 தைலப்ᾗ 101.- மத அᾤவல்கள், ஒᾨக்க ேமம்பாட்ᾌ அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ, ᾟபா 7,02,37,000
+
+HEAD 101.- MINISTER OF RELIGIOUS AFFAIRS AND
+
+MORAL UPLIFTMENT Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 70,237,000
+
+[ගරු පාලිත රංෙග බණ්ඩාර මහතා]
+
+2008 ෙදසැම්බර් 05 3191 3192
+
+142 වන ශීර්ෂය.- සංස්කෘතික කටයුතු හා ජාතික උරුමයන් පිළිබඳ
+
+අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 12,86,15,000
+
+தைலப்ᾗ 142. - கலாசார அᾤவல்கள், ேதசிய மரᾗாிைமகள்
+
+அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 12,86,15,000
+
+HEAD 142.- MINISTER OF CULTURAL AFFAIRS AND
+
+NATIONAL HERITAGE
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 128,615,000
+
+163 වන ශීර්ෂය.- තරුණ අභිවෘද්ධි හා සමාජ ආර්ථික සංවර්ධන
+
+අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 6,95,45,000
+
+தைலப்ᾗ 163.- இைளஞர் வᾤᾬட்ᾌைக, சᾚக ெபாᾞளாதார
+
+அபிவிᾞத்தி அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 6,95,45,000
+
+HEAD 163.- MINISTER OF YOUTH EMPOWERMENT AND SOCIO
+
+ECONOMIC DEVELOPMENT
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 69,545,000
+
+129 වන ශීර්ෂය.- වෘත්තීය හා කාර්මික පුහුණු අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 11,08,62,000
+
+தைலப்ᾗ 129.- வாழ்க்ைகத் ெதாழில் மற்ᾠம் ெதாழில்ᾒட்பப்
+
+பயிற்சி அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 11,08,62,000
+
+HEAD 129.- MINISTER OF VOCATIONAL AND TECHNICAL
+
+TRAINING
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 110,862,000
+
+110 වන ශීර්ෂය.- අධිකරණ හා නීති පතිසංස්කරණ අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 32,72,78,000
+
+தைலப்ᾗ 110.- நீதி, சட்ட மᾠசீரைமப்ᾗ அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 32,72,78,000
+
+HEAD 110.- MINISTER OF JUSTICE AND LAW REFORMS
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 327,278,000
+
+133 වන ශීර්ෂය.- විදɕා හා තාක්ෂණ අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 14,43,80,000
+
+தைலப்ᾗ 133 .- விஞ்ஞான, ெதாழில்ᾒட்பவியல் அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 14,43,80,000
+
+HEAD 133.- MINISTER OF SCIENCE AND TECHNOLOGY
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 144,380,000
+
+134 වන ශීර්ෂය.- ආණ්ඩුකම වɕවස්ථා හා ජාතික ඒකාබද්ධතා
+
+අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 10,88,30,000
+
+தைலப்ᾗ 134.- அரசியலைமப்ᾗ அᾤவல்கள், ேதசிய
+
+ஒᾞைமப்பாட்ᾌ அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 10,88,30,000
+
+HEAD 134.- MINISTER OF CONSTITUTIONAL AFFAIRS AND
+
+NATIONAL INTEGRATION
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 108,830,000
+
+140 වන ශීර්ෂය.- පශු සම්පත් සංවර්ධන අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 10,57,50,000
+
+தைலப்ᾗ 140 - , கால்நைட அபிவிᾞத்தி அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள்-
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 10,57,50,000
+
+HEAD 140.- MINISTER OF LIVESTOCK DEVELOPMENT
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 105,750,000
+
+169 වන ශීර්ෂය.- ඉදිකිරීම් හා ඉංජිෙන්රු ෙසේවා අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 6,01,30,000
+
+தைலப்ᾗ 169.- நிர்மாணத்ᾐைற, ெபாறியியல் ேசைவகள்
+
+அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 6,01,30,000
+
+HEAD 169.- MINISTER OF CONSTRUCTION AND ENGINEERING
+
+SERVICES
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 60,130,000
+
+108 වන ශීර්ෂය.- තැපැල් හා විදුලි සංෙද්ශ අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු.8,16,35,000
+
+தைலப்ᾗ 108.- தபால், ெதாைலத்ெதாடர்ᾗகள் அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 8,16,35,000
+
+HEAD 108.- MINISTER OF POST AND TELECOMMUNICATION
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 81,635,000
+
+පාර්ලිෙම්න්තුව 3193 3194
+
+172 වන ශීර්ෂය.- අතිෙර්ක වැවිලි ෙභෝග සංවර්ධන අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 7,44,25,000
+
+தைலப்ᾗ 172.- ᾐைணப்பயிர் அபிவிᾞத்தி அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 7,44,25,000
+
+HEAD 172.- MINISTER OF SUPPLEMENTARY PLANTATION
+
+CROPS DEVELOPMENT
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 74,425,000
+
+168 වන ශීර්ෂය.- ජනතා වතු කළමනාකරණ හා සංවර්ධන
+
+අමාතɕවරයා
+
+01 වන වැඩ සටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 7,97,81,000
+
+தைலப்ᾗ 168.- மக்கள் ேதாட்ட ᾙகாைம, அபிவிᾞத்தி அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 7,97,81,000
+
+HEAD 168.- MINISTER OF PUBLIC ESTATE MANAGEMENT
+
+AND DEVELOPMENT
+
+Programme 01.- Operational Activities -Recurrent Expenditure,
+
+Rs. 79,781,000
+
+149 වන ශීර්ෂය.- කර්මාන්ත සංවර්ධන අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 11,24,10,000
+
+தைலப்ᾗ 149 - ைகத்ெதாழில் அபிவிᾞத்தி அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள்-
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 11,24,10,000
+
+HEAD 149.- MINISTER OF INDUSTRIAL DEVELOPMENT
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 112,410,000
+
+128 වන ශීර්ෂය.- ගාමීය කර්මාන්ත හා ස්වයං රැකියා පවර්ධන
+
+අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 44,83,30,000
+
+தைலப்ᾗ 128.- கிராமியக் ைகத்ெதாழில் , சுயெதாழில் வாய்ப்ᾗ
+
+ஊக்குவிப்ᾗ அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள்
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 44,83,30,000
+
+HEAD 128.- MINISTER OF RURAL INDUSTRIES AND SELF
+
+EMPLOYMENT PROMOTION
+
+Programme 01.- Operational Activities .- Recurrent Expenditure,
+
+Rs. 448,330,000
+
+143 වන ශීර්ෂය.- පාර්ලිෙම්න්තු කටයුතු අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 29,29,75,000
+
+தைலப்ᾗ 143 - பாராᾦமன்ற அᾤவல்கள் அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள்-
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 29,29,75,000
+
+HEAD 143.- MINISTER OF PARLIAMENTARY AFFAIRS
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 292,975,000
+
+104 වන ශීර්ෂය.- සැලසුම් කියාත්මක කිරීෙම් අමාතɕවරයා
+
+01 වන වැඩ සටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 11,32,25,000
+
+தைலப்ᾗ 104.- திட்டச் ெசயற்பᾌத்ᾐைக அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 11,32,25,000
+
+HEAD 104.- MINISTER OF PLAN IMPLEMENTATION
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 113,225,000
+
+138 වන ශීර්ෂය.- ෙද්ශීය ෛවදɕ අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 15,03,99,000
+
+தைலப்ᾗ 138.- சுேதச மᾞத்ᾐவத்ᾐைற அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 15,03,99,000
+
+HEAD 138.- MINISTER OF INDIGENOUS MEDICINE
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 150,399,000
+
+124 වන ශීර්ෂය.- සමාජ ෙසේවා හා සමාජ සුභසාධන අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 23,38,54,000
+
+தைலப்ᾗ 124.- சᾚக ேசைவகள், சᾚக நலேனாம்ᾗைக அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் மீண்ᾌவᾞஞ்
+
+ெசலᾫ ᾟபா 23,38,54,000
+
+HEAD 124.- MINISTER OF SOCIAL SERVICES AND SOCIAL
+
+WELFARE
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 233,854,000
+
+120 වන ශීර්ෂය.- ළමා සංවර්ධන හා කාන්තා අභිවෘද්ධි
+
+අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 20,08,40,000
+
+தைலப்ᾗ 120.- சிᾠவர் அபிவிᾞத்தி மற்ᾠம் மகளிர் வᾤᾬட்ᾌைக
+
+அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 20,08,40,000
+
+HEAD 120. - MINISTER OF CHILD DEVELOPMENT AND
+
+WOMEN’S EMPOWERMENT
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs.200,840,000
+
+2008 ෙදසැම්බර් 05 3195 3196
+
+164 වන ශීර්ෂය.- පජා සංවර්ධන හා සමාජ විෂමතා දුරලීෙම්
+
+අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 5,87,10,000
+
+தைலப்ᾗ 164.- சᾙதாய அபிவிᾞத்தி, சᾚக அநீதி ஒழிப்ᾗ
+
+அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 5,87,10,000
+
+HEAD 164.- MINISTER OF COMMUNITY DEVELOPMENT AND
+
+SOCIAL INEQUITY ERADICATION
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 58,710,000
+
+156 වන ශීර්ෂය - තරුණ කටයුතු අමාතɕවරයා
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු.1,79,20,000
+
+தைலப்ᾗ 156.- இைளஞர் அᾤவல்கள் அைமச்சர்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 1,79,20,000
+
+HEAD 156.- MINISTER OF YOUTH AFFAIRS
+
+Programme 01.- Operational Activities - Recurrent Expenditure,
+
+Rs. 17,920,000
+
+[ පූ.භා. 10.09]
+
+ගරු ෙක්. එන්. ෙචොක්සි මහතා (மாண்ᾗமிகு ேக. என். ெசாக்ᾭ) (The Hon. K. N. Choksy) Mr. Chairman, I wish to move a cut of Rs. 10 from each recurrent and capital expenditure of the Heads, 101, 201-205, 142, 206-209, 163, 129, 215, 110, 228-235, 133, 134, 236, 140, 292, 169, 309, 310, 108, 308, 172, 168, 149, 303, 128, 143, 104, 280, 138, 220, 124, 216, 120, 217, 164 and 156 of the Votes of the Ministries and its Departments and Corporations to be taken up today at the Committee Stage of the Appropriation Bill for 2009. Mr. Chairman, I have had the honour of being a Member of this House for the past 20 years. Today with the Committee Stage Debate we are also having the 240th Emergency Debate at which I am present. But yet, Mr. Chairman, despite a long passage of time, unfortunately for Sri Lanka, the light has not appeared at the end of the tunnel. In any war, at the end of the day, no side wins and no side loses. Both have lost in men and materials; only the bitterness remains.
+
+The issue on our hands has got to be known as the “national problem”. It then calls for a national or collective solution, irrespective of the divides of political parties. Early action is called for on all sides of the House.
+
+Mr. Chairman, the demand for a separate state was clearly not welcomed by the majority of our citizens. It has now abated. But, the seeds of greater local autonomy
+
+and local self-determination have taken root strongly. This requires to be recognized and solved reasonably by all political parties and citizens’ organizations as a primary national issue. If not, the present turmoil will get aggravated.
+
+Mr. Chairman, we have the Thirteenth Amendment of our Constitution and the Provincial Council System. These have devolved some powers and strengthened the system of local government. But, it is clear that the country has to go further down the road of devolution to achieve peace. A federation may thus be worthwhile considering as a measure of solution.
+
+I am conscious of the fact that Sri Lanka has been governed for almost 200 years as a unitary State. Local requirements were little considered. This is from 1815, when the British conquered Kandy and ruled throughout Sri Lanka. Our Constitutions since Independence in 1948 including the present Constitution, have continued this political concept of a Unitary State.
+
+It must be emphasized that the country has three major races and four major religions. We are thus, a multi-racial and multi-religious nation.
+
+Mr. Chairman, times have changed economically, socially and politically. Citizens grouped together in different parts of the country and belonging to the different races and religions I have just mentioned, and having distinct needs of their own consider that as of right they should have a greater say in the decision-making process relating to their requirements in their respective areas of residence. This in the ultimate analysis is the root cause of the ongoing conflict, namely, the demand for greater local self-determination.
+
+Can the issue be solved under our present Constitution of 1978? The answer is clearly, “No”. The Constitution is too rigid. Power and authority are far too greatly concentrated in the Centre. The Provincial Council system is inadequate. The solution, the restoration of peace and the continuance of Sri Lanka as one State, requires us to go some distance further in devolving power. A change in the national thinking on the political organization of our country is necessary.
+
+Mr. Chairman, I advocate Sri Lanka becoming a federation of States. The identification of the physical areas or boundaries of the federating units will not be difficult. They are already fairly clear. A federation is not Eelam nor will it result in a division of the country. It is important to note that it will not be the division of the country. Sri Lanka will continue to be one single sovereign, free, indivisible and independent State. The power and authority of the Central Government to ensure the unity of the country as one entity will continue. The armed forces and the police will be under the control of the Centre. So, also all sea and airports. The revenue from income tax, customs and excise duties and stamps
+
+පාර්ලිෙම්න්තුව 3197 3198
+
+will belong to the Central Government. The federating units will be dependent to a considerable extent on the Central Government for finance. The bogey of cessation or separatism is therefore ill-founded. It cannot arise and will not be allowed to arise. A federation only means the greater freedom of distinct areas of the country to decide and handle all local issues such as the local language, civic requirements and local taxation. The United States of America, Canada, Switzerland and Australia are examples of federations which have stood the test of time and prospered. India is a multiracial, multi-religious and multi-linguistic country. Its political organization is a de facto federation of states. The powers of government are divided between the Central Government and Parliament on the one hand and the State legislatures on the other. The authority to maintain the indivisibility of the country is vested in the Central Government. No division of this country has taken place over the past fifty years, although it has been a federation. The country is progressing rapidly in its economic development. Mr. Chairman, we in Sri Lanka have so far not considered the federation idea as a measure of settlement of our ethnic conflict. I suggest we do so. It may bring peace and the obvious national benefits of peace to Sri Lanka. A federation of states is not a new idea for Sri Lanka. The Donoughmore Commission was set up by the British in 1928. This Commission gave the country what became known as the Donoughmore Constitution and the State Council in 1930. The delegation of eminent Kandyan leaders led by Mr. M.B. Panabokke and Mr. Bernard Aluvihare urged the Commission to create a federation within Sri Lanka. Due to opposition of the Sinhala leaders in the low country, the Commission rejected the Kandyan delegation’s suggestion. The same exercise was repeated by the Kandyan delegation before the Soulbury Commission in 1948, and once again not accepted by the Commission in its report due to resistance from the low country Sinhala leaders. The demand for a federation thereupon died down amongst the Kandyan leaders, but not with the Tamils. They formed the “Federal Party", and continued this demand. Perhaps, if the demand of the delegation of the Kandyan Leaders at that time had been heeded and accommodated even to some extent, our country would not have had the present conflict on its hands. There is no hard and inflexible mould in which federalism is cast. It is a constitutional concept that varies with the historical and political experiences of the country concerned. But, one aspect is common - namely, that the Central Government is constitutionally vested with the power to
+
+ensure and enforce the continuation of the federation and to prevent cessation or separation by any of the federating units. It is open to the country concerned to decide which subjects of government should be vested in the Centre and which subjects should be devolved. Our present Constitution foreshadows this by having three separate lists of subjects and functions, which are vested in the Centre and Provincial Councils respectively. It is not difficult therefore, to make the further constitutional changes necessary to devolve more subjects and functions and thereby create greater local self-determination or autonomy. Beyond this of course, the country cannot go. Mr. Chairman, I advocate that the All Party Representative Committee(APRC) invites the Tamil National Alliance to its meetings and considers proceeding to discussion and agreement along the lines I have outlined above. Also that a request made by the United National Party that the coalition partners of the Government table their common viewpoint before the Committee for consideration by the Committee, so that the committee’s report could be the stepping stone to amendments of our Constitution for the re-arrangement of our country. In this way, Mr. Chairman, we could proceed further towards ensuring the end of the ongoing conflict and progress of our nation. I thank you, Mr. Chairman, and wish to state that the viewpoint I have expressed is my own and personal viewpoint and not necessarily the viewpoint of any organization. I thank you, Mr. Chairman. [පූ.භා. 10.24]
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (නාගරික සංවර්ධන හා පූජා භූමි සංවර්ධන අමාතɕතුමා සහ ආණ්ඩු පක්ෂෙය් පධාන සංවිධායකතුමා)
+
+(மாண்ᾗமிகு திேனஷ் குணவர்தன - நகர அபிவிᾞத்தி, ᾗனித பகுதிகள் அபிவிᾞத்தி அைமச்சᾞம் அரசாங்கக் கட்சியின் ᾙதற்ேகாலாசாᾔம்)
+
+(The Hon. Dinesh Gunawardena-Minister of Urban Development and Sacred Area Development and Chief Government Whip)
+
+ගරු සභාපතිතුමනි, ෙතෝරා ගත් අමාතɕාංශ 21ක වැය ශීර්ෂ -ඇස්තෙම්න්තු වියදම්- සාකච්ඡා කිරීම සඳහා වූ විෙශේෂ කාරක සභාෙව් වාර්තාව අද දින සාකච්ඡාවට ගැනීම පාර්ලිෙම්න්තුෙව් ඉතාම වැදගත් අවස්ථාවක්. ෙම් අවස්ථාෙව්දී ගරු කථානායකතුමාට විෙශේෂෙයන් ස්තුතිවන්ත ෙවන්න ඕනෑ. අෙප් සභානායකතුමා, විපක්ෂ නායකතුමා, ඒ වාෙග්ම විපක්ෂ සංවිධායකතුමා ෙමම කටයුත්තට අපත් එක්ක එකඟතාෙවන් ෙයෝජනා ඉදිරිපත් කිරීම ගැන එතුමන්ලාටත් ස්තුතිවන්ත ෙවන්න ඕනෑ. ඒ වාෙග්ම එම කමිටුව ඉතාම ඵලදායී ෙලස ෙබොෙහොම සුහදශීලීව සාකච්ඡා කළ බවත් විෙශේෂෙයන් සඳහන් කරන්න වටිනවා. එය ආදර්ශවත්. ඒ නිසාමයි මම ෙම් වචන ටික කියන්න නැඟී සිටිෙය්. සමහර විට කාරක සභාවලදී ගැඹුරු සාකච්ඡා සිදු වන්නට පුළුවන් ගරු සභාපතිතුමනි, අය වැය ඇස්තෙම්න්තු පිළිබඳ අපි අනුගමනය කරන ෙවනත් ආකාරයන් නිසා. අනවශɕ වාද විවාද ගැඹුරු සාකච්ඡාවල් සිදු ෙවන්න පුළුවන්.
+
+[ගරු ෙක්. එන්. ෙචොක්සි මහතා]
+
+2008 ෙදසැම්බර් 05 3199 3200
+
+ගරු ෙචොක්සි මැතිතුමා ෙඩොෙනොෙමෝර් වɕවස්ථාව ගැන සඳහන් කළා. ෙඩොෙනොෙමෝර් වɕවස්ථාෙව් කාරක සභා කමය ඉතාම වැදගත් අවස්ථාවක්. මම සිහිපත් කරන්න කැමැතියි, ජී. සී. එස්. ෙකොරයා මැතිතුමා, ඩඩ්ලි ෙසේනානායක මැතිතුමා, පිලිප් ගුණවර්ධන මෙග් ආදරණීය පියා, ආචාර්ය එන්. එම්. ෙපෙර්රා මැතිතුමා වැනි විවිධ මතධාරින් එකම කමිටුවක කටයුතු ෙකොට එම කමිටුව මඟින් 1930 දසකෙය්දී ලංකාෙව් කම්කරු ආඥාපනත් ඇති කළ ආකාරය. ඒ වාෙග්ම අෙප් රෙට් තිෙබන ෙසෞඛɕ ආඥාපනත ඔබතුමා දන්නවා. එම ෙඩොෙනොෙමෝර් කාරක සභාෙවන් තමයි එය පළමුෙවන් එළි දැක්ෙක්. අෙප් රෙට් නිදහස් අධɕාපනය පිළිබඳ සී. ඩබ්ලිව්. ඩබ්ලිව්. කන්නන්ගර මැතිතුමාෙග් ෙයෝජනාව නිර්මාණය කරන්න එදා කාරක සභාෙව් විවිධ පක්ෂවල අය එකතු ෙවලා තමයි එතුමාට උදවු කෙළේ. ඒ නිසා ෙම් පළමු වතාවට ඔබතුමා කථානායක ධුරය දරන කාලෙය් අතිගරු ජනාධිපතිතුමා ෙමයට ආශීර්වාද කර කිව්වා, "ෙමය ෙහොඳ ආරම්භයක්; එය ඉදිරියට ෙගන යාමට ලබා දිය යුතු සහෙයෝගය ලබා ෙදන්න" කියා. ඒ නිසා අමාතɕාංශ 21ක් ෙම් කාරක සභාෙව්දී සාකච්ඡා ෙකොට එම වාර්තාව යළි පාර්ලිෙම්න්තුවට එන අවස්ථාව අෙප් පාර්ලිෙම්න්තු ඉතිහාසෙය් වැදගත් අවස්ථාවක් කියා මා හිතනවා. ෙම් අවස්ථාව ගැන උනන්දුවක් දැක්වීමයි අද පාර්ලිෙම්න්තුවට තිෙබන්ෙන්. ඒ වාෙග්ම එය ඉදිරියට පැමිණි රාජɕ නිලධාරින්ටත් වැය කිරීම, අය කිරීම, පගතිය සහ එවැනි ෙල්ඛන සකස් කිරීෙම්දී මීට වඩා වග කීමකින් එය ඉටු කිරීම සඳහා වූ බරපතළකම මූලɕ බලය තිෙබන පාර්ලිෙම්න්තුව සමඟ ඉඳ ෙගන කථා කරන්න පුළුවන් වීම වැදගත් ආරම්භයක් වුණා. ෙම් ආරම්භය මීට වඩා වර්ධනය කරන්නට පුළුවන්කම ලැබුෙණොත් පාර්ලිෙම්න්තුෙව් මන්තීවරුන්ට, අමාතɕවරුන්ට, ඒ වාෙග්ම රාජɕ නිලධාරින්ටත් විගණකාධිපති වාර්තාවලට අතිෙර්කව ෙමය වඩා ඵලදායී ෙවයි කියා අපි විශ්වාස කරනවා ගරු සභාපතිතුමනි. ගරු නිමල් සිරිපාල ද සිල්වා ඇමතිතුමාෙග් සභාපතිත්වෙයන් නිකුත් කර තිෙබන ෙම් වාර්තාෙව් අවසාන පිටුෙව් දක්වා තිෙබන සමහර අමාතɕාංශ වැය ශීර්ෂ පෙයෝජනයට ගැනීම පිළිබඳව කර තිෙබන නි ර්ෙද්ශයන් සහ ඒ අමාතɕාංශවල මතු වී තිෙබන පධාන ගැටලු පිළිබඳ වාර්තා ඉතාම වැදගත් ෙවනවා. විෙශේෂෙයන් 38 වන පිටුෙව්, ෙසේවක අර්ථ සාධක අරමුදල සම්බන්ධවත්, ළමා සංවර්ධන හා කාන්තා අභිවෘද්ධි කටයුතු පිළිබඳවත්, විදɕා හා තාක්ෂණ අමාතɕාංශය, ජනතා වතු සංවර්ධන මණ්ඩලය සම්බන්ධවත් දක්වා ඇති වාර්තාව පාර්ලිෙම්න්තුවට ඉතාම වැදගත් වාර්තාවක්. මීට වඩා දීර්ඝ වශෙයන් කථා කරන්න මා උත්සාහ දරන්ෙන් නැහැ. ෙලෝක් සභාෙව් ෙම් කටයුත්ත මීට වඩා ගැඹුරින් සිද්ධ ෙවනවා. අෙනක් පාර්ලිෙම්න්තුවලත් එය සිදු ෙවනවා. ඒ නිසා අෙප් පාර්ලිෙම්න්තුවට වɕවස්ථාෙවන් තිෙබන මූලɕ බලය පිළිබඳව මහා විවාදයක් කර ගන්නවාට වඩා ඒ විවාදය අර්ථාන්විත කර ගත හැකි කාරක සභා කමයක් ඇති කර ගැනීමට පුළුවන් ආදර්ශයක් ෙමම කමිටුව ලබා දී තිෙබනවා. ෙමය ආරම්භයක් ෙවනවා නම් සැබවින්ම එය අනාගතය සඳහා වැදගත් ෙවනවා. ෙලෝකෙය් ෙලොකුම පජාතන්තවාදය තිෙබන මහා ඉන්දියානු සමූහාණ්ඩුව නිර්මාණය කිරීමට හා එයට නායකත්වය දුන්නු එහි ෙගෞරවණීය අගාමාතɕ ජවහර්ලාල් ෙන්රු මැතිතුමා පකාශ කළා, "ෙවනසක් ඇති වුෙණොත් තමයි ඉතිහාසයක් බිහි වන්ෙන්" කියලා. එෙසේ නැතුව එකම විධියට යන ෙකොට ඉතිහාසයක් නිර්මාණය වන්ෙන් නැහැ. ඒ නිසා පාර්ලිෙම්න්තුවත්, මූලɕ බලයත්, ඇස්තෙම්න්තු සකස් කිරීම, වැය කිරීම හා එහි පගතිය වාර්තා කිරීම බරපතළ කාරණා ෙලස අපි සලකන්න ඕනෑ. ගරු සභාපතිතුමනි, අෙප් විගණකාධිපතිවරුන් විවිධ වාර්තා ඉදිරිපත් කරනවා. මට හිෙතන විධියට අෙප් ඒ විගණන කටයුතුවල අලුත් පෙව්ශයකට කාල පරිච්ෙඡ්දය දැන් ඇවිත් තිෙබනවා. අප development audit ක්ෙෂේතයට අවතීර්ණ වන්න ඕනෑ. මුදල් හරියට වියදම් කළාද කියන එක තමයි අප ෙබොෙහෝ විට ෙහොයන්ෙන්. නමුත් හරියට වියදම් කරපු එක පමණක් ෙනොෙවයි, ඉලක්කය හා අරමුණ සාක්ෂාත් වනවාද කියන පශ්නය තමයි අද ෙලෝකෙය් හැම පාර්ලිෙම්න්තුවක්ම බලන්ෙන්. මා අන්න
+
+ඒ කාරණය ෙකෙරහි ෙම් අමාතɕාංශවල ඉන්න නිලධාරින් සහ ෙල්කම්තුමන්ලා සියලු ෙදනාෙග්ම අවධානය ෙයොමු කර වනවා. අපි මහා ෆැක්ටියක් හදලා ධාරිතාව එන්ෙන් නැත්නම්, ඒ ධාරිතාව සපුරන්ෙන් නැත්නම් එය audit ෙකෙරන්ෙන් නැහැ. එය කනගාටුදායක තත්ත්වයක්. සමහර මහා වැව් හදපු ඒවාෙය් තිෙබන ධාරිතාව අප ෙකොයි තරම් පෙයෝජනයට ගන්නවාද කියන එක audit වන්ෙන් නැහැ. ෙම්වා අද යුගෙය් පධාන අභිෙයෝග හැටියට මා සලකනවා. මෙග් මිත ෙතොණ්ඩමන් ඇමතිතුමා ෙම් ගරු සභාෙව් හිටිෙය් නැහැ. එතුමා දැන් පැමිණි අවස්ථාෙව්දී මා ඉතාම ඕනෑකෙමන් සඳහන් කරන්න ඕනෑ. I just mentioned the contribution you made regarding the Employment Provident Fund before the committee and how the committee considered your viewpoints. ගරු සභාපතිතුමනි, මා ෙමයට වඩා කාල ෙව්ලාව ගන්ෙන් නැහැ. අප අභිෙයෝග රාශියක් කරා ගමන් කරන කාල පරිච්ෙඡ්දයක, අෙප් රෙට් ආර්ථික, ඒ වාෙග්ම පරිපාලනය, සංවර්ධන ඉලක්කයන් සපුරා ලීමට විශාල දායකත්වයක් ෙදන ෙම් අමාතɕාංශ විසිඑකක ෙම් වැය ශීර්ෂ ඉතාම වැදගත් අවස්ථාවකට අෙප් අනාගතය ෙගන යාමට, අෙප් රෙට් සංවර්ධන කටයුතු ෙමෙහයවලා එමඟින් රෙට් අනාගතය ෙගොඩ නඟන්නට ශක්තියක් ලැෙබ්වායි කියා මා පාර්ථනා කරනවා.
+
+ගරු සභාපතිතුමනි, අවුරුදු 2500කට වැඩි ඉතිහාසයක් තිෙබන අෙප් රටට විෙද්ශ ආකමණිකයන් ඇවිත් තිෙබනවා. නමුත් අෙප් රෙට් පැවැත්ම විනාශ කරන්න ඒ අයට බැරි වුණා. ඊට පසුව පෘතුගීසින් ආවා; ලන්ෙද්සින් ආවා; ඉංගීසින් ආවා. නමුත් අෙප් රෙට් පදනම හා අෙප් රෙට් මූලික පැවැත්ම ඒ කිසිවකුට ෙවනස් කරන්න බැරි වුණාය කියන එක අප ආඩම්බරෙයන් සිහිපත් කරන්න ඕනෑ. අතිගරු ජනාධිපතිතුමා නිර්මාණය කරන අලුත් ශී ලංකාවක සැම ෙදනාට සමගිෙයන් හා සෙහෝදරත්වෙයන් ජීවත් විය හැකි වසරක් කරා ගමන් කරන්න ෙමම අමාතɕාංශ විසිඑකට අලුත් ශක්තියක් ෙම් තුළින් ලැෙබ්වායි කියා මා පාර්ථනා කරනවා. ෙම් කාරක සභා කමයට මීට වඩා බරක් ඇති කිරීම පිළිබඳව ගරු කථානායකතුමාෙග් අවධානය ෙයොමු කරවමින් ඒ සඳහා අෙප් සහෙයෝගය එතුමාට ලබා ෙදමුය කියන ෙයෝජනාව කරමින් මෙග් කථාව අවසන් කරනවා. ස්තුතියි.
+
+[පූ. භා. 10.34] ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා (மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) ගරු සභාපතිතුමනි, ෙම් අවස්ථාව ඉතාමත් වැදගත් අවස්ථාවක් කියලා මා විශ්වාස කරනවා. ෙහේතුව ෙමොකද, ෙම් පාර්ලිෙම්න්තු ඉතිහාසෙය් එක දවසක එක වර අමාතɕාංශ 21ක වැය ශීර්ෂයන් පිළිබඳව සාකච්ඡා කරන අවස්ථාවක්. ගරු සභාපතිතුමනි, ෙබොෙහෝ දුරට ෙමවැනි අමාතɕාංශ 21ක් එකම දවසක කථා කරලා ඉවර කරනවාය කියලා කියන්ෙන් සංකීර්ණ කියාවලියක්. අපි ඇත්තටම ආපහු ෙසොයලා බැලුෙවොත් ෙම් අදාළ අමාතɕාංශවල ඇමතිවරු විසිඑක් ෙදනාත්, නිෙයෝජɕ ඇමතිවරු, කැබිනට් ඇමතිවරු ඇතුළුව ඒ අමාතɕවරුන්ෙග් සංඛɕාව එකතු කරලා බැලුවත් හතළිස් ෙදෙදෙනකුට වඩා අමාතɕවරු පමාණයක් ඉන්නවා. එවැනි අමාතɕාංශ විශාල පමාණයක වැය ශීර්ෂ පිළිබඳව එකට සාකච්ඡා කරන්න සිද්ධ වුණාට පස්ෙසේ ෙම් සාකච්ඡාව ඇතුෙළේ අඩුම තරමින් ඒ ඇමතිවරයකුෙගන් ෙම් මන්තීවරෙයක් නඟන පශ්නයකට උත්තර ෙදන්න තරම්වත් යම් කාලයක් ඒ ඇමතිවරෙයකුට තිෙයයි කියලා අපි විශ්වාස කරන්ෙන් නැහැ. හැබැයි යම් සාර්ථකත්වයක්, යම් ෙවනස් වීමක් තිබුණා. අපි දැක්කා. මීට ඉස්ෙසල්ලා අෙප් ගරු නිමල් සිරිපාල ද සිල්වා ඇමතිතුමා ඉදිරිපත් කරපු විධියට ෙම් වැය ශීර්ෂයන් පිළිබඳව සාකච්ඡා කිරීම සඳහා වූ විෙශේෂ කාරක සභාෙව්දී ෙම් සාකච්ඡාව සිද්ධ වුණා. ඒ කාරක සභාෙව් සාමාජිකෙයක් විධියට, ඒ කාරක සභාව පැවැති සියලු දිනවලදී මම සහභාගි වුණා. මට සහභාගි ෙවන්න අවස්ථාව ලැබුණා. ඒ නිසා නිවැරදිව දැක්කා, ඒ කාරක සභාෙව් ෙමොකක්ද සිද්ධ වුෙණ්, ෙමොකක්ද සාකච්ඡා වුෙණ් කියලා. ගරු සභාපතිතුමනි, ෙම් සාකච්ඡාෙව්දී අපි දැකපු ෙද් තමයි ෙම් අමාතɕාංශවල ඉදිරිපත් වුණු නිලධාරින්ෙග් පැත්ෙතනුත් ඒ
+
+පාර්ලිෙම්න්තුව 3201 3202
+
+වාෙග්ම අමාතɕාංශෙය් ඇමතිවරුන්ෙග් පැත්ෙතනුත් දැඩිව කථා කරපු දැඩිව ඉදිරිපත් කරපු කාරණයක් වුෙණ් 2007 වසරට වඩා ෙම් අමාතɕාංශවලින් බහුතරයකෙග් මුදල් කප්පාදු කරලා, අඩු කරලා තිබුණා කියන කාරණයයි. හැබැයි ෙම් කාරක සභාෙව්දී අපි සාකච්ඡා කළා. සාකච්ඡා කරලා තිබුණත් අද වාර්තාවක් ඉදිරිපත් කළා. ෙම් ඉදිරිපත් කරපු වාර්තාෙවන් ෙම් සාකච්ඡාව වඩාත් ඵලදායී ෙවන්න ඕනෑකම තිබුණා, එෙහම නම් අඩුම තරමින් ඒ මුදල් කප්පාදු කරලා තිබුණු අමාතɕාංශවල ඒ මුදල් කප්පාදුව ෙවනස් කරලා නැවත වතාවක් ඒ මුදල් ලබා ෙදන්න යම් කටයුත්තක් කරලා තිබුණා නම්. එෙහම කරලා නැති එෙක් පතිඵලයක් විධියට දහම් පාසල් ගුරුවරුන්ට පුස්තකාල දීමනාව ෙවනුෙවන් 2008 වසෙර් ෙවන් කර තිබුණු රුපියල් මිලියන 173, ෙම් අවුරුද්ද වන ෙකොට රුපියල් මිලියන 130 දක්වා අඩු කර තිෙබනවා. බුද්ධ ශාසන ඇමතිවරයා බුද්ධ ශාසනය පිළිබඳව ෙබොෙහොම දැඩිව කථා කරන, ආණ්ඩුකම වɕවස්ථාෙවන් ඒ පිළිබඳව පතිපාදන ෙවන් කරලා තිෙබන, ෙගෞරවණීය ස්වාමීන් වහන්ෙසේලා අද ආණ්ඩුවට වඩා ආණ්ඩුව ෙවනුෙවන් ෙපනී සිටින තත්ත්වයන් තුළත් දහම් පාසල් ගුරුවරුන් ෙවනුෙවන් ෙවන් කර තිෙබන මුදල කප්පාදු කර තිෙබනවා. කිස්තියානි ආගම ෙවනුෙවන්, හින්දු දහම ෙවනුෙවන් -ආගමික පවර්ධනය ෙවනුෙවන්- ෙවන් කර තිෙබන මුදල් කප්පාදු කරලා -අඩු කර- තිෙබනවා. ඒ නිසා අප ඉල්ලීමක් කරන්න කැමැතියි. ඒ විෙශේෂ කාරක සභාෙව්දී අප ෙම් ගැන කිව්වා. දහම් පාසල් ගුරුවරුන්ෙග් පුස්තකාල දීමනාව කපලා, දහම් පාසල් ගුරුවරුන් සඳහා ෙවන් කර තිෙබන නිල ඇඳුෙම් දීමනාව අඩු කරලා දහම් අධɕාපනය නඟා සිටු වන්න බැහැ; දැහැමි සමාජයක් හදන්න බැහැ. අප එය නැවත වතාවක් අවධාරණය කරනවා. ඒ පිළිබඳව මීට වඩා සැලකිලිමත් ෙවන්න ඕනෑ.
+
+ගරු සභාපතිතුමනි, ෙම් අමාතɕාංශ විසිඑක දිහා බැලුවාට පස්ෙසේ සමහර අමාතɕාංශ සම්බන්ධෙයන් අපට ෙත්රුම් යන්ෙන් කුමක්ද? විෙශේෂෙයන්ම චන්දෙසේකරන් ඇමතිතුමා ඒ විෙශේෂ කාරක සභාවට ඇවිල්ලා ෙමොකක්ද කිව්ෙව්? එතුමා ඒ විෙශේෂ කාරක සභාවට ඇවිල්ලා පසිද්ධිෙය් කථා කරලා කිව්වා, "මම රුපියල් මිලියන දාහක ෙයෝජනා ආණ්ඩුවට ඉදිරිපත් කළා. හැබැයි මට ෙවන් කර තිෙබන්ෙන් රුපියල් මිලියන තුන්සියයයි. ඒ රුපියල් මිලියන තුන්සියෙයන් මට පුළුවන්, අමාතɕාංශයට එක දවසක්වත් යන්ෙන් නැතිව එක මාසයක් ඇතුළත මෙග් ෙටලිෙෆෝන් එෙකන් ඒ වැඩ ටික කරන්න" කියා. ඒ විෙශේෂ කාරක සභාව ඉදිරිපිට එතුමා එෙහම කිව්වා. ඒ අමාතɕාංශවලට ඕනෑ කරන පතිපාදන ෙවන් වන්ෙන් නැත්නම්, ඒ අමාතɕාංශ යම් විදɕාත්මක වැඩ පිළිෙවළක් ඇතුෙළේ ෙබදා ෙවන් කරලා නැත්නම්, ඒ අමාතɕාංශවලින් වැඩක් කරන්න පුළුවන් ෙව්විය කියා අප විශ්වාස කරන්ෙන් නැහැ. ගරු සභාපතිතුමනි, ෙමොකක්ද ෙම් තිෙබන අවුෙල් ෙත්රුම?
+
+ගරු සභාපතිතුමනි, මුදල් සම්බන්ධෙයන් තිෙබන බලතල පාර්ලිෙම්න්තුවට පවරා දී තිෙබන බව අප දන්නවා. හැබැයි ඒ බලතල පාර්ලිෙම්න්තුවට දී තිබුණත් ඒ මුදල් ෙකොෙහොමද ෙම් රෙට් ජනතාවට සාධාරණ විධියට, වඩාත් ඵලදායී විධියට ෙයොද වන්ෙන්, තිෙබන සම්පත් ටික කළමනාකරණය කරනවාද නැද්ද කියන කාරණය කැබිනට් මණ්ඩලය සතුව, විෙශේෂෙයන් මුදල් අමාතɕවරයා වන ජනාධිපතිතුමා සතුව තිෙබන බලයක් බවට පත් ෙවලා තිෙබනවා. එහි පතිඵලයක් විධියට සිද්ධ ෙවලා තිබන ෙද් ෙමොකක්ද? වතුකරෙයන් එක් පැත්තකට ෙවනම තරුණ අභිවෘද්ධි අමාතɕාංශ හදපු එකයි. ඒ අමාතɕාංශ ෙවන ෙවනම කියාත්මක වන්ෙන් වතුකරෙය් ෙතෝරා ගත් පෙද්ශයක් ඇතුෙළේ විතරයි. රටකට වග කියන කැබිනට් ඇමති ධුර, රටකට වග කියන කැබිනට් ෙනොවන ඇමති ධුර, නිෙයෝජɕ ඇමති ධුර බවට පත් ෙවන්න සමත් ෙවලා නැහැ. පමාණවත් කාර්ය මණ්ඩලයක් ලබා ෙනොදුන්නු, ඒ වාෙග්ම අමාතɕාංශයක් පවත්වා ෙගන යන්න ඕනෑ කරන මූලික අවශɕතාවන්වත් සම්පූර්ණ කරන්න අසමත් වූ අමාතɕාංශ ගණනාවක් ෙම් අමාතɕාංශ විසිඑක ඇතුෙළේ තිෙබනවා. ඒ නිසා ෙම් අමාතɕාංශවලින් වැඩි පමාණයක් හදලා තිෙබන්ෙන්
+
+ෙමොකටද? ෙම් ආණ්ඩුවත් එක්ක එකතු ෙවච්ච උදවිය එක්ක ෙම් ආණ්ඩුව පවත්වා ෙගන යනවා කියන කාරණය විතරක් ෙපරදැරි කර ෙගන ෙම් ආණ්ඩුව පවත්වා ෙගන යාෙම් පටු අරමුණට හිර වුණ අමාතɕාංශ ෙගොඩ නැඟීමක් තමයි ෙම් සිද්ධ ෙවලා තිෙබන්ෙන්, ගරු සභාපතිතුමනි. ෙමය ඉතාම විමසිල ්ෙලන් බලන්න ඕනෑ කාරණයක්ය කියන එක අප විශ්වාස කරනවා.
+
+ගරු සභාපතිතුමනි, ෙම් ආණ්ඩුව අද ෙම් රෙට් ජාතික ආර්ථිකයක් ෙගොඩ නඟන්න නම් හදන්ෙන්, ෙම් රෙට් තිෙබන ජාතික පශ්නය විසඳන්න නම් හදන්ෙන් අප එක් කාරණයක් කියන්න කැමැතියි. තමුන්නාන්ෙසේලාෙග් පැත්ෙතන් ෙම් සම්බන්ධෙයන් කරුණු ඉදිරිපත් කරනවා, කථා කරනවා. විෙශේෂෙයන් ඩිලාන් ෙපෙර්රා ඇමතිතුමාෙග් අධිකරණ අමාතɕාංශයත් ෙම් අමාතɕාංශ විසිඑක ඇතුෙළේයි තිෙබන්ෙන්. ඒ අමාතɕාංශය ෙවනුෙවන් එතුමාත් කරුණු ඉදිරිපත් කළා. එතුමා නිතර ෙපනී සිටිනවා බලය විමධɕගත කිරීම පිළිබඳව. හැබැයි අප දුටුවා ෙම් අමාතɕාංශ අතරින් සමහර අමාතɕාංශ, ෙතෝරා ගත්තු සමහර පෙද්ශවල තිෙබන පාරවල් හදන්න, කීඩාව දියුණු කරන්න ඒ පෙද්ශවල විතරක් කියාත්මක වන්න හදා ගත්තු ඒවා බව. පාෙද්ශීය සභාවට අයිති කාර්ය භාරය කරන, පළාත් සභාවට අයිති කාර්ය භාරය කරන සමහර අමාතɕාංශ තිෙබනවා. පළාත් සභාෙව් කටයුතුවලට ෙවනම නිලධාරින් ෙවන් කර තිෙබද්දී, ෙවනම ඇමතිවරුන් පත් කර තිෙබද්දී ඒ විෂය පථයන් කියාත්මක කරන්න ඕනෑ කරන අටවා ගත්තු, ආණ්ඩුව ෙවනුෙවන් කටයුතු කරන සමහර අය සතුටු කරන්න ෙගොඩ නඟා තිෙබන අමාතɕාංශ තිෙබනවා. ඒ අමාතɕාංශවලින් කරන්න පුළුවන්කම තිෙබන්ෙන් ෙමොකක්ද? සභාපතිවරුන් ටිකක් ෙතෝරලා නඩත්තු කරන්න පුළුවන් ෙව්වි. කාර්ය මණ්ඩලයක් නඩත්තු කරන්න පුළුවන් ෙව්වි. එයින් එහා පැත්ෙත් ෙදයක් කරන්න පුළුවන් ෙව්විය කියා අප විශ්වාස කරන්ෙන් නැහැ.
+
+ගරු සභාපතිතුමනි, තවත් කාරණාවක් ෙකෙරහි ඔබතුමාෙග් අවධානය ෙයොමු කරවන්න මා කැමැතියි. ෙම් අමාතɕාංශ විසිඑක අතරට විෙශේෂෙයන්ම සමාජ ෙසේවා හා සමාජ සුභසාධන අමාතɕාංශය ඇතුළත් වන නිසා, එම අමාතɕාංශෙය් කාර්ය භාරයට අයිති වන නිසා අබාධිතයන් පිළිබඳව යමක් සඳහන් කළ යුතුය කියා මා කල්පනා කරනවා. ෙමොකක්ද කාරණය? ෙම් අය වැය ගැන කථා කරද්දී රණ විරුවන් ගැන කථා කරනවා. ආබාධිත රණ විරුවන් ගැන කථා කරනවා; ආබාධිත පුද්ගලයන් ගැන කථා කරනවා. සමාජ ෙසේවා හා සමාජ සුභසාධන අමාතɕාංශය කියාත්මක වුණත් ආබාධිත පුද්ගලයන් පිළිබඳව සතුටුදායක මැදිහත් වීමක් කර තිෙබනවාය කියා අප විශ්වාස කරන්ෙන් නැහැ.
+
+1996 වර්ෂෙය් දී ෙම් පාර්ලිෙම්න්තුෙවන් පනත් ෙකටුම්පතක් සම්මත කර ආබාධිතයින් ෙවනුෙවන් ෙවනම ජාතික මහ ෙල්කම් කාර්යාලයක් හදන්න කථා කළා. ජාතික මහ ෙල්කම් කාර්යාලයක් ස්ථාපිත කර ඒ ෙවනුෙවන් ජාතික අරමුදලක් පිහිටු වන්නට ඕනෑ කරන පතිපාදන ෙම් පාර්ලිෙම්න්තුෙවන් සම්පාදනය කර තිබුණා. හැබැයි ගරු සභාපතිතුමනි, ඒ අරමුදල පිහිටු වන්නට තවමත් අසමත් ෙවලා තිෙබනවාය කියන එක කනගාටුෙවන් කිව යුතුව තිෙබනවා. ඒ අරමුදල පිහිටු වන්නට අසමත් වුණා විතරක් ෙනොෙවයි, මහින්ද චින්තන වැඩ පිළිෙවළ තුළට ආබාධිතයන් පිළිබඳව එකතු කර තිබුණු වගන්ති, සාකච්ඡා නිෂ්ඵල කාරණයක් බවටත් අද පත් වී තිෙබනවා. ආබාධිතයන් ෙවනුෙවන් යමක් කරනවා නම්, යමක් කළා නම් ආබාධිතයන් බවට පත් වී සිටින රණ විරුවන් ෙවනුෙවන් යමක් ෙකෙරනවා නම්, අඩුම තරමින් ආබාධිතයින් සඳහා රාජɕ ආයතනවලට පිවිෙසන්නට ඕනෑ කරන අවම පහසුකම් ටික සලසන්නටවත් ෙම් තිෙබන වැඩ පිළිෙවළින් සමත් වී තිෙබනවා ද කියා අප අහනවා. තැපැල් කන්ෙතෝරුවල, ඒ වාෙග්ම රාජɕ ආයතන කිහිපයක් අසවල් තැන හදා තිෙබනවාය කියා ෙකටිෙයන් තමුන්නාන්ෙසේලාෙග් පැත්ෙතන් කියන්නට පුළුවන්කම ති ෙබනවා. අප එක කාරණයක් අවධාරණය කරන්නට ඕනෑ.
+
+තැපැල් ෙදපාර්තෙම්න්තුවට ෙම් ආබාධිතයින්ට ඇතුළු වන්නට පිවිසුම් මාර්ග හදන්නට ෙවන් කර තිබුණු පතිපාදනවලින් ඒවා හදා තිෙබන තැපැල් කාර්යාල 59න් එක තැපැල් කාර්යාලයක
+
+[ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා]
+
+2008 ෙදසැම්බර් 05 3203 3204
+
+ෙදකක හැරුණු විට අෙනක් ඒවාෙය් ඒ සියලු ඉදි කිරීම් නිසි පමිතියට, නිසි ආනතියට අබාධිතයකුට පිවිෙසන්නට පුළුවන් ආකාරෙයන් හදා තිෙබන ඒවා ෙනොෙවයි. ගරු සභාපතිතුමනි, ෙකොළඹ නගරෙය්, ගම්පහ පෙද්ශෙය් තදාසන්න වැඩිම ජනතාවක් ජීවත් වන පෙද්ශවලත් ඒ ආබාධිතයින්ට තමන්ෙග් කටයුත්තක් තමන් ට තනිවම ඇවිත් කර ගන්නට පුළුවන් ආකාරයට සකස් කර ෙදන්නට අසමත් වුණු තත්ත්වයක් තිෙබනවා. තමුන්නාන්ෙසේලා එවැනි අරමුදලක් හදා තිෙබනවා නම්, එවැනි කියාකාරිත්වයක් තිෙබනවා නම්, 2008 වර්ෂය තුළ කුමන කටයුත්තක් කර තිෙබනවා ද, ඒ අරමුදල් විගණනයට ලක් කර තිෙබනවා ද ඒ ආබාධිතයන් ෙවනුෙවන් කුමන කියා මාර්ග ගන්නවා ද කියා අප දැන ගන්නට කැමැතියි. ෙමොකද ෙහේතුව, ෙම් තිෙබන යුද්ධ වාතාවරණය නිසා විෙරෝදාර හමුදාවන්, ඒ වාෙග්ම අෙනක් පැත්ෙතන් ගත්තාම ෙම් යුද්ධයට පාත වුණු සිංහල ෙදමළ ජනයා අද වන ෙකොට විශාල පිරිසක් ආබාධිතයින් බවට පත් වී තිෙබන නිසයි. ෙනොෙයකුත් ෙලඩ ෙරෝග නිසා ආබාධිතයින් බවට පත් වන පමාණය සැලකිය යුතු සංඛɕාවක්. රෙට් ජනතාවෙගන් සියයට 12ක ට ආසන්න පමාණයක් තරුණ ජනගහනය අඩු ෙවමින් වයස් ගත වන පමාණය වැඩි වන නිසා ගරු සභාපතිතුමනි, ෙම් අප ඔක්ෙකොම තව වසර දහයක් පහෙළොවක් යන ෙකොට නිශ්චිතව ශරීරෙය් එවැනි යම් ආබාධයක් ෙනොෙපනුණත් නිසි වාරු නැති මිනිසුන් බවට පත් ෙවනවා. ඒ වාරු නැති අයට තනිවම තමන්ට අභිමානෙයන් යම් ආයතනයකට ගිහින් යමක් කර ගන්නට පුළුවන් ආකාරෙය් වැඩ පිළිෙවළක් සකස් කරන්නට ඕනෑය කියන කාරණය අප ඉදිරිපත් කරන්නට කැමැතියි. ගරු සභාපතිතුමනි, යමක් සඳහන් කරන්න ඕනෑ, රාජɕ ඉංජිෙන්රු සංස්ථාව පිළිබඳව. ෙම් පාර්ලිෙම්න්තුෙව් කථා කරන්න ගියාම අපට ෙබොෙහෝ උපෙදස් ෙදන, ෙබොෙහෝ ෙද්වල් සාකච්ඡා කරන ගරු රාජිත ෙසේනාරත්න ඇමතිතුමාෙග් පැත්ෙතන් ගත්ෙතොත්, අද ෙම් රාජɕ ඉංජිෙන්රු සංස්ථාව, රෙට් තිෙබන ඉදි කිරීම් විතරක් ෙනොෙවයි; ෙලෝකෙය් තිෙබන ඉදි කිරීම් පිළිබඳව මහා පුරාෙජ්රු කථා කරන, මහා පරිමාණෙය් සාකච්ඡාවන් සිද්ධ වන අමාතɕාංශයක් බවට පත් ෙවලා තිෙබනවා. පසු ගිය කාලෙය් අපට කිව්වා, “අද අපි ඉදි කිරීම් ක්ෙෂේතෙය් වැඩ කටයුතු කරන්ෙන් ලංකාෙව් විතරක් ෙනොෙවයි; ඉදි කිරීම් ක්ෙෂේතය කරදිය වළල්ෙලන් එහාට අරෙගන ගිහින් තිෙබනවා; ෙදෝහා කටාර් රාජɕයටත් අපි ෙගන ගිහින් තිෙබනවා” කියලා. විශාල පිරිසකට රක්ෂාවල් ෙදන්න කටයුතු කර තිෙබනවාය කිව්වා. ගරු සභාපතිතුමනි, ෙම්ක ඇත්තක් ෙනොෙවයි. රැකියා ෙදන්න එෙහම ෙගන ගියා නම් ෙදෝහා කටාර් රාජɕය ඇතුෙළේ ඉංජිෙන්රු සංස්ථාෙව් ෙකොපමණ පිරිසක් රැකියා කරනවාද කියලා අපි අහනවා. සභාපතිතුමා (தவிசாளர் அவர்கள்) (The Chairman) දැන් නවත්වන්න. ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා (மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) ෙකොපමණ පමාණයකට ඒ අවස්ථාව දීලා තිෙබනවාද කියලා අපි අහනවා.
+
+සභාපතිතුමා (தவிசாளர் அவர்கள்) (The Chairman) ඔබතුමාට නියමිත කාලය අවසානයි. ගරු ආර්. පී. ඒ. රණවීර පතිරණ මහතා (மாண்ᾗமிகு ஆர். பீ. ஏ. ரணᾪர பத்திரண) (The Hon. R. P. A. Ranaweera Pathirana) මට තව එක විනාඩියක් ෙදන්න, ගරු සභාපතිතුමනි. අද වන විට ඒ පත් කර තිෙබන නිෙයෝජɕ සාමානɕාධිකාරිවරයාෙග් වැටුප විතරක් රුපියල් 80,000ක් වනවා. ඉන්ධන දීමනාව වශෙයන්
+
+රුපියල් 40,000ක් ෙගවනවා. ඒ ආයතනෙය් ඉන්න පධානම විධායක නිලධාරියාෙග් වැටුපට වඩා රුපියල් තිස්දහසක, හතළිස්දහසක වැටුපක් ගන්න ෙද්ශපාලන තනතුරු ස්ථාපිත කරලා තිෙබනවා. ෙම්ක තමයි තිෙබන තත්ත්වය.
+
+අපි එකක් කියන්න කැමැතියි. අද ෙම් ආණ්ඩුව වɕාපාරයක් බවට පත් ෙවලා තිෙබනවා. ඒක රාජපක්ෂ සමාගම කියන පටු එකක් ෙනොෙවයි; ඒ සියල්ල එකතු කර ගත් වɕාපාරයක් බවට පත් ෙවලා තිෙබනවා. ගරු සභාපතිතුමනි, ඔබතුමා දන්නවා, වɕාපාරයක් කරන්න ගියාම ෙදමළද, සිංහලද, මුස්ලිම්ද කියන ජාතිකත්වය, වයස, ආගමික ෙවනස්කම් ෙමොනවාද කියලා ෙසොයන්ෙන් නැහැ කියා. ආගමික ආයතනවල තිෙබන සමහර නිෙයෝජනයන් කිසිදු ෙභ්දයක් නැතිව එකතු කර ගත් සමහර පක්ෂ තමන්ට එෙරහිව ඉහළම දුෂ්ටකම් කරපු සියල්ලම එක තැනකට එකතු කර ෙගන තිෙබනවා, තම තමන්ෙග් තිෙබන වාසිය ෙවනුෙවන්. ඒ නිසා ෙම්ක අද වɕාපාරයක් බවට පත් ෙවලා තිෙබනවා.
+
+මා එකක් කියන්න කැමැතියි. අද ෙම් ආණ්ඩුව ඉතාමත් පෙමෝදයට පත් වුණු එකක් තිෙබනවා. අයිටීඑන් එෙක් අර මහින්ද මහත්මයාද කවුද කියන විධියට නම් සියල්ල විසඳන්න පුළුවන් වන්ෙන් ජනාධිපතිතුමාට විතරයි කියන තැනකට ඇවිත් තිෙබනවා.
+
+අපට එකක් කියන්න ඕනෑකම තිෙබනවා. ෙම්කත් ෙහොඳට මතක තබා ගන්න. එක්තරා කාලයකදී අර කුරුණෑගල පැත්ෙත්, නිකවැරටිය පෙද්ශෙය් ෙබෝධියකින් බුදුන් වහන්ෙසේ ෙපෙනනවාය කියා මිථɕාවක් මවා පාලා කිව්වා, හැම ෙදනාම ගිහින් බලන්න, නිකවැරටිය පෙද්ශෙය් තිෙබන ඒ ෙබෝධිෙයන් සියලු ෙරෝග ෙහොඳ කරන්න පුළුවන්ය කියලා. තව කාලයක් ආචාර්ය, මහාචාර්යවරු පවා ෙදොළුකන්ෙද් බඩ ගෑවා. සමහර මිථɕාවන්වලින් ෙපළුණු මිනිස්සු කල්පනා කළා, වඩාත් දියුණු නූතන ෛවදɕ විදɕාෙවන් ෙහොඳ කරන්න බැරි ෙරෝග සඳහා සියලු ෙවදකම් ටික ෙදොළුකන්ෙදන් කරලා ෙදයි කියලා.
+
+හැබැයි අන්තිමට කෙන්, කෙර් තිබුණු රත්තරන් බඩු ටිකත් අත ගා ෙගන වංචා කරලා රෙට්ත් නැති වුණාට පසුව ෙත්රුම් ගත්තා ෙදොළුකන්දට එෙහම ෙද්වල් කරන්න බැහැ කියා, නිකවැරටිය පෙද්ශය ආසන්නෙය් තිබිච්ච ඒ ෙබෝධියට එෙහම ෙද්වල් කරන්න බැහැ කියා. මිථɕාවන්ෙගන් ෙවළිච්ච සමහර අය හාස්කම් තිෙබනවාය කියා අංෙගොඩ පෙද්ශෙය් ෙකෙනකුට මෑතකදී රැවටුණා. හැබැයි අංෙගොඩ පෙද්ශෙය් මිනිස්සු ගිෙය් නැහැ. ඒ වාෙග්ම අපි කියන්න කැමැතියි අද ෙම් ආණ්ඩුවත් ඉන්දඛීල ෙපන්වන එවැනි මිථɕාවන් මවන එකක් බවට පත් ෙවලා තිෙබනවාය කියා. නමුත් වැඩි කාලයක් යන්න හම්බ වන්ෙන් නැහැ, ෙම් මිථɕාෙවන් ඇස් ඇෙරන දිනය වැඩි ඈතක ෙනොෙවයි කියන එක ෙපන්වා ෙදමින් අමාතɕාංශ විසිඑකක පතිපාදන කපා දැමීමට විෙරෝධය පළ කරමින් මෙග් අදහස් පකාශ කිරීම අවසන් කරනවා.
+
+සභාපතිතුමා (தவிசாளர் அவர்கள்) (The Chairman) ඊළඟට, ගරු සී. පී. ඩී. බණ්ඩාරනායක ඇමතිතුමා. ෙම් අවස්ථාෙව්දී ගරු (පූජɕ) උඩවත්ෙත් නන්ද හිමි මූලාසනය ෙහොබ වනවා ඇති.
+
+අනතුරුව කථානායකතුමා මූලාසනෙයන් ඉවත් වුෙයන්, ගරු (පූජɕ) උඩවත්ෙත් නන්ද හිමි මුලාසනාරූඪ විය.
+
+அதன்பிறகு, சபாநாயகர் அவர்கள் அக்கிராசனத்தினின்ᾠ அகலேவ, மாண்ᾗமிகு (வண.) உடவத்ேத நந்த ேதரர் அவர்கள் தைலைம வகித்தார்கள்.
+
+Whereupon MR. SPEAKER left the Chair, and THE HON. (VEN.) UDAWATTE NANDA THERO took the Chair.
+
+පාර්ලිෙම්න්තුව 3205 3206
+
+[පූ.භා. 10.49] ගරු සී. පී. ඩී. බණ්ඩාරනායක මහතා (ආගමික කටයුතු පිළිබඳ අමාතɕතුමා)
+
+(மாண்ᾗமிகு சீ. பீ. ᾊ. பண்டாரநாயக்க - மத அᾤவல்கள் அைமச்சர்)
+
+(The Hon. C. P. D. Bandaranaike - Minister for Religious Affairs)
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, අමාතɕාංශ 21ක වැය ශීර්ෂ සම්බන්ධෙයන් වූ විෙශේෂ කාරක සභාෙව් වාර්තාව සාකච්ඡා ෙකෙරන ෙම් අවස්ථාෙව්දී ආගමික කටයුතු හා සදාචාර වර්ධන කටයුතු පිළිබඳ අමාතɕාංශෙය් වැය ශීර්ෂය සම්බන්ධෙයන් වචන ස්වල්පයක් කතා කිරීමට අවස්ථාව ලැබීම ගැන මා පළමුෙවන්ම ස්තුතිවන්ත වනවා.
+
+ආගමික කටයුතු හා සදාචාර වර්ධන කටයුතු පිළිබඳ අමාතɕාංශෙය් අමාතɕවරයා හැටියට අතිගරු ජනාධිපති මහින්ද රාජපක්ෂ මැතිතුමාෙග් මාර්ෙගෝපෙද්ශකත්වය යටෙත් එතුමාෙග් මහින්ද චින්තන වැඩ පිළිෙවළ අනුව අප සාර ධර්ම නඟා සිටු වීම සඳහා පසු ගිය වර්ෂය තුළ වැඩ කටයුතු රාශියක් ඉටු කර තිෙබනවා. ෙම් වන ෙකොට "මතට තිත" වැඩසටහන කියාත්මක කර තිෙබනවා. ෙමත්තා සමාජ 2,476ක් කළුතර, ෙකොළඹ, ගම්පහ දිස්තික්කවල පිහිටු වන්න අපට පුළුවන් ෙවලා තිෙබනවා. ඒ වාෙග්ම කිරි ගවයන් ආරක්ෂා කිරීෙම් වɕාපෘතියක් කියාත්මක කිරීම සඳහාත් රුපියල් ෙකෝටියක පතිපාදන ෙවන් කර තිෙබනවා. ඒ වාෙග්ම රට පුරාම "පුණɕ ගාම" වැඩසටහන දියත් කර තිෙබනවා. උතුරු නැෙඟනහිර පෙද්ශෙය් නිදහස් කර ගත් පෙද්ශවල විහාරස්ථාන සම්බන්ධ කර ෙගන දහම් පාසල් තුළින් දහම් දැනුම ලබා දීෙම් කටයුතු තව දුරටත් ශක්තිමත් කිරීම සඳහා "පුණɕ ගාම" වැඩසටහන යටෙත් ඒ විහාරස්ථානවල දහම් පාසල් සඳහා පතිපාදන ලබා දී තිෙබනවා. මහා සංඝ රත්නෙය් සහෙයෝගය ඇතුව දහම් දැනුම ලබා දීෙම් වැඩසටහන ආරම්භ කර තිෙබනවා. විෙශේෂෙයන්ම කිරි ගවයන් ආරක්ෂා කිරීෙම් විෙශේෂ වැඩසටහනක් කියාත්මක කිරීමට මුදල් පතිපාදන සපයා තිෙබනවා. ෙම් මඟින් ආගමික සහජීවනය සහිත සමාජයක් නිර්මාණය කිරීමටත්, සත්ව ඝාතනය වැළැක්වීමටත්, කළ ගුණ දන්නා සමාජයක් නිර්මාණය කිරීම සඳහාත් කටයුතු ෙකෙරනවා. නැවුම් කිරි පරිෙභෝජනය කරන පිරිසක් බිහි කිරීම මඟින් ජනතාවෙග් ෙපෝෂණ තත්ත්වය ඉහළ දැමීම, කිරි පිටි සඳහා වැය වන විෙද්ශ විනිමය අවම කිරීම වැනි ඉලක්ක ගණනාවකුත් අප ෙම් මඟින් අෙප්ක්ෂා කරනවා. දරුවන් තුළ ආකල්පමය ෙවනසක් ඇති කිරීම, කිරි ගවයා සුරැකීෙම් අගය ෙපන්වා දීම, ආගමික මධɕස්ථාන හා ආගමික නායකයන් මඟින් කිරි ගවයා සුරැකීෙම් වටිනාකම ෙපන්වා දීම, කිරි වැරූ එළෙදනුන් රැස් කර තැබීමට විවෘත ස්ථාන ඇති කිරීම, කිරි ගවයින් විකිණීම හා මිල දී ගැනීම සම්බන්ධ සුදුසු පරිදි නීති රීති සම්පාදනය කිරීම ආදී කරුණුත් ෙම් මඟින් ඉටු කිරීමට අෙප්ක්ෂා කරනවා. පසු ගිය කාලය තුළ ගරු පූජɕ අතුරලිෙය් රතන ස්වාමීන් වහන්ෙසේ අප සමඟ විශාල වැඩ ෙකොටසක් ඉටු කර තිෙබනවා.
+
+මා නිෙයෝජනය කරන අමාතɕාංශය යටෙත් තමයි ෙබෞද්ධ කටයුතු ෙදපාර්තෙම්න්තුවත්, කිස්තියානි ආගමික කටයුතු ෙදපාර්තෙම්න්තුවත්, හින්දු ආගමික හා සංස්කෘතික කටයුතු ෙදපාර්තෙම්න්තුවත්, මුස්ලිම් ආගමික හා සංස්කෘතික කටයුතු ෙදපාර්තෙම්න්තුවත්, මහා භාරකාර ෙදපාර්තෙම්න්තුවත් තිෙබන්ෙන්.
+
+අපි කිස්තියානි ආගමික කටයුතු ගැන කියද්දී, විශාමිකයන් සඳහා තලවිල ෙද්වස්ථානෙය් අවශɕ ෙගොඩනැඟිලි සකස් කරන බව කියන්නට කැමැතියි. ඒ වාෙග්ම පූජනීය සිද්ධස්ථාන සංවර්ධනය කිරීම සඳහා ගරු දිෙන්ෂ් ගුණවර්ධන ඇමතිතුමාත් සමඟ පූජා භූමි සංවර්ධන අමාතɕාංශය ය ටෙත් විශාල වැඩ ෙකොටසක් ආරම්භ කර තිෙබනවා. ඒ වාෙග්ම අපි දහම් පාසල්වල ස්ෙව්ච්ඡාෙවන් ෙසේවය කරන අයට නිල ඇඳුම් ලබා දීමටත්, පුස්තකාල දීමනා ලබා දීමටත් අප කටයුතු කර තිෙබනවා. සියලුම ආගම්වල දහම් පාසල්වලට ඒ ශක්තිය ලබා ෙදන්න අප කටයුතු කර තිෙබනවා.
+
+ඒ වාෙග්ම පසු ගිය දවස්වල අපි මඩු ෙද්වස්ථානය පතිසංවිධානය කර තිෙබනවා. මඩු ෙද්වස්ථානය නැවත සකස් කිරීම සඳහා විශාල සහෙයෝගයක් ලබා ෙදමින් කටයුතු කිරීම ගැන ෙම් අවස්ථාෙව් අෙප් තිවිධ හමුදාවට ස්තුතිවන්ත ෙවනවා. හිටපු ආගමික කටයුතු අමාතɕ ගරු තිස්ස කරල්ලියද්ද ඇමතිතුමා, ගරු මිල්ෙරෝයි පනාන්දු ඇමතිතුමා ඇතුළු ඇමතිවරු රාශියක් ඒ අවස්ථාවට සහභාගි ෙවලා මඩු ෙද්වස්ථානය වන්දනා කිරීම සඳහා අවශɕ වැඩ පිළිෙවළ අතිගරු ජනාධිපතිතුමාෙග් මූලිකත්වෙයන් ආරම්භ කරන්නට අපට පුළුවන් වුණා. විෙශේෂෙයන්ම අද වන විට නිදහස් කර ගත් පෙද්ශවල සංවර්ධනය සඳහාත්, අෙප් ආගමික සිද්ධස්ථාන නැවත සංවර්ධනය කිරීම සඳහාත් කටයුතු ෙයොදා තිෙබනවා. ඒ වාෙග්ම හින්දු කටයුතු ෙදපාර්තෙම්න්තුව තුළින් කඳුකරෙය් තිෙබන හින්දු කටයුතු මධɕස්ථාන සංවර්ධනය කිරීම ෙකෙරනවා. මුස්ලිම් ආගමික මධɕස්ථාන ඇති කිරීම සඳහාත්, තිහාරිය, කුරුණෑගල, අම්පාර වැනි පෙද්ශවල මුස්ලිම් සංස්කෘතික මධɕස්ථාන ඇති කිරීම සඳහාත් අපි කටයුතු කර තිෙබනවා.
+
+ෙම් සියලු කාරණා මඟින් අෙප් රෙට් අනාගත පරපුර ආධɕාත්මික සංවර්ධනයක් කරා ෙයොමු කිරීම අෙප්ක්ෂා කරනවා. ෙමෙතක් කිසිදු රජයක් අවධානය ෙයොමු ෙනොකළ පැති ෙකෙරහි අෙප් රජය අවධානය ෙයොමු කර ඇති බව මා පකාශ කරනවා. බුද්ධ ශාසනය ආරක්ෂා කරන ගමන්ම අෙනකුත් ආගම්වල නිදහස ෙකෙරහිද අෙප් රජය කැප වීෙමන් කටයුතු කර තිෙබනවා. ඒ අනුව ෙලෝකෙය් ෙවනත් කිසිදු රටක ෙනොමැති තරම් ආගමික සහජීවනයක් දැන් ඇති ෙවමින් පවතිනවා.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, මට ලැබී තිෙබන කාලය අවසාන නිසා, ෙම් අවස්ථාෙව් මෙග් අමාතɕාංශෙය් ෙල්කම් එච්.එම්. ෙහේරත් මැතිතුමාටත්, අතිෙර්ක ෙල්කම් සුවිනීතා වලිසුන්දර මහත්මියටත්, ෙරෝස් පනාන්දු මහත්මියටත්, ෙබෞද්ධ කටයුතු ෙකොමසාරිස් ජනරාල්තුමාටත්, කිස්තියානි කටයුතු අධɕක්ෂතුමාටත්, මුස්ලිම් කටයුතු සහ හින්දු කටයුතු අධɕක්ෂතුමන්ලාටත්, මහා භාරකාරතුමාටත් ස්තුතිවන්ත ෙවමින් මෙග් වචන ස්වල්පය අවසාන කරනවා.
+
+[ᾙ.ப 10.56] ගරු තන්ෙග්ෂ්වරී කදිර්ගාමන් ෙමෙනවිය (மாண்ᾗமிகு (ெசல்வி) தங்ேகஸ்வாி கதிர்காமன்) (The Hon. (Miss) Thangeswary Kadirgaman) ெகளரவ தைலைமதாங்கும் உᾠப்பினர் அவர்கேள, இப்ெபாᾨᾐ இங்கு விேசட ெதாிகுᾨᾫக்கு ஆற்ᾠப்பᾌத்தப்பட்ட 21 அைமச்சுக்களினᾐம் நிதி ஒᾐக்கீᾌகள் சம்பந்தமாக விவாதிக் கப்பட்ᾌக் ெகாண்ᾊᾞக்கின்றᾐ. ஆனால், எனக்குக் கிைடத்ᾐள்ள ேநரத்திேல அைவ எல்லாவற்ைறᾜம் ெதாட்ᾌச் ெசல்ல ᾙᾊயாᾐ. இᾞந்தாᾤம் மத அᾤவல்கள், ஒᾨக்க ேமம்பாட்ᾌ அைமச்சு, நீதி, சட்ட மᾠசீரைமப்ᾗ அைமச்சு, திட்டச் ெசயற்பᾌத்ᾐைக அைமச்சு, சிᾠவர் அபிவிᾞத்தி மற்ᾠம் மகளிர் வᾤᾬட்ᾌைக அைமச்சு, அரசியலைமப்ᾗ அᾤவல்கள், ேதசிய ஒᾞைமப்பாட்ᾌ அைமச்சு ஆகியைவ ெதாடர்பாக ஒᾞசில விஷயங்கைள இங்கு ᾙன்ைவக்க லாெமன்ᾠ நிைனக்கின்ேறன்.
+
+இங்கு எனக்கு ᾙன் உைரயாற்றிய மத அᾤவல்கள், ஒᾨக்க ேமம்பாட்ᾌ அைமச்சர் அவர்களிடம் நான் ᾙதற்கண் ஒன்ைறக் கூற விᾞம்ᾗகின்ேறன். அைமச்சர் அவர்கேள! உங்களᾐ அைமச்சுக் குாிய ெசயலாற்ᾠைக அறிக்ைகயில் 'இந்ᾐ' என்ᾠ குறிப்பிடப்பட ேவண்ᾊய எல்லா இடங்களிᾤேம 'ந்ᾐ' என்ᾠ அச்சிடப் பட்ᾌள்ளᾐ. உதாரணமாக, அதன் ெபாᾞளடக்கத்திேல "ந்ᾐ சமய கலாசார அᾤவல்கள் திைணக்களம்" என்ᾠ குறிப்பிடப்பட்ᾌள்ளᾐ. இப்பᾊயாக அதில் பல இடங்களிேல தவᾠகள் காணப்பᾌகின்றன. அேதேநரம் அதன் பின் பக்கத்திேல 'பிைழதிᾞத்தம்' என்ற ஒᾞ குறிப்ᾗ இைணக்கப்பட்ᾌள்ளᾐ. ஆனால், அᾐ இப்ெபாᾨேத கழன்ᾠ விᾨந்ᾐவிடப்ேபாகின்ற நிைலயிேல காணப்பᾌகின்றᾐ. அᾐ விᾨந்ᾐவிட்டால் அந்தப் ᾗத்தகம் எங்குேம 'இந்ᾐ' என்பதற்குப் பதிலாக 'ந்ᾐ' என்ற இரண்ᾌ எᾨத்ᾐக்கேள
+
+2008 ෙදසැම්බර් 05 3207 3208
+
+காணப்பᾌம். ஆனால், இங்கு ெமாழிᾜாிைம, மதᾫாிைம, அᾊப்பைட உாிைம என்ெறல்லாம் ேபசப்பᾌகின்றᾐ. எனேவ, அைமச்சர் அவர்கேள, இனிேமலாவᾐ இவ்வாறான தவᾠகள் ஏற்படாமல் பார்த்ᾐக் ெகாள்ᾦமாᾠ உங்களிடம் நான் ேவண்ᾊக்ெகாள்கின்ேறன். அேதேநரம் நீதி, சட்ட மᾠசீரைமப்ᾗ அைமச்சின் 2008ஆம் ஆண்ᾌக்குாிய ெசயலாற்ᾠ அறிக்ைகயிᾤம் தமிழ்ெமாழியில் சிᾠ சிᾠ தவᾠகள் காணப்பᾌகின்றன. அவற்ைற ᾜம் தவிர்க்கேவண்ᾌம் என்ᾠ கூறி, அᾌத்த விடயத்திற்குச் ெசல்கின்ேறன். இன்ᾠ இங்கு பல அைமச்சுக்கள் பற்றிய விவாதம் நைடெபᾠகின்ற அேதேவைள, ேநற்ᾠப் பாᾐகாப்ᾗ அைமச்சின் மீதான விவாதᾙம் அதற்கு ᾙன்ைனய தினங்களிேல மாகாண சைபகள், உள்ᾧராட்சி அைமச்சு மற்ᾠம் ெபாᾐ நிர்வாக, உள்நாட்ᾌ அᾤவல்கள் அைமச்சு ேபான்ற பல ᾙக்கியமான அைமச்சுக்களின் மீதான விவாதங்கᾦம் இடம்ெபற்றிᾞக்கின்றன. இந்த அைமச்சுக்கள் அைனத்தினᾐம் ெபாᾐ இலக்கு "சிவில் நிர்வாகத்ைத ேமற்ெகாள்ᾦதல், மக்களின் எதிர்பார்ப்ᾗக்கைளப் ᾘர்த்தி ெசய்தல், இலங்ைகத் தீவின் நிர்வாகத்திற்குக் ேகந்திரமான ெபாᾐ நிர்வாகத்ைத அᾙல் ெசய்தல், மக்கᾦக்குச் சிறந்த அரச ேசைவைய வழங்குதல்" என்ᾠ நல்லவிதமாகத்தான் அைமயப் ெபற்றிᾞக்கின்றன. 330 உள்ᾧராட்சி மன்றங்கைளக் ெகாண்ᾌ இயங்குகின்ற மாகாண சைபகள் அைமச்சினᾐ இலக்கும் "மக்களின் எதிர்பார்ப்ᾗக்கைளப் ᾘர்த்தி ெசய்தல், பலம்மிக்க சᾚகம் ஒன்ைறக் கட்ᾊெயᾨப்ᾗதல்" என்பதாகும். அᾐமட்ᾌமல்ல, குறிப்பாகக் கிழக்கு மாகாண சிவில் நிர்வாகத்ைதப் ᾗனரைமப் பᾐம் அதன் ேநாக்கமாகும். இப்பᾊத்தான் இந்த அைமச்சுக்கள் ஒவ்ெவான்றினᾐம் அறிக்ைகயிேல குறிப்பிடப்பட்ᾌள்ளᾐ. அேத ேநரம் அதற்காக நீங்கள் எவ்வளேவா ேவைலத்திட்டங்கைள ேமற்ெகாள்வதாகᾫம் கூᾠகின்றீர்கள். அதாவᾐ, 180 நாள் ேவைலத்திட்டம், 'கமெநகும' ேவைலத்திட்டம் மற்ᾠம் அந்தத் திட்டம், இந்தத் திட்டம் என்ᾠ எவ்வளேவா ேவைலத்திட்டங்கைள கிழக்கு மாகாணத்திேல ேமற்ெகாள்வதாகᾫம் மக்களின் எதிர்பார்ப் ᾗக்கைளப் ᾘர்த்தி ெசய்வதாகᾫம் நீங்கள் கூᾠகின்றீர்கள். ஆனால், இன்ᾠ கிழக்கு மாகாண மக்களின் பிரதிநிதிகள் கிழக்கு மாகாணத்திற்குப் ேபாகாதபᾊ, அங்கு அவர்கள் தங்கள் மக்களின் பணிகளில் பங்குெகாள்ள ᾙᾊயாதபᾊ திட்டமிட்ᾌத் தᾌக்கப்பᾌ கின்றார்கள் அல்லᾐ ᾗறக்கணிக்கப்பᾌகின்றார்கள் என்ற உண்ைமையᾜம் நான் இங்கு கூறிைவக்க விᾞம்ᾗகின்ேறன். கிழக்கு மாகாணத்திேல உள்ள ஜனநாயகம், சிவில் நிர்வாகம், மனித உாிைமகள் பற்றி எல்லாம் மனித உாிைமகள் சம்பந்தப்பட்ட அைமச்சின் மீதான விவாதத்திேல கூறப்பட்டᾐ. ஆனால், அங்கு உண்ைமயில் இப்ெபாᾨᾐ சிவில் நிர்வாகம், ஜனநாயகம் என்பன நைடᾙைறயில் இᾞக்கின்றதா? ேநற்ᾠ பாᾐகாப்ᾗ அைமச்சின் மீதான விவாதத்திேல ேபசிய அைமச்சர்கள் பலர் பலவிதமான கᾞத்ᾐக்கைளக் கூறினார்கள். ஆனால், இன்ᾠ நீங்கள் கிழக்கு மாகாணத்திேல அவசர அவசரமாக ஒᾞ ேதர்தைல நடத்தி ᾙᾊத்ᾐவிட்ᾌ, சர்வேதசத்திற்கு அந்தப் படத்ைதக் காட்ᾊவிட்ᾌ, அங்கு ஜனநாயக ஆட்சி நடக்கின்றᾐ என்ᾠ கூᾠகின்றீர்கள். உண்ைமயிேல இன்ᾠ அங்கு நடப்பᾐ என்ன? இந்தக் கிழைமᾜம் அங்கு மனித உாிைமகள் மீறல்கள் - கப்பம் ேகாரல், ெகாைலகள், கடத்தல்கள் - நைடெபற்றிᾞக்கின்றன. நீங்கள் அங்கு ஜனநாயக ாீதியாகத் ேதர்தைல நடத்தியிᾞப்பதாகᾫம் ஜனநாயக ஆட்சி நிலᾫகின்றᾐ என்ᾠம் கூᾠகின்றீர்கள். அப்பᾊயாயின், இன்ᾠ அங்ேக இராᾎவத்தின் சுற்றிவைளப்ᾗ எதற்காக? அங்கு curfew அᾙல் ெசய்வᾐ எதற்காக? ெசன்ற 29ஆந் திகதி, சனிக்கிழைம மட்டக்களப்ᾗ மாவட்டம் ᾙᾨவᾐம் ஊரடங்கு உத்தரைவப் பிறப்பித்ᾐ வாைழச்ேசைனயில் இᾞந்ᾐ ᾐைறநீலாவைண வைர ᾜள்ள பிரேதசத்ைதச் சுற்றிவைளத்ᾐத் ேதᾌதல் நடத்தினீர்கள். அப்ெபாᾨᾐ அங்கு சுமார் ஐம்பதாயிரத்ᾐக்கும் ேமற்பட்ட மக்கள் சுற்றி வைளக்கப்பட்டார்கள்; 124 ேபர் ைகᾐ ெசய்யப்பட்டார்கள்; பல்லாயிரம் ேபர் விசாரைணக்கு உட்பᾌத்தப்பட்டார்கள். ஆனால், நாங்கள் அᾐ சம்பந்தமாக அங்குள்ள ெபாᾢஸ் தைலைம யிடம் ெதாைலேபசிᾚலம் ெதாடர்ᾗெகாண்ᾌ ேகட்டேபாᾐ, "அங்ேக ஒᾞ பயங்கரவாதக் குᾨ வந்திᾞக்கின்றᾐ, அதைன நாங்கள் ைகᾐ
+
+ெசய்யப்ேபாகின்ேறாம்" என்ᾠ கூறினார்கள். ஆனால், நீங்கள் அங்கு பயங்கரவாதிகளிடமிᾞந்ᾐ கிழக்கு மாகாணத்ைத மீட்ᾌவிட்டதாகக் கூᾠகின்றீர்கள். அᾐ அரச கட்ᾌப்பாட்ᾊᾤள்ள ஓர் இடம் என்றால், அங்கு மக்கள் சுதந்திரமாக வாழேவண்ᾌம்; சட்டம், ஒᾨங்கு அᾙல் நடத்தப்பட ேவண்ᾌம். ஆனால், கிழக்கு மாகாணத்திேல தினᾙம் திடீர் திடீர் என்ᾠ சுற்றிவைளப்ᾗக்கள் இடம்ெபᾠகின்றன. ைகᾐ ெசய்யப் பட்டவர்கள் அங்குள்ள ெபாᾢஸ் நிைலயம் ஒவ்ெவான்றிᾤம் தᾌத்ᾐ ைவக்கப்பட்ᾊᾞக்கின்றார்கள். அங்கு ைகᾐ ெசய்யப்பட்ட சிலர் இன்னᾙம் விᾌவிக்கப்படவில்ைல. சிலர் எங்கு ைவக்கப் பட்ᾌள்ளார்கெளன்ᾠ ேதᾊப் பிᾊக்கேவ ᾙᾊயாமல் இᾞக்கின்றᾐ. நீதி, சட்ட மᾠசீரைமப்ᾗ அைமச்சர் அவர்கேள, கிழக்கு மாகாணத்திேல ெசாத்ᾐச் சுகம், ᾪᾌ வாசல்கள் மற்ᾠம் விைளநிலங்கைள எல்லாம் இழந்ᾐ இடம்ெபயர்ந்ᾐ மீண்ᾌம் அங்கு குᾊயமர்ந்திᾞக்கின்ற மக்கைள சுற்றிவைளப்பᾐ, கடத்ᾐ வᾐ, அவர்களிடம் கப்பம் ேகட்பᾐ, பᾌெகாைல ெசய்வᾐ என்றால், அவர்கᾦைடய வாழ்க்ைக எப்பᾊயிᾞக்கும் என்ᾠ நீங்கேள சிந்தித்ᾐப் பாᾞங்கள்! அவர்கᾦம் மனிதர்கள்தாேன! எனேவ, இதற்குாிய ᾙᾨப் ெபாᾠப்ைபᾜம் நிச்சயமாக அைமச்சர்கᾦம் மற்ᾠம் சம்பந்தப்பட்ட பாᾐகாப்ᾗ அதிகாாி கᾦேம ஏற்ᾠக்ெகாள்ள ேவண்ᾌம். இன்ᾠ கிழக்கு மாகாணத் திᾤள்ள மக்கள் ᾪதிக்கு வர அஞ்சுகின்றார்கள். அதாவᾐ அங்கு எந்ேநரᾙம் சுற்றிவைளப்ᾗ நடக்கும், பிள்ைளகள் ைகᾐ ெசய்யப்பᾌவார்கள் என்ᾠ அவர்கள் பயந்ᾐ, ெவᾞண்ᾌ காணப்பᾌகின்றார்கள். இᾐதான் இன்ᾠ மீட்கப்பட்ட கிழக்கு மாகாணத்தின் நிைலைம! அேதேநரத்திேல, இப்ேபாᾐ மீட்கப்படாத வன்னிப் பகுதியிேல 'ெஷல்' அᾊ, விமானத் தாக்குதல் என்ᾠ ேவெறாᾞ நிைலைம! Cluster குண்ᾌ தயாாிப்ᾗக்கு எதிராக உலகிᾤள்ள 100 நாᾌகள் ஒஸ்ேலாவிேல ஒப்பந்தம் ெசய்திᾞக்கின்றன. ஆனால், இன்ᾠ வன்னிப் பகுதியிேல cluster குண்ᾌத் தாக்குதல் நடத்தப்பᾌவதாக நாங்கள் அறிகின்ேறாம். அᾐமட்ᾌமல்ல, அங்கு ெதாடர்ச்சியான 'ெஷல்' ᾪச்சு! 'கிபிர்' விமானத் தாக்குதல்! ஏற்கனேவ அங்கு ஏற்பட்ட ெவள்ள அனர்த்தம் காரணமாக இலட்சக்கணக்காேனார் அகதிகளாகி இᾞக்க இடமின்றி இᾞக்கின்றார்கள். அங்குள்ள பிள்ைளகளின் பᾊப்ᾗம் சீரழிந்ᾐள்ளᾐ. இன்ᾠ நீங்கள் சிᾠவர் அபிவிᾞத்தி மற்ᾠம் மகளிர் வᾤᾬட்ᾌைக அைமச்சின் ெசயற் பாᾌகள் பற்றிப் ெபᾞைமᾜடன் கூᾠகின்றீர்கள். ஆனால், அங்கு சிᾠவர்கᾦக்கும் தாய்மாᾞக்கும் அநீதி இைழக்கப்பᾌகின்றᾐ. அேதேநரத்திேல கிழக்கு மாகாணத்தில் கடந்த 25ஆந் திகதி ெசவ்வாய்க்கிழைமயிᾢᾞந்ᾐ 2ஆந் திகதி ெசவ்வாய்க்கிழைம வைரயான ஒᾞ வார காலத்திேல 26 ேபர் சுடப்பட்ᾊᾞக் கின்றார்கள். எங்கᾦைடய பிரேதசத்திேல உள்ள நாவற்காᾌ ைவத்திய சாைலயில் கடைமயில் ஈᾌபட்ᾊᾞந்த சிங்கள ைவத்தியர் ஒᾞவர் 16ஆந் திகதி சுட்ᾌக் ெகாைல ெசய்யப்பட்டைத அᾌத்ᾐ, அதன் பின்னர் 25ஆந் திகதி ெசவ்வாய்க்கிழைம கᾦவாஞ்சிக் குᾊயிேல நடத்தப்பட்ட கிைளேமார் தாக்குதல் ஒன்றில் இரண்ᾌ பாᾐகாப்ᾗப் பைட ᾪரர்கள் மரணித்தார்கள். அதன் பின்னர் ெசன்ற ெசவ்வாய்க்கிழைமயிᾢᾞந்ᾐ இந்தச் ெசவ்வாய்க்கிழைம வைரயில் ெதாடர்ச்சியாக கடந்த எட்ᾌத் தினங்களாக ஒᾞ குᾌம்பத்திᾤள்ள தாய், தந்ைத, 80 வயᾐைடய பாட்ᾊ உட்பட இன்ᾔம் பலர் பரவலாக குᾌம்பம் குᾌம்பமாக ெமாத்தமாக 27 ேபர் சுடப்பட்ᾊᾞக் கிறார்கள். அவ்வாᾠ சுடப்பட்டவர்கᾦைடய ெபயர் விபரங்கைள நான் கூறிக்ெகாண்ᾌ ெசல்வதற்கு எனக்கு அளிக்கப்பட்ᾌள்ள ேநரம் ேபாதாமல் இᾞக்கின்றபᾊயால் அவர்கᾦைடய ெபயர் விபரங்கள் அடங்கிய ஆவணத்ைதச் சபாபீடத்தில் *சமர்ப்பிக்கின்ேறன். ஆனால், இவர்கள் அைனவᾞம் ᾗᾢகᾦைடய உறவினர்கள் அல்லᾐ ᾗᾢகᾦக்கு உதவி வழங்குபவர்கள் என்ᾠ பட்டம் சூட்டப்பட்ᾊᾞக்கிறᾐ.
+
+4 - PL 003633 - (2009/01)
+
+* පුස්තකාලෙය් තබා ඇත. ᾓனிைலயத்தில் ைவக்கப்பட்ᾌள்ளᾐ. Placed in the Library.
+
+පාර්ලිෙම්න්තුව 3209 3210
+
+அப்பᾊயாயின் இவர்கைளக் ெகான்ற வர்கள் யார்? என்ᾠ நான் ேகட்க விᾞம்ᾗகின்ேறன். ஏெனனில், அவர்கள் ᾗᾢகள் என்ᾠம் ᾗᾢகᾦடன் சம்பந்தப்பட்டவர்கள் என்ᾠம் ᾗᾢகᾦைடய உறவினர்கள் என்ᾠம் கூறினால் இவர்கைளக் ெகான்றவர்கள் யார்? எனக் ேகட்கின்ேறன். நீதிᾜம் சட்டமᾠசீரைமப்ᾗம் பாᾐகாப்ᾗம் ெபாᾐமக்கள் பாᾐகாப்ᾗம் ஒᾨங்கும் ஒᾞங்கைமந்ᾐ சிவில் நிர்வாகம் நைடᾙைறப்பᾌத் தப்பட்ᾊᾞப்பதாகக் கூறப்பᾌகின்ற ஓர் இடத்திேல உள்ளவர்கள் - நீங்கள் கூᾠம் ᾗᾢகள், ᾗᾢகளின் அᾔசரைணயாளர்கள் - சுடப்பட்டதற்கான ெபாᾠப்ைப அரசாங்கᾙம் பாᾐகாப்ᾗ அைமச்சுேம ஏற்கேவண்ᾌம். கிழக்கு மாகாணத்திேல நவம்பர் மாதத்தில் இந்த 27 ேபர் உட்பட ெமாத்தம் 60 ேபர் சுடப்பட்ᾊᾞக்கிறார்கள். இைவ அைனத்ᾐம் பத்திாிைககளிᾤம் மற்ᾠம் ஊடகங்களிᾤம் நிதர்சனமாக ெவளிவந்த ெசய்திகள். அᾐமட்ᾌமல்ல, அம்பாைற மாவட்டத்திᾤம் அேதேபான்ற சம்பவங்கள்தான் நைடெபᾠகின்றன. அம்பாைற மாவட்டத்திேல ெசன்ற மாதம் 10ஆந் திகதி வைரயில் ஆᾜதக்குᾨக்களினால் பத்ᾐப் ேபர் வைரயில் ைகᾐ ெசய்யப்பட்ᾊᾞக்கிறார்கள். அேதேபான்ᾠ கடத்தல்கᾦம் நைடெபற்றவண்ணம் இᾞக்கின்றன. நான் இங்கு இரண்ᾌ உதாரணங்கைள மட்ᾌம் ᾙன்ைவக்க விᾞம்ᾗகின்ேறன். ெபாᾢஸ் நிைலயம், இராᾎவ அரண்கள் என்பவற்றினால் சூழப்பட்ட ஓர் உயர் பாᾐகாப்ᾗ வலயத்திேலேய மட்டக்களப்ᾗ ெபாிய ஆஸ்பத்திாி அைமந்ᾐள்ளᾐ. பாᾐகாப்ᾗக் கடைமயில் இᾞக்கின்ற இராᾎவத்தினர் நிைறந்ᾐள்ள அந்த உயர் பாᾐகாப்ᾗ வலயத்திேலேய எமᾐ உப தபாலதிபர் விநாயகᾚர்த்தி சசிதரன் என்பவர் கடத்தப்பட்ᾊᾞக்கிறார். பாᾐகாப்ᾗப் பைடயினரால் சூழப்பட்ᾌள்ள அத்தைகய பாᾐகாப்ᾗ வலயத்திᾢᾞந்ேத இந்தத் தபாலதிபர் கடத்தப்பட்ᾊᾞப்பதால் இந்தக் கடத்தல் சம்பவத்ᾐக்கு யார் ெபாᾠப்ᾗ? என்ற ேகள்விைய நான் ேகட்க விᾞம்ᾗகின்ேறன். நீங்கள் கூᾠவᾐேபால் இந்தப் பிரேதசத்தில் பாᾐகாப்ᾗம் சட்டᾙம் ஒᾨங்கும் இᾞக்கின்றதாயின், இவர் எப்பᾊக் கடத்தப்பட்டார்? இேத ேபான்ᾠதான் வᾫணதீவில் உள்ள பிரேதச ெசயலகத்ᾐக்குப் பக்கத்திᾤம் ஒᾞவர் பி.ப.3.00 மணிக்குக் கடத்தப்பட்ᾊᾞக்கிறார். அந்தப் பிரேதச ெசயலகத் ᾐக்குச் சமீபமாக அதைனச் சுற்றிவர இராᾎவ ᾙகாம் அைமக்கப்பட்ᾌ இராᾎவத்தினர் காவᾢல் இᾞப்பᾐ எனக்குத் ெதாிᾜம். எனேவ, இவ்வாᾠ பாᾐகாப்ᾗ அதிகமாக உள்ள இப்பிரேதசத்திேலேய கடத்தல் சம்பவங்கᾦம் ெகாைலச் சம்பவங்கᾦம் நைடெபᾠகின்றன என்பதைன இங்கு நான் குறிப்பிட விᾞம்ᾗகின்ேறன்.
+
+அᾌத்ததாக, அன்ைறய இலங்ைகயின் ேமதகு ஜனாதிபதி ேஜ.ஆர். ஜயவர்தனவினாᾤம் காலஞ்ெசன்ற இந்தியப் பிரதமர் ெகளரவ ராஜீவ் காந்தி அவர்களாᾤம் 1987ஆம் ஆண்ᾊேல ைகச்சாத்திடப்பட்ட இலங்ைக - இந்திய ஒப்பந்தத்ைதப் பற்றி இந்தப் பாராᾦமன்றத்திேல அᾊக்கᾊ ெசால்லப்பᾌவைதக் ேகட்ᾌக் ேகட்ᾌ எமக்குப் ᾗளித்ᾐப்ேபாய்விட்டᾐ. நான் இதைனயிட்ᾌ விபாித்ᾐக் கூறேவண்ᾊய அவசியமில்ைல. ஆனால் நான் ஒன்ைற மட்ᾌம் இங்கு கூற விᾞம்ᾗகின்ேறன். அதாவᾐ, சர்வகட்சி மகாநாட்ᾊல் எᾌக்கப்பᾌம் தீர்மானங்கள் ᾚலம் இந்த நாட்ᾊல் ஏற்பட்ᾌள்ள பிரச்சிைனகᾦக்குத் தீர்ᾫ காண்பᾐ பற்றி இங்கு கᾞத்ᾐக்கள் ᾙன்ைவக்கப்பᾌகின்றன. ஆனால், இந்த சர்வ கட்சி மகாநாᾌ 85 தடைவகள் கூᾊயெபாᾨதிᾤம் இன்ᾠ வைரயில் எந்த ஒᾞ ᾙᾊᾫக்கும் வரவில்ைல. இந்த நிைலயிேல இன்ᾠ இங்கு பல சுவாரசியமான சம்பவங்கள் நடந்ᾐள்ளன. இந்த நாட்ᾊேல பிரச்சிைனக்குாிய மக்கள் சிᾠபான்ைம மக்கள்தாம். இந்தச் சர்வகட்சி மகாநாட்ᾊல் பிரச்சிைனகைள எதிர்ேநாக்குகின்ற இச்சிᾠபான்ைம மக்கᾦைடய பிரதிநிதிகள் யாராவᾐ பங்ேகற்கின்றார்களா? இல்ைல! அந்த மக்கᾦைடய அபிலாைஷகைளத் ெதாிந்தவர்கள் அந்த மக்கᾦம் அந்த மக்கᾦைடய பிரதிநிதிகᾦம் மட்ᾌம்தான். சிᾠபான்ைம மக்கள் தமᾐ அபிலாைஷகைள நிைறேவற்ᾠம் ெபாᾞட்ᾌத் ெதாிᾫெசய்ᾐ இப்பாராᾦமன்றத்ᾐக்கு அᾔப்பிᾜள்ள பிரதிநிதிகள் இன்ᾠ ெவளிேய இᾞக்கிறார்கள். இன்ᾠ அவர்கள் இல்லாம ேலேய
+
+சர்வகட்சி மகாநாᾌ நைடெபற்ᾠக் ெகாண்ᾊᾞக்கின்றᾐ. பிரச்சிைனகைளப் பற்றி அறியாதவர்களால் எவ்வாᾠ இப்பிரச்சி ைனையத் தீர்க்க ᾙᾊᾜம்? என்ᾠ ேகட்க விᾞம்ᾗகின்ேறன்.
+
+1987ஆம் ஆண்ᾊேல ெசய்ᾐ ெகாள்ளப்பட்ட இலங்ைக-இந்திய ஒப்பந்தத்தின் பிரகாரம் 1988 நவம்பர் மாதம் 18ஆந் திகதி வடக்கு-கிழக்கு மாகாணத்ᾐக்கான ேதர்தல் நடத்தப்பட்டᾐ. அதன் பின்னர் உᾞவாகிய வடக்கு-கிழக்கு மாகாண சைப வந்த ேவகத்திேலேய கைலந்ᾐவிட்டᾐ. ஏன்? அதிேல உப்ᾗச் சப்ᾗ எᾐᾫேம இல்ைல என்ற காரணத்தினால் ஈழப் பிரகடனம் ெசய்ᾐவிட்ᾌச் சைப ᾙதல்வர் நாட்ைடவிட்ᾌ ெவளிேயறினார். இதற்கு, தமிழர் விᾌதைலக் கூட்டணித் தைலவராகிய ெகளரவ ஆனந்தசங்காி அவர்கள் குறிப்பிட்ட ஒᾞ கᾞத்ைதக் கூற விᾞம்ᾗகின்ேறன். "1987ஆம் ஆண்ᾊல் ஏற்பட்ட காயத்ᾐக்கு சிகிச்ைச ெசய்தெபாᾨᾐ அளித்த மᾞந்ைத, 20 வᾞடங்களின் பின்னர் ஏற்பட்ᾌள்ள ᾗற்ᾠ ேநாய்க்குக் ெகாᾌப்பதன்ᾚலம் என்ன பயன் ஏற்படப் ேபாகின்றᾐ" என்ᾠ அவர் கூறியிᾞக்கின்றார். அᾐதான் இப்ேபாᾐம் நடந்ᾐெகாண்ᾊᾞக்கின்றᾐ. இᾐதான் யதார்த்தம். இந்த வைகயிேல, ேகால்ᾗᾡக், ெடானᾚர் ேபான்ற பல ஆைணக்குᾨக்கள் ᾚலம் சிᾠபான்ைமயினரான தமிழ் மக்களின் பிரச்சிைனகᾦக்கு உாிய தீர்ᾫ கிைடக்கவில்ைல.
+
+1956ஆம் ஆண்ᾌ 'சிங்களம் மட்ᾌம் அரச கᾞமெமாழி' என்ᾠ சட்டம் ெகாண்ᾌவரப்பட்டᾐ. 1971இேல ெகாண்ᾌவரப்பட்ட தரப்பᾌத்தலால், சர்வகலாசாைலக்குத் ெதாிவாகேவண்ᾊய எங்கᾦைடய மாணவர்கள் பலர் பாதிக்கப்பட்டார்கள்; ேவைல வாய்ப்ᾗக்கள் இழக்கப்பட்டன. 1983ஆம் ஆண்ᾌ ஏற்பட்ட ஜூைல கலவரம் காரணமாகப் பல்லாயிரக் கணக்கான தமிழ் மக்கᾦைடய உைடைமகள், ெசாத்ᾐக்கள், உயிர்கள் எல்லாம் அழித்ெதாழிக் கப்பட்டன. 1972ஆம் ஆண்ᾌ அரசியல் யாப்ᾗ திᾞத்தத்திற்குத் தமிழ் தைலவர்கள் பல ேயாசைனகைள ᾙன்ைவத்தார்கள். அதாவᾐ, ெமாழிக்குச் சம அந்தஸ்ᾐ; நாᾊழந்தவர்கᾦக்கு பிரஜாᾫாிைம; ஒᾞ மதத்திற்ேகா அல்லᾐ ஓாினத்ᾐக்ேகா விேசட சᾤைக காட்டாᾐ அரசு ெபாᾐ நிᾠவனமாக இயங்க ேவண்ᾌம் என்பᾐ ேபான்ற ேகாாிக்ைககைள அவர்கள் ᾙன்ைவத்தார்கள். ஆனால், அரசு ஒᾞ ெபாᾐ நிᾠவனமாக இயங்கேவண்ᾌெமன்ற அந்த ேயாசைன இன்ᾠவைர இங்கு ெசயற்பᾌத்தப்பᾌகின்றதா? இல்ைல. அக்ேகாாிக்ைககள் எல்லாவற்ைறᾜம் ᾗறந்தள்ளிவிட்ᾌ அவசர அவசரமாகக் கிழக்கு மாகாண சைபத் ேதர்தல் நடத்தப்பட்டᾐ. அந்தத் ேதர்தல் எப்பᾊ இᾞந்தெதன்றால், 'ேநாய் வாய்ப்பட்டவன் இᾞக்க, ெதᾞவால் ேபானவᾔக்கு மᾞந்ᾐ ெகாᾌத்த கைத' ேபான்ᾠதான் இᾞந்தᾐ. தமிழ் மக்களின் அபிலாைஷகைளப் ᾗறந்தள்ளிவிட்ᾌ இந்தத் ேதர்தைல நடத்தி ᾙᾊத்தீர்கள். இப்ெபாᾨᾐ கிழக்கு மாகாணம் ஒᾞ ᾜத்த களமாகக் காட்சியளிக்கின்றᾐ. அதன்ᾚலம் தமிழ் மக்களின் அபிலாைஷகள் நிைறேவற்றப்பட்டதா? இல்ைல. அவர்கᾦக்கு நிம்மதிதான் கிைடத்ததா? அᾐᾫம் இல்ைல. கிழக்கு மாகாணத்திேல இப்ேபாᾐ ெதாடர்ச்சியாக ஊரடங்குச் சட்டᾙம் சுற்றிவைளப்ᾗம் ைகᾐகᾦம் கடத்தல்கᾦம் ெகாைலகᾦம் கப்பம் ேகாரல்கᾦம்தான் நடந்ᾐெகாண்ᾊᾞக்கின்றன. கடந்த 04.11.2008ஆம் திகதி சக்தி ாி.வி.யிேல KE - 3656 என்ற ஒேர இலக்கᾙைடய இரண்ᾌ வான்கள் காட்டப்பட்டன. இைவ கடத்தல் சம்பவங்கᾦக்காக பாவிக்கப்பᾌகின்ற வான்களாக இᾞக்கலாம். அண்ைமயிேல கட்ᾌநாயக்கவில் ைவத்ᾐ மட்டக் களப்ைபச் ேசர்ந்த ஒᾞ ைபயன் கடத்தப்பட்ᾊᾞக்கிறான். அங்கு அவைனக் கடத்திச் ெசன்ற வான் HA - 9568 என்ற இலக்கத் தகᾌைடயᾐ. அந்த இலக்கத்ைதக் ெகாண்ட இᾞ வான்கள் ெகாᾨம்பிᾤம் திᾞேகாணமைலயிᾤம் இᾞப்பதாக அறிகின்ேறன். கைடசியாக அவன் திᾞேகாணமைலயிேல விᾌவிக்கப்பட்டான். இப்பᾊத்தான் இங்கு சட்டᾙம் ெபாᾢஸ் பாᾐகாப்ᾗம் இᾞக்கின்றᾐ. கப்பம் ேகாரல், கடத்தல் ேபான்ற சம்பவங்கᾦக்கு இத்தைகய வான்கள்தான் பாவிக்கப்பᾌகின்றன.
+
+[ගරු තන්ෙග්ෂ්වරී කදිර්ගාමන් ෙමෙනවිය]
+
+2008 ෙදසැම්බර් 05 3211 3212
+
+இங்கு இன்ᾔெமாᾞ ேகாாிக்ைகையᾜம் ᾙன்ைவக்கின்ேறன். மாகாண சைபகளின் அதிகாரம் பற்றி இங்கு பலர் பிரஸ்தாபித் தார்கள். ெபாᾢஸ், காணி, கல்வி ேபான்ற அதிகாரங்கள் எᾐᾫேம மாகாண சைபக்கு வழங்கப்படவில்ைல. மாகாண சைபகள் சட்ட விதிகᾦக்ேகற்ப, இலங்ைக ெபாᾢஸ் ேசைவயில் ேதசிய பிாிᾫ, மாகாணப் பிாிᾫ என இல்ைல. காணி விடயத்திᾤம் அைவ மாகாண சைபகளின் ஆேலாசைனப்பᾊ ஜனாதிபதியால் பகிர்ந்தளிக்கப்பᾌம் என்ேற உள்ளᾐ. மாகாணங்களில் உள்ள அபிவிᾞத்தியைடந்த பாடசாைலகைள 'ேதசிய பாடசாைலகள்' என அரசு ெகாள்ள ᾙᾊᾜம். அேதேநரம், மாகாண சைபகᾦக்கு வழங்கப்பட்ட அதிகாரங்கைள அரசாங்கம் நிைனத்தால் மீளப் ெபற ᾙᾊᾜம். இப்பᾊயான ஒᾞ மாகாண சைப ᾙைறைமதான் இங்கிᾞக்கின்றᾐ. எனேவ, மாகாண சைபயின் அதிகாரம் எத்தைகயᾐ என்பைதப் பாᾞங்கள்! அந்த வைகயில், இந்த கிழக்கு மாகாண சைப ஒᾞ காட்சிப் ெபாᾞள் ேபான்ᾠதான் இᾞக்கின்றᾐ. அைத ஒᾞ மாகாண சைபயாக ஏற்ᾠக்ெகாள்ள ᾙᾊயாᾐ. அதன் அதிகாரம் எத்தைகயᾐ என்பதற்கு உதாரணமாக, இப்ேபாᾐ அங்கு நடந்ᾐெகாண்ᾊᾞக்கும் சுற்றிவைளப்ᾗ, ேதᾌதல், கப்பம், கடத்தல் ேபான்ற சம்பவங்கைளக்கூட அதனால் கட்ᾌப்பᾌத்த ᾙᾊயாதிᾞப்பைதக் குறிப்பிடலாம். மட்டக்களப்ᾗ மாவட்டத்தில் நைடெபᾠம் ெகாைலகᾦக்கு கிழக்கு மாகாண சைப ᾙதலைமச்சேர ெபாᾠப்ேபற்க ேவண்ᾌெமன்ᾠ அம்மாகாண சைப உᾠப்பினர்கள் அறிக்ைக விᾌத்திᾞப்பைத நான் பத்திாிைகயில் பார்த்ேதன்.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු මන්තීතුමියනි, විනාඩියකින් අවසන් කරන්න. You have one more minute.
+
+ගරු තන්ෙග්ෂ්වරී කදිර්ගාමන් ෙමෙනවිය (மாண்ᾗமிகு (ெசல்வி) தங்ேகஸ்வாி கதிர்காமன்) (The Hon. (Miss) Thangeswary Kadirgaman) ஆம். அவசரகாலச் சட்டம் சம்பந்தமான ஒᾞ விடயத்ைதக் கூறி நான் எனᾐ உைரைய ᾙᾊத்ᾐக்ெகாள்கின்ேறன். அவசரகால சட்ட விதிகளின்கீழ் ைகᾐ ெசய்யப்பᾌம் ஒᾞவர் பற்றி உடனᾊயாக அவரᾐ ெபற்ேறாᾞக்ேகா கணவᾞக்ேகா அல்லᾐ மைனவிக்ேகா அல்லᾐ ெநᾞங்கிய உறவினᾞக்ேகா அறிவிக்கப்படல் ேவண்ᾌம். ஆனால், அப்பᾊ அறிவிக்கப்பᾌவதில்ைல. அன்ᾠ மட்டக் களப்பிேல பிᾊபட்ட ஒᾞ ைபயன் பற்றிய தகவல்கைள அறிந்ᾐ ெகாள்வதற்காக நான் வாைழச்ேசைன ெதாடக்கம் ஏறாᾬர், ெசங்கலᾊ, மட்டக்களப்ᾗ, கᾦவாஞ்சிக்குᾊ, காத்தான்குᾊ ேபான்ற ஒவ்ெவாᾞ ெபாᾢஸ் நிைலயத்ᾐடᾔம் ெதாடர்ᾗெகாண்ேடன். எல்லா இடங்களிᾤம் ேதᾊᾜம் அவன் எங்கிᾞக்கிறான் என்பைத கைடசிவைர என்னால் கண்ᾌபிᾊக்க ᾙᾊயவில்ைல. இப்ேபாᾐ அவன் விᾌவிக்கப்பட்ᾊᾞக்கின்றான். ஒᾞ பாராᾦமன்ற உᾠப்பினᾞக்ேக இந்த நிைல என்றால், பாதிக்கப்பᾌம் அந்த குᾌம்பங்களின் கதி என்னெவன்பைத நிைனத்ᾐப் பாᾞங்கள்! இத்தைகயெதாᾞ நீதி, சட்டம் ஒᾨங்கு நிைலைமதான் இந்த நாட்ᾊல் இᾞக்கின்றᾐ. ெசன்ற 17ஆம் திகதிவைர, கடத்தல் மற்ᾠம் காணாமற்ேபாேனார் சம்பந்தமாக விசாரைண ெசய்ᾜம் குᾨᾫக்கு 265 ᾙைறப்பாᾌகள் கிைடக்கப்ெபற்றிᾞப்பதாக பிரதி அைமச்சர் ெகளரவ இராதாகிᾞஷ்ணன் அவர்கᾦைடய அறிக்ைக கூᾠகிறᾐ. இப்பᾊப் பலவிதமான குளᾠபᾊகள் நாட்ᾊல் நிலᾫகின்றன. ேநரம் ேபாதாைமயால் என்ᾔைடய ேபச்ைசத் ெதாடர ᾙᾊயாத நிைலயில், நான் குறிப்பிட்ட விடயங்கைளச் சம்பந்தப்பட்ட அைமச்சர்கள் கவனத்திற்ெகாண்ᾌ, உாிய நடவᾊக்ைககைள எᾌக்கேவண்ᾌெமன்ᾠ ேகாாி, எனᾐ உைரைய இத்ᾐடன் நிைறᾫெசய்கின்ேறன். நன்றி.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ෙබොෙහොම ස්තුතියි. මීළඟට ගරු මහින්ද යාපා අෙබ්වර්ධන ඇමතිතුමා.
+
+[පූ.භා. 11.14] ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (සංස්කෘතික කටයුතු අමාතɕතුමා)
+
+(மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன - கலாசார அᾤவல்கள் அைமச்சர்)
+
+(The Hon. Mahinda Yapa Abeywardene - Minister of Cultural Affairs)
+
+මූලාසනෙය් වැඩ සිටින ගරු ස්වාමීන් වහන්ෙසේෙගන් අවසරයි. ෙම් අවස්ථාෙව් මා සතුටු වනවා, පසු ගිය 2008 වසර තුළ සංස්කෘතික කටයුතු අමාතɕාංශය ෙම් රෙට් සංස්කෘතිය ෙවනුෙවන් කරන ලද ෙසේවය පිළිබඳව ඉතා සංක්ෂිප්තව සඳහන් කරන්න ලැබීම ගැන. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, පසු ගිය වසරක කාල සීමාව තුළ සංස්කෘතික මධɕස්ථාන රාශියක් විවෘත කරලා, ජාතික චාරිත වර්ෂය ෙලස ෙමම වර්ෂය නම් කරලා විශාල වැඩ ෙකොටසක් කළා. ජාතික සාහිතɕ කලා මෙහෝත්සවය කඹුරුපිටිෙය් ඉතාමත් උත්කර්ෂවත් අන්දමින් පැවැත්වූවා. එයින් විශාල ජනතා පෙබෝධයක් ඒ පෙද්ශය තුළත්, ඒ වාෙග්ම රට තුළත් අපට දකින්නට ලැබුණා. ඒ අතෙර් පසු ගිය කාල වකවානුෙව් ''ෙසෙනහස'' වැඩසටහන නමින් අප ඉතාමත්ම සංෙව්දී වැඩසටහනක් කියාත්මක කළා, ගර්භනී මාතාවන් ෙවනුෙවන්. ගර්භනී මාතාවන්ෙගන් සමාජයට තිෙබන වග කීමත්, ඒ වාෙග්ම සමාජෙයන් ෙදමාපියන් ෙවනුෙවන් තිෙබන වග කීමත්, මාපියන් ෙදෙදනාට තමන්ෙග් කුසෙය් ඉන්න දරුවා ෙවනුෙවන් තිෙබන වග කීමත් පිළිබඳ ඉතාමත් සංෙව්දී, රස වින්දන වැඩසටහනක් අප කියාත්මක කළා. ෙම්ක සෑම වර්ෂයකම කියාත්මක කරන්න අප බලාෙපොෙරොත්තු වනවා.
+
+ජාතික උත්සව සියල්ලටම - නිදහස් උත්සවය, ෙවසක් උත්සවය, ෙපොෙසොන් උත්සවය, විශ්ව ළමා දිනය- සංස්කෘතික කටයුතු අමාතɕාංශෙය් මූලිකත්වෙයන් විශාල වැඩ ෙකොටසක් කරන්නට ලැබුණා, මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස. ඒ වාෙග්ම මෑත ඉතිහාසෙය් අප ඉතා වැදගත් කර්තවɕයක් ඉටු කළා. ඒ තමයි ''මාතර වංශය'' නම් ගන්ථය එළි දැක්වීම. ඒ පෙද්ශෙය් විද්වතුන්, විශ්වවිදɕාල මහාචාර්යවරුන් සියලු ෙදනාම සම්බන්ධ කර ෙගන, ඒ පෙද්ශෙය් පැරණි සාහිතɕය වර්ධනය සඳහා සහ ඒ ෙතොරතුරු ජනතාවට දැන ගැනීම සඳහා සාහිතɕ කලා මෙහෝත්සවය අරමුණු කර ෙගන එම වටිනා ගන්ථය නිර්මාණය කළා. අප ඉතාමත්ම සන්ෙතෝෂෙයන් පකාශ කරන්න කැමැතියි, මෑත ඉතිහාසෙය් ලැබුණු විශාලම විෙද්ශාධාර පමාණය පසු ගිය වසෙර් දී සංස්කෘතික ක්ෙෂේතය ට ලැබුණු බව. අප සතුටු වනවා, ඒ සඳහා අපට දායකත්වයක් ලබා ෙදන්න ලැබීම ගැන.
+
+ෙම් වන ෙකොට රුපියල් බිලියන ෙදකක චීන ආධාර යටෙත් ෙකොළඹ ෙනොමැඩ්ස් කීඩාංගණෙය් පාසාංගික කලා මධɕස්ථානයක් ඉදි ෙවමින් පවතිනවා. ඊට අමතරව, ජපන් ආධාර ඇතිව සීගිරිය ෙකෞතුකාගාරෙය් කටයුතු අවසාන කර තිෙබනවා. ඒ වාෙග්ම ෙනදර්ලන්ත ආධාර යටෙත් මාතර තාරකා ෙකොටුව, කටුවන ලන්ෙද්සි ෙකොටුව, කතරගම ෙකෞතුකාගාරය, පැරණි ඌරුෙබොක්ක ෙව්ල්ල සංරක්ෂණය කිරීම, දකුණු පළාෙත් සංස්කෘතික වශෙයන් වැදගත් ස්ථාන රාශියක සංචාරක කටයුතු නඟා සිටු වීම, මාතර ලන්ෙද්සි පල්ලිය සංරක්ෂණය කිරීම සිදු වනවා. එෙමන්ම ගාලු ෙකොටුව සම්පූර්ණෙයන්ම වාෙග් පතිසංස්කරණය කරලා ෙදසැම්බර් 31 වන විට ඒ කටයුතු අවසාන කරන්න අපි සැලසුම් කරලා තිෙබනවා, මුලාසානරූඪ ගරු ස්වාමීන් වහන්ස.
+
+ඒ වාෙග්ම ජපානෙය් ජනතාවට අෙප් සංස්කෘතිය ෙහළි දැක්වීම සඳහා අපි ජපානෙය් ෙටෝකිෙයෝ නුවර ඉතාමත් සාර්ථක පදර්ශනයක් පැවැත්වුවා. අපට ලැබී තිෙබන සංඛɕා ෙල්ඛන අනුව ලක්ෂයකට අධික පිරිසක් ඒ පදර්ශනය නරඹා තිෙබනවා. ජපානෙය් අධිරාජයාත් ඒ පදර්ශනය නැරඹීමට පැමිණියා. ඒක ඉතා කලාතුරකින් සිදු වන සිද්ධියක්. ඒ නිසා අෙප් ලංකාවට ඒ රෙට් තිෙබන ෙගෞරවය අතිවිශාල අන්දමින් වැඩි කර ගන්නට හැකි වුණා. අප ෙවනුෙවන් ඒ රෙට් තිෙබන ෙගෞරවය කුමක්ද කියන
+
+පාර්ලිෙම්න්තුව 3213 3214
+
+එක ෙත්රුම් ගිෙය් ඒ අධිරාජයා ෙම් පදර්ශනය නරඹන්නට පැමිණිලා, ෙම් රෙට් වටිනා පුරා වස්තු ඒ රටට ෙගනිහිල්ලා ඒ රෙට් ජනතාවට දැක ගන්නට අවස්ථාවක් ලබා දීම ගැන එතුමා විශාල පසාදයක් දැක්වීම නිසායි. ඒ වාෙග්ම ඒ රෙට් හිටපු අගමැතිවරයා ඇතුළු රජෙය් පධාන නිලධාරින් සියලු ෙදනාම ඒ පදර්ශනය නරඹන්නට පැමිණීම ශී ලංකාවට කරන ලද විශාල ෙගෞරවයක් හැටියටයි අපි විශ්වාස කරන්ෙන්. ඒ වාෙග්ම අනුරාධපුර සමාධි පිළිමෙය් විශාල ෛශලමය අනුරුවක් සකස් කරලා චීනෙය් ජනතාවට අපි පරිතɕාග කළා. සංස්කෘතිකමය වශෙයන් චීනය සහ ශී ලංකාව අතර තිෙබන වසර දහස් ගණනක් පැරණි සම්බන්ධතාව තවදුරටත් තහවුරු කර ගැනීමටත්, ඒ වාෙග්ම ෙම් වන විට චීන ජනතාව ශී ලංකාවට ලබා ෙදන ආධාර, සැලකිල්ල තව දුරටත් වර්ධනය කර ගැනීමටත් ෙම් සිද්ධිය විශාල ෙහේතුවක් වුණා. ඒ ෙහේතුව නිසාම තමයි රුපියල් බිලියන ෙදකක වාෙග් විශාල ආධාරයක් අෙප් රටට ලැබුෙණ්. අෙප් අතිගරු ජනාධිපතිතුමාත් ඒ අවස්ථාවට සහභාගි ෙවලා, සංස්කෘතිමය වශෙයන් චීන රජෙය්ත්, ශී ලංකා රජෙය්ත් තිෙබන සහෙයෝගිතාව පිළිබඳ කරුණු ඉදිරිපත් කරලා, ෙලොකු ශක්තියක්, ෛධර්යයක් අපට ලබා දුන්නා. ඒ වාෙග්ම පාසාංගික කලා මධɕස්ථානෙය් වැඩ කටයුතු කර ෙගන යනවා. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, පසු ගිය වකවානුෙව් නැ ෙඟනහිර පළාත මුදා ගත්තාට පස්ෙසේ, ඒ පළාෙත් තිෙබන අෙප් පුරාවස්තු පුනරුත්ථාපනය කිරීම සඳහා විශාල වැඩ ෙකොටසක් කර ෙගන ගියා. මට නියමිත ෙවලාව අවසාන නිසා මම කථාව අවසාන කරයි කියා ඔබවහන්ෙසේ මෙග් මුහුණ බලා ෙගන ඉන්නවා වුණත් මට ෙම් සියල්ලම විනාඩි දහයක වාෙග් කාලයකින් කියලා අවසාන කරන්න බැහැ. 1 ඉදිරි කටයුතු කර ෙගන යන්නට අපි විශාල වශෙයන් විෙද්ශ ආධාර බලාෙපොෙරොත්තු ෙවනවා. ඒ පෙද්ශෙය් පුරා විදɕාත්මක වටිනාකමක් ඇති පැරණි සිද්ධස්ථාන පුනරුත්ථාපනය කරලා, නැ ෙඟනහිර පළාෙත් අෙප් උරුමය, නැ ෙඟනහිර පළාෙත් ජනතාවට, ඒ වාෙග්ම අෙප් රෙට් ජනතාවට නැවත වාරයක් ලබා දීම සඳහා විශාල වැඩ ෙකොටසක් දැනටමත් අපි කියාත්මක කර ෙගන යනවා. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, ඊට අමතරව අෙප් නාටɕ කලාව, සංගීතය යන ඒ අංශ ගැනත් මා සඳහන් කරන්නට කැමැතියි. අද සවසට අෙප් පසිද්ධ රැඟුම් පාලක මණ්ඩලය ගැන ෙවනම විවාදයක් තිෙබනවා. ඒ අවස්ථාෙව්දී මා ඒ කටයුතු ගැන සඳහන් කරන්නම්. ෙම් වර්ෂය පුරාම අෙප් නාටɕ කණ්ඩායම් විවිධ රටවල සැරිසරා අෙප් රෙට් අනනɕතාව පිළිබඳව අපට විශාල ෙගෞරවයක් ලබා දීලා තිෙබනවා. ඒ කටයුතු කරන්න අපට සහෙයෝගය ලබා දුන් සියලුම නිලධාරින්ට මෙග් ස්තුතිය පිරිනමනවා. ඒ වාෙග්ම ෙල්කම්තුමා ඇතුළු අෙප් අමාතɕාංශය යටෙත් සිටින මණ්ඩලවල සභාපතිවරුන්, සියලුම ෙජɕෂ්ඨ නිලධාරින්, කනිෂ්ඨ නිලධාරින් ඇතුළු සියලු ෙදනාටම මෙග් ෙගෞරවණීය ස්තුතිය ෙම් අවස්ථාෙව් දී අපට ලබා දුන් ශක්තිය ෙවනුෙවන් පළ කරමින් මෙග් වචන ස්වල්පය මා හමාර කරනවා. මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ෙබොෙහොම ස්තුතියි, ගරු ඇමතිතුමනි. [පූ.භා. 11.22] ගරු එම්.එච්. ෙමොහමඩ් මහතා (පාර්ලිෙම්න්තු කටයුතු අමාතɕතුමා)
+
+(மாண்ᾗமிகு எம்.எச். ᾙஹம்மத் - பாராᾦமன்ற அᾤவல்கள் அைமச்சர்)
+
+(The Hon. M.H. Mohamed - Minister of Parliamentary Affairs)
+
+Venerable Presiding Member, I would like to offer my congratulations on the Budget for the year 2009. Our Government has allocated Rs. 328,000,000 for next year
+
+to provide facilities for all Members of Parliament irrespective of their political philosophy, religious background, ethnicity and all other differences.
+
+First of all, I must thank His Excellency the President for his enormous support given to my Ministry. My aim is to use the money allocated to my Ministry to provide necessary facilities for all Members of Parliament enabling them to deliver more efficient and effective service to the people of this country equally.
+
+We use this money for providing office equipment for the Members, appointing personal staff to the Members and providing training for the staff. We conduct training programmes on Office Procedures, Public Relations, Human Rights, Productivity. Managing Decentralized Budget, Computer Applications and Parliamentary Procedures. We conducted training programmes in the Eastern Province, Central Province, Sabaragamuwa Province, Western Province and in the Galle District.
+
+We are spending Rs. 150,500,000 per month to pay the salaries of staff of the Members namely, research assistant, secretary, typist, KKS and driver. We pay a gratuity once the appointment is terminated. For this purpose, we have received Rs. 6,500,000 for the year 2008 from the General Treasury and arrangements were made to pay gratuity to eligible staff on a “first come first served" basis. An amount of Rs. 10,000,000 has been allocated for the year 2009 for gratuity payments and 158 applications have been received from the staff members who have been terminated or vacated their posts.
+
+The newly appointed Members are provided with a computer, a mobile phone, a photocopier and a fax machine worth of Rs. 350,000 and after three years of usage they are eligible to apply for a package of new equipment. To meet this requirement, my Ministry has spent Rs. 24,300,000 up to end of November, 2008 and the amount equivalent to 15 per cent of the total value of the equipment is deducted from the monthly salary of the Member on an instalment basis.
+
+In addition to the facts mentioned above, a Group Insurance Scheme is being introduced for the Members of Parliament which is being implemented through the National Insurance Trust Fund. This scheme covers a maximum of Rs. 200,000 hospitalization expenses per Member annually and for which Rs. 3,453,000 has been spent by September, 2008 on recoveries. At present, I am in the process of exploring the possibility of getting a coverage for medical tests done at Sri Jayewardenepura Hospital without hospitalization as I consider it my duty and responsibility to look after the health condition of all of my Colleagues.
+
+Apart from that, an insurance coverage had been introduced to pay Rs. 1,000,000 to the dependents of Members in the event of the death of a Member due to
+
+[ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා]
+
+2008 ෙදසැම්බර් 05 3215 3216
+
+accidents or terrorist activities. With the approval of the Cabinet of Ministers, I have been able to increase the amount up to Rs. 5,000,000 with effect from 1st March, 2008. I am glad to mention that all payments have been made to the dependents of the Members who died during the year 2008 due to accidents or terrorist activities and I take this opportunity to thank the Secretary to the Ministry of Finance and his staff for the co-operation they have extended in providing funds for the above purpose. Finally, I must thank the Secretary, Additional Secretary, SAS, Chief Accountant, Director and all the staff members of my Ministry and my personal staff for their efficient and untiring services rendered with transparency in providing my service effectively. I thank you. [පූ.භා. 11.23] ගරු ෙර්ණුකා ෙහේරත් මහත්මිය (மாண்ᾗமிகு (திᾞமதி) ேரᾎகா ேஹரத்) (The Hon. (Mrs.) Renuka Herath) මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, මට ඉතාමත් වැදගත් අවස්ථාවක් ලබා දීම ගැන සතුටු ෙවනවා. 2009 වර්ෂය ෙවනුෙවන් ඉදිරිපත් කර තිෙබන අය වැෙය් කාරක සභා අවස්ථාෙව් විවාදය සඳහා අමාතɕාංශ ගණනාවක්, එනම් අමාතɕාංශ 70ක් පමණ තිෙබන නිසා දින 16ක් ඇතුළත ඒ සෑම අමාතɕාංශයක් පිළිබඳවම විවාද කර අවසන් කිරීමට අපහසු බව අපට ෙපනුණා. ඒ අනුව ආණ්ඩු පක්ෂෙය් පධාන සංවිධායකතුමාත්, විරුද්ධ පක්ෂෙය් පධාන සංවිධායකතුමාත් සාකච්ඡා කරලා අමාතɕාංශ 21ක් විෙශේෂ කාරක සභාවකට භාර කළා. මා හිතන්ෙන් ෙම්ක අලුත් කමයක්. විෙශේෂෙයන්ම මා මතක් කරන්නට ඕනෑ, ෙම් කමය පිළිබඳව අෙප් නායකතුමා ඉතාම දැඩි ඕනෑකමක්, උනන්දුවක් දැක් වූ බව. ඒ අනුව ෙනොවැම්බර් මාසෙය් 7 වන දා ගරු නිමල් සිරිපාල ද සිල්වා මැතිතුමාෙග් සභාපතිත්වෙයන් ෙම් කමිටුව ආරම්භ වුණා. ඕනෑම පාර්ලිෙම්න්තු මන්තීවරෙයකුට ඇවිල්ලා ෙම් කමිටුවට සහභාගි වන්නට පුළුවන්කම තිබුණා. ඒ වාෙග්ම ඒ කමිටුවට අදාළ නිලධාරින් ෙගන්වා, ඒ අය එක්කත් සාකච්ඡා කළා. එතැනදී ෙම් පාර්ලිෙම්න්තුව තුළ විවාද වනවාට වඩා ඵලදායී විවාදයක් ඇති කර ගන්නට පුඵවන්කම ලැබුණා. කල් මදි වුණා, එය ෙබොෙහොම ඉක්මනින් කරන්නට සිදු වුණු නිසා. ඊළඟට ෙමොකක්ද කළ යුත්ෙත් කියන එකත් මා කියන්න බලාෙපොෙරොත්තු ෙවනවා.
+
+ෙමය සෑෙහන දුරකට විවෘත, ඒ වාෙග්ම ඵලදායී සාකච්ඡාවක් බවට පත් වුණාය කියන එක ෙම් අවස්ථාෙව් දී මතක් කරන්නට ඕනෑ. පාර්ලිෙම්න්තුව නිෙයෝජනය කරන සෑම පක්ෂයකම නිෙයෝජිතයින් ෙම් කමිටුවට ෙයොමු කර තිබුණා. ඒ වාෙග්ම දින පහක වාෙග් කාලයක් ඇතුළත තමයි, අමාතɕාංශ 21 ගැනම සාකච්ඡා වුෙණ්. ඒ අමාතɕාංශ 21 ගැනම ෙමතැන කථා කරන්නට අපහසු ෙවනවා. හැබැයි එක ෙදයක් කියන්න ඕනෑ. ගරු අගමැතිතුමනි, මා ෙම් කාරණය ඔබතුමාෙග් අවධානයට ෙයොමු කරන්නට ඕනෑ. අමාතɕාංශවලට මුදල් ෙවන් කිරීෙම්දී -අමාතɕාංශ කිහිපයක් හැර - 2008 වසරට වඩා 2009 වසෙර්දී අෙනකුත් සියලුම අමාතɕාංශවලින් සෑෙහන මුදල් පමාණයක් කපා තිබුණා. එම අඩු පාඩුකම් මඟ හරවා ගන්නට ඉදිරි කාලෙය්දී අපට සිදු ෙවනවා. ෙකොෙහොම හරි කමක් නැහැ, නව මාවතකට අවතීර්ණ ෙවමින් අමාතɕාංශ 21ක් ගැන ෙම් අයුරින් කමිටුෙව්දී සාකච්ඡාවට භාජන කළා. ඒ කමිටුවට මමත් සහභාගි වුණා. එක්සත් ජාතික පක්ෂය ෙවනුෙවන් අපි කිහිප ෙදෙනකුම සහභාගි වුණා. ඒ අනුව අපිට පැහැදිලිව ෙපනුණා, ඒ ඒ අමාතɕාංශවලින් ඉදිරිෙය්දී කළ යුතු වැඩ ෙමොනවාද කියන එක ගැන අනිවාර්ෙයන් පාර්ලිෙම්න්තු මන්තීවරුන්ෙග් දැඩි අවධානයක් ෙයොමු විය යුතුයි කියන එක. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, මුදල් කප්පාදුව
+
+ගැන කියන ෙකොට ඒෙකන් පැහැදිලි වන ෙදයක් තමයි මූලɕමය අතින් රජය බංෙකොෙලොත් ෙවලා තිෙබනවාය කියන එක. ඒක අකමැත්ෙතන් වුවත් කියන්න සිද්ධ ෙවනවා. ඒකට ෙහේතු තිෙබනවා. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, ෙම්කට සම්බන්ධව ෙනොවුණත් අද දැන ෙහෝ ෙනොදැන ෙම් “ෙහජින්, ෙහජින්” කියන එක දැන් හැම එක් ෙකනාෙග්ම කටට ගිහිල්ලා. ෙමොකක්ද ෙම් සූදුව කියලා අහනවා. ෙම්ක සූදුවක්ද කියලා අහනවා. ගරු අගමැතිතුමනි, හැෙමෝම කථා කරනවා; ගම් මට්ටමින් කථා කරනවා; වයසක අය කථා කරනවා. “ෙහජින්, ෙහජින්” කියනවා. ඒක දැන් නිතැතින්ම භාවිතයට ගිහිල්ලා. ෙහජින් සූදුව ගැන “වරද අෙප් ෙනොෙව්” කියනවා. කවුද ෙම් කියන්ෙන්? මහ බැංකුෙව් අධිපති. එෙහම නම් අෙප්ද වරද? එෙහම නම් වරද කාෙග්ද? ෙම්ක දමන්න බැහැ, ෆවුසි ඇමැතිතුමාෙග් ඇඟ උඩ. ඒක නිසා මම විෙශේෂෙයන් මතක් කරනවා, ෙම් “ෙහජින්” වාෙග් සූදු නිසාත් ඇත්ත වශෙයන්ම මූලɕමය පශ්න විශාල වශෙයන් ඇති ෙවලා තිෙබනවාය කියන එක. ඩීසල් මිල අඩු කරලා නැහැ. ෙමතැන පැහැදිලිව කියලා තිෙබනවා තව මාස 09ක් යන ෙකොට ෙමොකක්ද වන්ෙන් කියලා. “ෙහජින්” ගිවිසුම අත්සන් කරලා තිෙබන නිසා ඒ මාස 09 යන ෙතක් මිල අඩු කරන්න බැරි ෙවයිද කියන පශ්නය තිෙබනවා. මම ෙම් පශ්නය ගත්ෙත් ෙවන ෙමොකවත් නිසා ෙනොෙවයි, ෙම් පශ්නය නිසාත් මූලɕමය ගැටලුවලට මුහුණ ෙදන්න සිද්ධ වන නිසායි.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, ෙම් අමාතɕාංශ ගැන කථා කරන ෙවලාෙව් මම කියන්නට කැමැතියි, ජනතා මුදල් පරිහරණය කරද්දී යම් විනිවිදභාවයක් තිෙබන්නට අවශɕ බව. ගරු අගමැතිතුමනි, 2010 වර්ෂෙය් ෙමොන රජයක් තිබුණත්, 2010 වර්ෂෙය් අය වැය සකස් කරන්නට ෙපර ෙමම කමිටුව ස්ථාවර කමිටුවක් බවට පත් කළ යුතුයි කියන එකයි එක්සත් ජාතික පක්‍ෂෙය් මතය. ස්ථාවර නිෙයෝග ෙවනස් කරලා ෙහෝ සංෙශෝධනය කරලා ෙහෝ ෙම් කමිටුව ස්ථාවර කමිටුවක් බවට පත් කරලා අය වැය සකස් කරන්නට ෙපර ජුනි මාසය ෙහෝ ජුලි මාෙසේ සිට හැම අමාතɕාංශයක් ගැනම සාකච්ඡාවට භාජන කරන්නට ඕනෑ. ඒ තුළින් ඵලදායීතාවක් ගන්නට පුළුවන්.
+
+අෙප් ගරු සුෙම්ධා ඇමතිතුමිය දැන් ගරු සභාව තුළ ඉන්නවා. ඒ ගැන මම සතුටු ෙවනවා. එතුමියට භාර දීලා තිෙබනවා ළමා සංවර්ධන හා කාන්තා අභිවෘද්ධි අමාතɕාංශය. නමුත් ඒකට ෙවන් කරලා තිෙබන මුදල ෙහොඳටම මදි. මම දන්ෙන් නැහැ ඔබතුමිය ඉල්ලුෙව් නැද්ද, මදියි කිව්වද, නැද්ද කියලා. එෙහම නැත්නම් ඔබතුමිය ගැන රජය හා ජනාධිපතිතුමා සැලකිල්ලක් දක්වන්ෙන් නැද්ද දන්ෙනත් නැහැ. ෙකොෙහොම හරි මුදල අඩු කරලා. ෙද්ශීය ෛවදɕ අමාතɕාංශයට නම් මුදල ෙපොඩ්ඩක් වැඩි කරලා දීලා තිෙබනවා. ඔබතුමියට මුදල් දීලා නැහැ. ඔබතුමිය විෙව්චනය කරනවා ෙනොෙවයි. ෙම්ක දැන ගන්න. ඔබතුමියට රාජකාරි ෙගොඩක් තිෙබනවා. වයස අවුරුදු 01 සිට 05 දක්වා ළමයින් සම්බන්ධෙයන් ළමා සංවර්ධනය තිෙබනවා. ගිය අවුරුද්ෙද් තිස් නවදහස් ගණනකට ගණනය කරලා තිෙබනවා. ෙම් අවුරුද්ෙද් ලක්‍ෂ ෙදකකට ගණනය කරලා තිෙබනවා. [බාධා කිරීමක්] නැහැ, මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, "Country Overview of Child Indicators" කියන ෙම් bulletin එෙක් පැහැදිලිව කියලා තිෙබනවා අවුරුදු 05 දක්වා මුළු ලංකාෙව්ම ළමා ජනගහණය මිලියන 1.7ක් කියලා. ෙදන ෙදයක් ෙම් මිලියන 1.7ටම ෙදන්න ඕනෑ. කිරි වීදුරුව ෙදනවා නම්, දශම 7 පැත්තකට දමලා ඉතිරි මිලියනයටවත් ෙදන්න ඕනෑ. ෙකෝ ෙදනවාද? නැහැ. ඇමතිතුමියෙග් වරදක් මම කියන්ෙන් නැහැ. එෙහම නම් ෙම් සම්බන්ධව රජෙය් අවධානය ෙයොමු විය යුතුයි. ඇමතිතුමිය විතරක් ෙනොෙවයි, ෙසෞඛɕ අංශෙය්, අධɕාපන අංශෙය් ෙම් ඔක්ෙකොම එකට එකතු ෙවලා තමයි ෙම් සම්බන්ධව කියාත්මක වැඩසටහනක් දියත් කරන්නට අවශɕ වන්ෙන්.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, ඒ වාෙග්ම එතුමියෙග් අමාතɕාංශය සම්බන්ධෙයන් කථා කරන විට අපි හරි උජාරුවට කියනවා, ජනගහණෙයන් සියයට 52.8ක් කාන්තාවන් ඉන්නවා කියලා. ඒ කාන්තාවන් ෙවනුෙවන් ෙවන් කරලා තිෙබන මුදල
+
+පාර්ලිෙම්න්තුව 3217 3218
+
+ගැන ඇහුවාම, “අෙන්, ඇයි ෙමෙහම ෙවන්ෙන්” කියන මතයට එන්න අපට සිද්ධ ෙවනවා. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, අද ගෘහ මූලික කාන්තාවන් ඉන්නවා. සමහර අය වැන්දඹුෙවෝ ෙවලා ඉන්නවා. ස්වාමියා හැර ගිය අය ඉන්නවා; ස්වාමියා මිය ගිය අය ඉන්නවා. ඒ වාෙග්ම සමහර අය අවිවාහකව ඉන්නවා. නමුත් ගෘහ මූලිකත්වය දරනවා. එෙහම අය ගාමීයව සියයට 53.1ක් ඉන්නවා. වතුකරෙය් සියයට 47.4ක් ඉන්නවා. ෙම් අනුව බලන ෙකොට එවැනි ගෘහ මූලිකාවන් වන ඒ කාන්තාවන් නැත්නම් වැන්දඹුවන් ෙවනුෙවන් අපි දියත් කරන වැඩසටහන කුමක්ද, ෙමොකක්ද අපි කරන්ෙන්? ෙම් අය සම්බන්ධෙයන් අමාතɕතුමියෙග් වැඩසටහනක් තිෙබනවා. නමුත් ඉතාමත් ෙසොච්චමක් තමයි අය වැෙයන් එතුමියට වැය කරන්නට ලැබිලා තිෙබන්ෙන්. ෙම්වා ගැන ඒ කමිටුෙව්දී අපි සාකච්ඡා කළා. නමුත් ඒ සාකච්ඡා තුළින් අය වැය සැලසුමට නැවත කරුණු ඇතුළු කරන්නට අපට බැහැ. ඒකයි මම කිව්ෙව් අපි ලබන අවුරුද්ද ගැන හිතන ෙකොට ජුනි, ජූලි මාසවල ෙම් සම්බන්ධව පැහැදිලි සාකච්ඡාවකට, සම්මන්තණයකට, සම්මුතියකට එලැෙඹන්නට අවශɕ වන බව. එත ෙකොට තමයි ඵලදායීතාවක් ඇති වන්ෙන්ත්, ඒ වාෙග්ම ෙම් කමිටු තුළින් යම් කාර්ය භාරයක් කර ගන්න පුළුවන් වන්ෙන්ත්. මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස, අෙනක් කරුණ ෙමයයි. මම ෙමය පැහැදිලිව කියන්නට ඕනෑ. සැලසුම් කියාත්මක කිරීෙම් අමාතɕාංශය ගැන කථා කිරීෙම්දී, අපට නිකුත් කර ඇති විෙශේෂ කමිටු වාර්තාෙව් නම් එෙහම කිසිවක් දමලා නැහැ. -ෙම්කට සියල්ලම දමන්න බැරිව ඇති.- දමලා තිෙබන්ෙන් සාකච්ඡා කළා, වැය ශීර්ෂ අනුමත කළා කියලායි. අපි වැය ශීර්ෂ අනුමත කළා. නමුත් මට මතකයි අෙප් රවි කරුණානායක මන්තීතුමා කිව්වා, ෙම් අමාතɕතුමියෙග් ඒ වැය ශීර්ෂය යටෙත් අප ෙම් සම්බන්ධෙයන් එකඟත්වයකට එන්ෙන් නැහැයි කියලා. එෙහම එන්ෙන් නැහැයි කියලා කිව්ෙව් ෙවන ෙමොකක්වත් නිසා ෙනොෙවයි, මුදල් පතිපාදන ලබා දීම අඩුකම නිසායි. අපි විරුද්ධ වනවා ෙනොෙවයි. නමුත් අෙප් විෙරෝධතාව පකාශ කරන්නට ෙවනවා, ඒ මුදල් අඩු කරන නිසා. සැලසුම් කියාත්මක කිරීෙම් අමාතɕාංශය ගැන කථා කරන ෙකොට ෙම් ෙපොෙත් නැති වුණත්, අපට ආපු ෙවනත් වාර්තාවල තිෙබනවා මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස, -අපට කමිටු වාර්තාවක් එවලා තිෙබනවා, ඒ වාර්තාෙව් තිෙබනවා- අපි ඒ කමිටුෙව් කථා කරපු ෙද්වල්. විමධɕගත මුදල් ගැන අපි කථා කළා. මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස, ඔබවහන්ෙසේත් පාර්ලිෙම්න්තු මන්තීවරෙයක්. විමධɕගත පතිපාදන ෙලස ඔබවහන්ෙසේට ලැෙබන්ෙනත් රුපියල් ලක්ෂ 50යි. පාර්ලිෙම්න්තු මන්තීවරුන් වන අපි සියලුම ෙදනාටම ලැෙබන්ෙන් ලක්ෂ 50යි. සංවර්ධන කටයුතු සඳහා පාර්ලිෙම්න්තු මන්තීවරෙයකුට රුපියල් ලක්ෂ 50ක් ලැෙබන ෙකොට, පළාත් සභා මන්තීවරෙයකුටත් රුපියල් ලක්ෂ 50ක් ලැෙබනවා. පාර්ලිෙම්න්තු මන්තීවරයකුට ඒ රුපියල් ලක්ෂ 50 ෙහොඳටම මදි. හිතන්න, ෙමොකක් ෙහෝ ෙගොඩනැඟිල්ලකට තහඩු ටිකක් ලබා ෙදන්න, එෙහමත් නැත්නම් ෙමොකක් ෙහෝ සංවර්ධන කටයුත්තකට අවශɕ ෙදයක් ලබා ෙදන්න යන ෙකොට මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස, හැම බඩුවකම මිල ඉහළ ගිහිල්ලා. රුපියල් ලක්ෂ 50ක් ෙමොනවා කරන්නද? අවම වශෙයන් -ඇතිකමකට ෙනොෙවයි, නැතිකමකට- ෙම් මුදල අනිවාර්යෙයන්ම රුපියල් ලක්ෂ 100ක් විය යුතුයි කියලා පැහැදිලිව අපි කියනවා. ඒ විතරක් ෙනොෙවයි. ෙම් ෙදන ෙසොච්චෙමන් මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස, කච්ෙච්රිෙය්දී, එෙහම නැත්නම් දිසා ෙල්කම් කාර්යාලෙය්දී සියයට 4ක් නැත්නම් සියයට 8ක් කපනවා. රුපියල් ලක්ෂ 2ක මුදලක් යම් ෙදයකට වැය කෙළොත් ඒෙකන් රුපියල් 12,000ක් පරිපාලන කටයුතු සඳහා කියලා කපනවා. එතෙකොට ෙමොකක්ද ෙම්? ඒ කැපීම වහාම නැවැත් විය යුතුයි කියලා අපි ෙම් කමිටුෙව්දී සාකච්ඡා කළා. ඒ සංෙශෝධන ඇතුළු විය යුතුයි. 2009 වර්ෂෙය් සිටම ගරු අගමැතිතුමනි ෙම්වා කියාත්මක වන්නට ඕනෑ. රුපියල් ලක්ෂ 2ක් දීලා ඒෙකනුත්
+
+රුපියල් 12,000ක් කපා ගත්තාම ෙලොකු පශ්නයක්. ඒ නිසා පරිපාලන කටයුතු සඳහා දිසා ෙල්කම් කාර්යාලෙයන් ඒ කපා ගන්න මුදල නවත්වන්න ෙවනවා. මම දිසා ෙල්කම් කාර්යාලෙයන් ෙම් සම්බන්ධෙයන් විමසන ෙකොට මට කිව්වා, සැලසුම් කියාත්මක කිරීෙම් අමාතɕාංශෙයන්ම තමයි ඒක කරන්ෙන් කියලා. ගරු ඇමතිතුමනි, ඒ කමය නවත්වන්න ෙවනවා. පරිපාලන කටයුතු සඳහා ඒ අයට අවශɕ මුදල් ලබා දීම රජෙය් වැඩක්. ඊළඟට ඒ ෙද් කරන ෙකොට ඒ ෙකෙරහි අවධානය ෙයොමු කරවන්න. එෙහම නැති වුෙණොත් අපට තව මුදල් වැඩි කර ගන්නට සිද්ධ ෙවයි. ෙද්ශීය ෛවදɕ අමාතɕතුමා විශාල පරිශමයක් දරනවා, ෙද්ශීය ෛවදɕ ක්ෙෂේතය නංවාලන්න. එතුමාට නම් මුදල් පතිපාදන ටිකක් වැඩි කරලා තිෙබනවා. නමුත් එම මුදල තවත් වැඩි වුණා නම් ෙහොඳයි. ඒ වාෙග්ම එතැනදී මම කියන්නට අවශɕයි, - මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) අවසන් කරන්න. ගරු ෙර්ණුකා ෙහේරත් මහත්මිය (மாண்ᾗமிகு (திᾞமதி) ேரᾎகா ேஹரத்) (The Hon. (Mrs.) Renuka Herath) මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, තව ෙපොඩ්ඩයි. පාරම්පරික ෛවදɕවරු ඉන්නවා. හැබැයි හුඟක් අය ලියා පදිංචි ෙවලා. පාරම්පරික ෛවදɕවරු ලියා පදිංචි කරන ෙකොට ෙබොෙහොම කල්පනාෙවන් ලියා පදිංචි කරන්න ෙවනවා. අපි ෙම් ගැනත් සාකච්ඡා කළා. කැළුම් වීරසිංහ වා ෙග් අයත් ඉන්නවා. එතුමා ගහලා ෙලඩ සනීප කරනවාලු. මම හිතන්ෙන් ඒ පාරම්පරික ෛවදɕවරු ෙනොෙවයි. ඒ අය ගැනත් හිතන්නට ෙවනවා.
+
+නාවින්ෙන් තිෙබනවා, ආයුර්ෙව්ද පර්ෙය්ෂණ ආයතනයක්. ඒකටත් ෙම් පාරම්පරික ෛවදɕවරුන් ෙපොඩ්ඩක් ෙයොමු වන කමයක් සකස් වන්නට ඕනෑ. එතෙකොට ඒ අයට තවත් වැඩිපුර අධɕයනයක් කරලා අධɕාපනයක් ලබා ගත හැකි ෙවනවා. අපි එකමුතු ෙවලා ෙම් වැඩ කරන්නට ඕනෑ. එකමුතු ෙවලා වැඩ කරන්නට නම් අර පැත්ෙත් ඉඳන් ෙම් පැත්තට ගල් ගහලා හරි යන්ෙන් නැහැ; එක එක් ෙකනා විෙව්චනය කර කර ඉඳලා හරි යන්ෙන් නැහැ. විෙව්චනය නවත්වමු. ෙදපැත්ෙත්ම යම් වරදක් තිෙබනවා නම් කථා කරමු. ෙබොරුවට ගල් ගහලා නිකම් පුස් හඬක් නඟනවාට වඩා ෙහොඳයි, රට ෙවනුෙවන් වැඩ කරන්නට එකට එකතු ෙවලා එකමුතු ෙවලා ෙම් වාෙග් සාකච්ඡා තුළින් සංවර්ධන වැඩ පිළිෙවළවල් දියත් කරන එක කියන එකත් මතක් කරන්නට අවශɕයි.
+
+ඒ කමිටුවට සහභාගි වුණ අවස්ථාෙව්දී අපට පැහැදිලි වුණ ෙදයක් තමයි, ෙම් කමිටු - මම මුලදී කිව්වා වාෙග්- පැහැදිලිව, හරියට කියාත්මක ෙවනවා නම් අය වැය ෙව්ලාෙව්දී ෙවන් කළ මුදල් හරියට කියාත්මක ෙවනවාද කියලාත් බලන්නට ඕනෑ. අප ලබන අවුරුද් දට මුදල් වියදම් කරන අන්දම ගැන සාකච්ඡා කළා. ලබන අවුරුද්ද ගැන සාකච්ඡා කළාට වරින් වර, මාස තුනකට වතාවක් ෙමහි පගතිය කුමක්ද කියන එකත් අපි බලන්න අවශɕයි. එතෙකොට මුදල් අපරාෙද් වියදම් වන්ෙන් නැහැ. අෙප් ගරු ෙතොණ්ඩමන් ඇමතිතුමාෙග් අමාතɕාංශය ගැන කිව්ෙව් නැහැ කියා ෙවන්න ඇති එතුමා බලා ෙගන ඉන්නවා. ගරු ෙතොණ්ඩමන් ඇමතිතුමාෙග් අමාතɕාංශයටත් මුදල් ලැබිලා තිෙබනවා. ඒවා කමානුකූලව සමානව ෙබදිලා යන විධියට ෙකොෙහොමද වැය කළ යුත්ෙත් කියන එකත් සාකච්ඡා කරන්න ඕනෑ. ඒ සම්බන්ධව අපි විෙශේෂෙයන් දැඩි අවධානයක් ෙයොමු කරන්න අවශɕයි.
+
+ආගමික කටයුතු පිළිබඳ අමාතɕාංශය, පණ්ඩු බණ්ඩාරනායක ඇමතිතුමාෙග් අමාතɕාංශය. එමඟින් තමයි සාර ධර්ම, සදාචාරාත්මක, ගුණ ගරුක සමාජයක් ඇති කරන්න යන්ෙන්. ෙම් සමාජය ඇති කරන්න වුණත් එතුමාට ෙදන මුදල් පමාණය ෙහොඳටම මදි. අපි පු රා විදɕාත්මක වටිනාකමක් ඇති රජමහා
+
+[ගරු ෙර්ණුකා ෙහේරත් මහත්මිය]
+
+2008 ෙදසැම්බර් 05 3219 3220
+
+විහාරය දැක්කා. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, කළුතර රජමහා විහාරය තිෙබනවා. ෙම්වාට මුදල් ෙවන් කරන්න කියා අපට කච්ෙච්රිෙයන් ලියුම් එවනවා. අපට බැහැ, ඒවාට මුදල් ෙවන් කරන්න. එතුමාෙග් මුදල වැඩි කර විහාරස්ථාන සංවර්ධනය සඳහා, ආගමික ස්ථාන සංවර්ධනය සඳහා ඒ මුදල් ෙයොද වන්න අවශɕයි. ඒ නිසා මම විෙශේෂෙයන් ඉල්ලීම් ෙදකක් කරනවා. එකක් තමයි, ස්ථාවර නිෙයෝග සංෙශෝධනය කරලා ෙම් කමිටුව ස්ථාවර කමිටුවක් බවට පත් කරන්න අවශɕයි. ඊළඟට, 2010 වසර සඳහා අය වැය විවාදය පවත්වන්න ෙපර ජුනි මාසෙය් ඉඳලා ඒ සාකච්ඡා පවත්වලා ඒ සාකච්ඡාවලට අනුකූල වන පරිදි අය වැය සැලැස්ම සකස් කරන්න අවශɕයි. ඊළඟ එක තමයි, ලබන වසෙර් සිට මාස තුෙනන් තුනට හැම අමාතɕාංශයකම පගතිය ගැන සාකච්ඡා කරන්න අවශɕයි. ඒ තුළින් රටට වැඩදායී වන ආකාරයට දූෂණය, නාස්තිය වළක්වා ෙගන -hedging වාෙග් යන්ෙන් නැතිව- නියම මාර්ගයක යන්න පුළුවන් ෙවයි. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, ඔබවහන්ෙසේට ෙබොෙහොම ස්තුතියි. මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) Hon. Arumugan Thondaman, you have six minutes. [පූ.භා. 11.38] ගරු ආරුමුගන් ෙතොණ්ඩමන් මහතා (තරුණ අභිවෘද්ධි හා සමාජ ආර්ථික සංවර්ධන අමාතɕතුමා)
+
+(மாண்ᾗமிகு ஆᾠᾙகன் ெதாண்டமான் - இைளஞர் வᾤᾬட்ᾌைக, சᾚக, ெபாᾞளாதார அபிவிᾞத்தி அைமச்சர்)
+
+(The Hon. Arumugan Thondaman - Minister of Youth Empowerment and Socio Economic Development)
+
+Thank you, Venerable Presiding Member. I am happy to inform you that the Ministry of Youth Empowerment and Socio Economic Development is a new Ministry set up by His Excellency the President, Mahinda Rajapaksa by a Gazette Notification of 29th August, 2006 which has entrusted to me the task of implementing projects for empowerment of youths of the underprivileged community by improving educational facilities and standards, promoting religious observances and culture, developing sports and recreation requirements and developing vocational skills and standards.
+
+In this regard, my Ministry has formulated and implemented several projects and programmes targeting the underprivileged communities in underserved areas. At the very outset, my special thanks and appreciation are due to His Excellency the President, Mahinda Rajapaksa for the continued support and assistance rendered for the implementation of the programme of my Ministry by granting the necessary funds.
+
+Venerable Sir, my Ministry along with Savumyamoorthy Thondaman Memorial Foundation and Plantation Human Development Trust, the two agencies which come under my Ministry together with the local government bodies and divisional secretariats have been implementing programmes in the areas of youth empowerment and socio economic development to
+
+improve infrastructure facilities in the underserved areas in the plantation sector where decades of negligence and absence of government inputs have seriously retarded the progress of the plantation community especially the youths who are lagging behind like the rest of the population in many areas such as education, housing, health, environment, vocational training and skills developments.
+
+Sir, my Ministry was allocated Rs. 465 million for the year 2008 which is less than the amount allocated for the year 2007. In spite of the decrease in the amount, my Ministry was able to implement 574 development projects covering several parts of the country and benefiting all races and religions under the motto of “One Sri Lanka-One Nation” by seeking to bring in harmony and contentment to all people.
+
+It is pertinent to mention here that the late Hon. Savumyamoorthy Thondaman, my grandfather worked tirelessly towards improving and enhancing the general educational levels of the children of the plantation workers whose freedom from bondages and upliftment was his main dream. Hence, I deem it a privilege to make his dreams come true through the services and activities of the Ministry of Youth Empowerment and Socio Economic Development.
+
+The two institutions coming under the purview of my Ministry, namely, the Savumyamoorthy Thondaman Memorial Foundation and the Plantation Human Development Trust have played pivotal roles on the directions given by the Ministry in implementing projects. The STMF has dedicated to revolutionize the underprivileged community through extensive application and use of information communication technology by the establishment of Praja Shakthi Centres with several novel and latest hi-tech features such as Data Bank on job availability, information on various services rendered by ministries and Government departments, such as processing of birth certificates, passports and exchange of information among the centres et cetera which were not made available hitherto to the plantation community.
+
+I am happy to inform that as at October 2008, 41 Praja Shakthi Centres are functioning covering Nuwara Eliya, Badulla, Kandy, Ratnapura, Galle and Kegalle Districts. Two more Praja Shakthi Centres will be established in this month making the total of the Praja Shakthi Centres to 43. The activities under the Praja Shakthi programme will continue to be designed and implemented by my Ministry to enable the youth to acquire skilled capacities to uplift their social standards.
+
+The Thondaman Vocational Training Centre at Hatton is another institution functioning under the STMF to enhance the capacity building of the youth and make them enter into the mainstream of the society. The Thondaman Vocational Training Centre at Hatton which commenced its activities in July 2007 conducts 16 job-oriented
+
+පාර්ලිෙම්න්තුව 3221 3222
+
+technical courses in various fields which is a boon for the underprivileged youth to seek employment opportunities at high salaries both in Sri Lanka and abroad. Students who have passed out from these institutions have been able to secure employment with higher salaries which have enhanced their economic conditions. At this juncture, I wish to place on record our sincere thanks and appreciation to the Government of India for providing the much-needed academic staff to conduct the courses at the Thondaman Vocational Training Centre, free of charge. In the cultural sphere, construction and development work is in progress at the Thondaman Cultural Centre at Ramboda which when completed will be a catalyst institution that provides easy access to the underprivileged plantation youth to further their cultural needs. The PHDT which is charged with human and social capital development of the plantation worker community has a network of seven offices in plantation districts and has supported all major interventions covering projects in social welfare, estate infrastructure, plantation reform and plantation development support. A major pilot project undertaken by the PHDT is to construct 43 houses to underprivileged families at Stonycliff Estate, Kotagala at an initial cost of Rs. 63 million. This is nearing completion. More specifically, the Plantation Human Development Trust has extended its activities to other projects such as water supply, sanitation, child development centres, pre-school education, capacity building for youth empowerment, building bridges and culverts and re-roofing the plantation workers’ dwellings. Venerable Presiding Member, several schools including the Norwood Tamil Maha Vidyalaya, St. John Bosco Vidyalaya, Dikoya Sinhalese Vidyalaya and Ratmalana Hindu College have been found with needed improved sanitation facilities and additional classrooms as part of the socio-economic development of the underprivileged areas. Further in this regard, major programmes have been implemented for the benefit of the workers in the plantation sector; 350 units of line rooms have been completed. Additionally, the Ministry has implemented through a network of 36 divisional secretaries, municipal councils and urban councils development activities covering a wide range from construction of schools, playgrounds, libraries and halls, concreting roads, water supply, line culverts, communication centres, provision of electricity, culverts, et cetera to improve the socio-economic condition of the underprivileged communities in underserved areas and to usher a contended youth population. One of the most acute problems faced by the plantation community is not having National Identity Cards and birth certificates. The Ministry took swift
+
+action to fulfil this long-felt need by conducting 17 mobile services especially in the Kegalle District and enable 8,171 persons to obtain their National Identity Cards. Another project that has been initiated is to issue birth certificates to a large number of members of plantation community. So far 55,500 birth certificate applications have been distributed; 29,632 applications are being processed to issue birth certificates. As regards birth certificates, my Ministry is in the process of implementing a programme to enable all those who do not possess birth certificates to obtain same by special procedures approved by the Cabinet. I am confident that a vast majority of youth will benefit by these programmes which will empower them to have access to enjoy all public services which are not hitherto within their reach. I am confident that these two projects would empower the youth to enter the mainstream of society without legal or administrative obstacles henceforth. A detailed report containing the projects implemented by the Ministry is already with you all. In conclusion, I wish to mention further that social integration and national unity efforts too have been undertaken by my Ministry by supporting programmes such as conducting vesak lantern competitions among schools and offering development projects benefiting different communities in underprivileged areas. I also wish to place on record my thanks to the secretary and the staff of my Ministry, the Director-General and staff of Savumyamoorthi Thondaman Memorial Foundation and the Chairman, Director-General and staff of the Plantation Human Development Trust. [පූ.භා. 11.44] ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, අමාතɕාංශ 21ක් සම්බන්ධව අප පසු ගිය දින කීපෙය්ම සාකච්ඡා කරලා, විවිධ අමාතɕාංශවල නිලධාරින් ෙගන්වා ෙගන ෙම් කරපු කියා දාමය ඉතාම වැදගත් ෙදයක් හැටියට අප දකිනවා. අෙප් ෙර්ණුකා ෙහේරත් මන්තීතුමියත් ඒ බව කිව්වා. ෙම් අමාතɕාංශවල සිද්ධ වන ෙද්වල්, ෙමොනවාද ලබන අවුරුද්ෙද් කරන්න හදන්ෙන්, ෙමොනවාද ෙම් අමාතɕාංශ හරහා ලබා දී තිෙබන වැඩ පිළිෙවළවල්, ඒවාට අදාළ මුදල් ලබා දී තිෙබනවාද කියන ඒ පශ්න ටික විසඳන්න ෙම් කමිටුව හරහා අපට හැකියාව ලැබුණා. ඒක ඉතාම වැදගත් ෙදයක් හැටියට අප සලකනවා. ලබන අවුරුද්ෙද් අමාතɕාංශ හැම එකක්ම පිළිබඳව ෙම් විධියට සාකච්ඡා කරලා ඒ වැඩ කටයුතු ටික කරන්න පුළුවන් නම් ඒක ඉතාම සාර්ථක ෙවයි කියා අපි විශ්වාස කරනවා. එෙහම කරන්නය කියා මා ෙයෝජනා කරනවා. විෙශේෂෙයන්ම නිමල් සිරිපාල ද සිල්වා ඇමතිතුමාත්, දිෙන්ෂ් ගුණවර්ධන ඇමතිතුමාත් සමහර අවස්ථාවල එම කමිටුෙව් මුලසුන දරමින් ඉතාම ෙහොඳ ෙයෝජනා ඉදිරිපත් කළා. සමහර ඇමතිවරුන්ට තමන්ෙග් පශ්න කියා ගන්න බැරුව හිටියා. සමහර ඇමතිවරුන්ට තිබුණු දුක් ගැනවිලි ගණනාවක් පිළිබඳව යම් යම් තීන්දු, තීරණවලට එන්න ෙම්ෙකදි පුළුවන් වුණා. මම උදාහරණයක් කියන්නම්. අෙප් චන්දෙසේකරන් මැතිතුමා කැපිලා තිෙබන කැපිල්ල ෙකොෙහොමද කියා කියනවා නම් එතුමාට අමාතɕාංශයටම ෙවලා ඉන්න පුළුවන්. එතුමා රුපියල් මිලියන 1,000ක් ඉල්ලපු එක රුපියල් මිලියන 300ට කපලායි තිෙබන්ෙන්. ඉතින් අන්තිමටම අවුරුද්ද පුරාම පුටුෙව් ඉඳ ෙගන එහාට ෙමහාට
+
+[ගරු ආරුමුගන් ෙතොණ්ඩමන් මහතා]
+
+2008 ෙදසැම්බර් 05 3223 3224
+
+කැරකුනත් රුපියල් මිලියන 300 ඉවර කරන්න පුළුවන්. මාසෙයන් ඒ සල්ලි ටික ඉවර කරන්න පුළුවන්. ෙම් රෙට් කුඩා පක්ෂවල ඉන්න නායකයන්ට, කඳුකරෙය් ඉන්න නායකයන්ට, කඳු රට ජනතාවට උදවු කරන නායකයන්ට ෙමන්න ෙම් විධියට තමයි ෙම් ආණ්ඩුව සලකලා තිෙබන්ෙන්. ඉතින් ෙම් අය තීන්දු කරන්න ඕනෑ ෙම් ආණ්ඩුවත් එක්ක තවදුරටත් ඉස්සරහට යනවාද නැද්ද කියන එක. අෙප් හාමුදුරුවෙන්, තමන්ට ඡන්දය දුන්න මිනිසුන්ට උදවු කරන්න බැරි නම්, වැඩ කරන්න බැරි නම්, වතුකරෙය් ඉන්න ජනතාවට ෙසේවය කරන්න බැරි ඒ ඇමතිකම් තියා ෙගන ඉන්නවාට වඩා ෙහොඳයි පාඩුෙව් පැත්තකට ෙවලා නිකම් ඉන්න එක. මම උදාහරණයක් කියන්නම්. ඒ කමිටුව ඇතුෙළේදී ෙතොණ්ඩමන් ඇමතිතුමා ඉතාම අසරණ තත්ත්වයට පත් වුණා. ෙමොකද, එතුමාට දිගින් දිගටම ෙපොෙරොන්දු ෙවලා, -[බාධා කිරීමක්] නැහැ, ඒක තමයි අපි ඔබතුමාට උදවු කළා ෙන්. මූලාසනාරූඪ ෙගෞරවණීය ස්වාමීන් වහන්ස, "අපි ෙමතැනින් නැඟිටලා යනවා" කියා අවසානෙය් ෙතොණ්ඩමන් ඇමතිතුමාට කියන්න සිද්ධ වුණා. ෙමච්චර ගණනක් ෙදනවාය කියලා, අර්ථසාධක අරමුදෙලන් ඒ අවශɕ කාරණා ටික කරනවාය කියලා - එතුමාට දිගින් දිගටම ෙපොෙරොන්දු ෙවලා - අවුරුදු ගණනාවක් තිස්ෙසේ ෙම් ආණ්ඩුව එතුමාව රැවැට්ටුවා. රවට්ටලා අද අන්තිම තැනකට ඇවිත් තිෙබනවා.
+
+ගරු ආරුමුගන් ෙතොණ්ඩමන් මහතා (மாண்ᾗமிகு ஆᾠᾙகன் ெதாண்டமான்) (The Hon. Arumugan Thondaman)
+
+You also did the same thing. They are following that. ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara)
+
+අෙප් කාලෙය්, You were a king at that time. When our Government was in power, you were a king. Now you have gone down to -
+
+ගරු ආරුමුගන් ෙතොණ්ඩමන් මහතා (மாண்ᾗமிகு ஆᾠᾙகன் ெதாண்டமான்) (The Hon. Arumugan Thondaman)
+
+I think this is better. ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) That is what has happened. අෙප් කාලෙය් ඔබතුමා හිටිෙය් රෙජක් වාෙග්. අද ඔබතුමා ඉන්ෙන් රෙජක් වාෙග් ෙනොෙවයි -
+
+ගරු ආරුමුගන් ෙතොණ්ඩමන් මහතා (மாண்ᾗமிகு ஆᾠᾙகன் ெதாண்டமான்) (The Hon. Arumugan Thondaman)
+
+I was a king there. Here I am an emperor. ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ඔබතුමාම හිතලා බලන්න. ඔබතුමා අෙප් ආණ්ඩුෙව් හිටපු කාලෙය් අප ඇති කරන්න හදපු ෙකොත්මෙල් වɕාපාරය ඔබතුමාෙග් නායකත්වය නිසා නතර කළා; ඔබතුමා විරුද්ධ වුණු නිසා අපි ඒක නතර කළා. ඒකයි මම කියන්ෙන්. ඔබතුමාට ඒ හැකියාව තිබුණා. ඔබතුමා හිටිෙය් රෙජක් වාෙග්. අද ඔබතුමා මහින්ද රාජපක්ෂ මහත්මයා ළඟ ඉන්ෙන් බලු කුක්ෙකක් වාෙග්. ඒකයි මට තිෙබන පශ්නය. ෙවන එකක් ෙනොෙවයි. ෙවන දා ෙපොලීසිවලට ගිහින් මිනිසුන්ව අරන් එන්න තරම් ශක්තියක් ඔබතුමාට තිබුණා. අද ඒවා ඔක්ෙකොම කඩා වැටිලා. අද ඔබතුමා හිටියත් එකයි, ගියත් එකයි. ෙම්කට "පල ෙනොකියා පලා ෙබදනවා" කියලා තමයි සාමානɕෙයන් සිංහෙලන් කියන්ෙන්.
+
+ගරු ආරුමුගන් ෙතොණ්ඩමන් මහතා (மாண்ᾗமிகு ஆᾠᾙகன் ெதாண்டமான்) (The Hon. Arumugan Thondaman)
+
+The king is here and the queen is sitting there. ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) දැන් ඔබතුමා කුකුල් පැටිෙයක් වාෙග් ඉන්ෙන්. ෙහොඳ කරමලයක් තිෙබන ෙහොඳට ෙකොටන්න පුළුවන් කුකුෙළක් වාෙග් ඔබතුමා ෙවන දා හිටිෙය්. අද ෙම් ආණ්ඩුව ඔබතුමා කුකුල් පැටිෙයක් බවට පත් කරලා තිෙබන්ෙන්. තමුන්නාන්ෙසේලාෙග් ජනතාව ලජ්ජාවට පත් කර තිෙබනවා. තමුන්නාන්ෙසේට ෙහොඳ තත්ත්වයක් එන්න නම්, ඔබතුමන්ලාෙග් ජනතාවට වැඩ කරන්න නම් තමුන්නාන්ෙසේ එක්ක ඉන්න මිනිසුන් එක්ක වැඩ කරන්න වුවමනා ශක්තිය ෙදන්න පුළුවන් එක්සත් ජාතික පක්ෂයට විතරයි. පී. චන්දෙසේකරන් ඇමතිතුමාටත්, ෙතොණ්ඩමන් ඇමතිතුමාටත්, මුතු සිවලිංගම් නිෙයෝජɕ ඇමතිතුමාටත් අප ෙබොෙහොම ආදරය කරනවා. ඔබතුමන්ලා ෙම් ඇමතිකම් දරා ෙගන ඉඳලා ෙම් ෙද්ශපාලනය කරලා හරි යන්ෙන් නැහැ. ඔබතුමන්ලා සියලු ෙදනා එකට එකතු ෙවලා, අපත් එක්ක එකට අත් වැල් බැඳ ෙගන ඉදිරියට යන්න ලෑස්ති ෙවන්නය කියා මා ඔබතුමන්ලාෙගන් ඉල්ලා සිටිනවා.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, බලන්න ඩිව් ගුණෙසේකර ඇමතිතුමාට කරලා තිෙබන ෙදය. තව බලන්න තිස්ස විතාරණ ඇමතිතුමාට කරලා තිෙබන ෙදය. ෙම් ආණ්ඩුව බිහි කරන්න, ෙම් ආණ්ඩුෙව් තිෙබන සමාජවාදී පතිපත්ති, මැද පිළිෙවෙත් පතිපත්ති අරන් ගිය එකම නායකයන් ෙදෙදනා තමයි ඩිව් ගුණෙසේකර ඇමතිතුමා සහ තිස්ස විතාරණ ඇමතිතුමා. අද වන විට ඒ ෙදෙදනාෙග්ම පතිපාදන කපලා ඉවරයි. මම අහන්ෙන් - [බාධා කිරීමක්] Yes, what is the point of Order? [Interruption.] You are going to India and shouting. That is it. What are you all doing?
+
+ගරු ෙර්ණුකා ෙහේරත් මහත්මිය (மாண்ᾗமிகு (திᾞமதி) ேரᾎகா ேஹரத்) (The Hon. (Mrs.) Renuka Herath)
+
+Doing nothing [Interruption.] ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ඔබතුමාට mike එකවත් ෙදන්ෙන් නැහැ. [බාධා කිරීමක්] ආණ්ඩුෙවන් ඔබතුමාට mike එකවත් ෙදන්ෙන් නැහැ. ෙප්නවා ෙන්ද? ෙගෞරවණීය ස්වාමීන් වහන්ස, ෙම් mike එක දමන කට්ටියට එක දවසයි ගිහිල්ලා තර්ජනය කෙළේ. දැන් ආණ්ඩුව කියන කියන විධියට තමයි mike දමන්ෙන්. දැන් ඒ ෙගොල්ලන්ට mike එකවත් ෙදන්ෙන් නැති තත්ත්වයට ෙගනැල්ලා තිෙබනවා. පතිපාදන ෙදන්ෙන් නැහැ. වැඩ කරන්න ඉඩ ෙදන්ෙන් නැහැ. තමන්ෙග් මිනිසුන්ට සලකන්න ඉඩ ෙදන්ෙන් නැහැ. අඩුම තරමින් mike එකක්වත් ෙදන්ෙන් නැහැ. ඒ තත්ත්වයටයි අද ෙම් ෙගොල්ලන් පත් කරලා තිෙබන්ෙන්. ඉතාම අසරණ තත්ත්වයට පත් කරලා තිෙබනවා. ෙම් ආණ්ඩුෙව් ඉන්නා සුළු ජාතික පක්ෂවලට, කුඩා පක්ෂවලට ෙම් විධියට සලකන තත්ත්වයකුයි අද ඇවිල්ලා තිෙබන්ෙන්.
+
+මා කියන්න කැමැතියි, ෙම් හැම අමාතɕාංශයක්ම ෙලොකු පශ්නයකට ලක් ෙවලා තිෙබනවා කියලා. ෙමොකද, ඒ හැම අමාතɕාංශයකින්ම පාරවල් හදනවා. සමාජ ෙසේවා හා සමාජ සුභසාධන අමාතɕාංශෙයනුත් පාරවල් හදනවා. තරුණ අභිවෘද්ධි හා සමාජ ආර්ථික සංවර්ධන අමාතɕාංශෙයනුත් පාරවල් හදනවා. මම අහන්ෙන් ෙම්කයි. දැන් ෙම් රෙට් මහා මාර්ග අමාතɕාංශයක් තිෙබනවා. ඒ යටෙත් තමයි මාර්ග හදන්න ඕනෑ. ෙම් රෙට් ජල විදුලි බලය ෙදන්න ෙවනම අමාතɕාංශයක් තිෙබනවා. එතෙකොට
+
+පාර්ලිෙම්න්තුව 3225 3226
+
+ෙම් රෙට් අෙනක් අෙනක් කාරණා කරන්න, වැව් කපන්න ෙවන ෙවනම අමාතɕාංශ තිෙබනවා. හැබැයි ෙම් අමාතɕාංශ හැම එකකම ඇමතිවරු තමන්ෙග් වැඩ කටයුතු ටික කර ගන්න අලුත් අලුත් වɕාපෘති හදලා. පාරවල් හදන්ෙන්ත් තමන්ෙග්ම අමාතɕාංශෙයන්. ෙමන්න ෙම් වාෙග් තත්ත්වයකුයි ඇති කරලා තිෙබන්ෙන්. ඒ නිසා ලංකාෙව් අර අමාතɕාංශවලට ෙබදලා තිබුණු වගකීම් සංකල්පය අද අෙපන් ඈත් ෙවමින් තිෙබන තත්ත්වයකුයි තිෙබන්ෙන්. මා ෙම් කාරණයත් කියන්න කැමැතියි. බලන්න, දැන් ෙම් hedging ගැන තිෙබන පශ්නය. ෙම්ක අද දැවැන්ත පශ්නයක් බවට පත් ෙවලා තිෙබනවා. අද අෙප් ලංකාෙව් විෙද්ශ සංචිතවලින් රුපියල් ෙකෝටි 4,000ක් එළියට යමින් තිෙබනවා. මාස ගණනාවකට කලින් ෙම් පශ්නය ගැන ඉස්ෙසල්ලාම මම ෙම් පාර්ලිෙම්න්තුෙව් කථා කළා. පාර්ලිෙම්න්තුෙව් කථා කරලා, මම ෆවුසි ඇමතිතුමාට කිව්වා, “ඔබතුමා පරිස්සම් ෙවන්න. ෙමන්න ෙම් වාෙග් වැඩ පිළිෙවළක් තිෙබනවා. ෙම්ෙක් අවසානය, ඔබතුමන්ලාට අෙප් තිෙයන ඇඳුම් ටික විකුණලා ෙගදර යන්නයි ෙවන්ෙන්” කියා. ඇහැව්ෙව් නැහැ. එතුමා කිව්වා, "නැහැ, කිසි පශ්නයක් නැහැ"යි කියලා. අපි දවස ගණෙන් ෙපන්නලා දුන්නා, ෙම් හම්බ ෙවනවා වාෙග් තමයි අෙනක් පැත්ෙතන් යන්න පටන් ගත්තාමත් කියලා. අපි කිව්වා, ෙම් zero collar gap එකට ගිහිල්ලා තිෙබන්ෙන්, වැඩි වන ෙකොට හම්බ ෙවනවා. අඩු වන ෙකොට ෙමොකක්ද ෙවන්ෙන් කියන්න දන්ෙන් නැහැ කියලා. ෙත්රුම් ගන්න බැරිව ෙකොෙහේ ෙහෝ හැංගිලා ඉඳලා ටික කාලයකට පස්ෙසේ ෙම්ක ෙත්ෙරන ෙකොට නැත්නම් පහු ෙවලා ෙම් වැෙඩ් ගැන ෙත්ෙරන ෙකොට, අශ්වයා ගියාට පස්ෙසේ ඉස්තාලය වහලා දමනවා වාෙග් වැඩක් තමයි සිද්ධ වන්ෙන්. දැන් ෙමොකක්ද වුෙණ්? ෙම් රෙට් ෙශේෂ්ඨාධිකරණෙයන් තීන්දුව දුන්නාට පස්ෙසේ සියලු ෙදනාටම ඇස් ඇරිලා තිෙබනවා. ෙමොකද, ෙවලා තිෙබන්ෙන්? එක එක කැබිනට් ඇමතිවරු ඇවිල්ලා එක එක කථා කියනවා. මා ළඟ තිෙබනවා, ඒ ඇමතිවරු කියපු කථා ටික. ඒ කථා එකින් එක ගත්ෙතොත්, ෙම්ක ඉස්ෙසල්ලාම කථා කරන ෙකොට ලක්ෂ්මන් යාපා අෙබ්වර්ධන ඇමතිතුමා ෙබොෙහොම පැහැදිලිව කිව්වා, එතුමන්ලා ෙම් සම්බන්ධව දන්ෙන් නැහැයි කියලා. කැබිනට් මණ්ඩලය දැනුවත් කරලා නැහැයි කිව්වා. ඒක කියන්ෙන් කවදාද? හිරු එෆ්එම් එෙක් එෙහම නැත්නම් එතුමාට තිබුණු පුවත් පත් සාකච්ඡාෙව් දී. එහිදී ලක්ෂ්මන් යාපා ඇමතිතුමා කියනවා,- මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) කරුණාකර නිශ්ශබ්ද වන්න. ෙම් අවස්ථාෙව්දී ගරු නිෙයෝජɕ කාරක සභාපතිතුමා මූලාසනය ගන්නවා ඇති.
+
+අනතුරුව ගරු (පූජɕ) උඩවත්ෙත් නන්ද හිමි මූලාසනෙයන් ඉවත් වුෙයන්, නිෙයෝජɕ කාරක සභාපතිතුමා [ගරු රාමලිංගම් චන්දෙසේකර් මහතා] මුලාසනාරූඪ විය.
+
+அதன்பிறகு, மாண்ᾗமிகு (வண.) உடவத்ேத நந்த ேதரர் அவர்கள் அக்கிராசனத்தினின்ᾠ அகலேவ, குᾨக்களின் பிரதித் தவிசாளர் அவர்கள் [மாண்ᾗமிகு இரா. சந்திரேசகர்] தைலைம வகித்தார்கள்.
+
+Whereupon THE (HON.) (VEN.) UDAWATTE NANDA THERO left the Chair, and MR. DEPUTY CHAIRMAN OF COMMITTEES [THE HON. RAMALINGAM CHANDRASEKAR] took the Chair.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ගරු නිෙයෝජɕ සභාපතිතුමනි, ෙම් සම්බන්ධව තිබුණු කැබිනට් තීරණ දැනුම් දීෙම් සාකච්ඡාෙව්දී ගරු ලක්ෂ්මන් යාපා ඇමතිතුමා ෙබොෙහොම පැහැදිලිව කිව්වා, ඛනිජ ෙතල් නීතිගත සංස්ථාෙව් සභාපතිවරයා කළ පකාශය රජය පතික්ෙෂේප කරනවා කියලා. ඒ අනුව එතුමා හිරු එෆ්එම් එකට කියලා තිෙබන ෙද් මම කියවන්නම්. ෙම් සම්බන්ධව එතුමා කියනවා, “කැබිනට් මණ්ඩලය නිර්ෙද්ශ කළාය කියා අප පිළිගන්ෙන් නැහැ. අප එය පතික්ෙෂේප
+
+කරනවා. සභාපතිවරයා කියලා තිෙබන ෙද් පතික්ෙෂේප කරනවා.” කියා. ඒ කියන්ෙන්, කැබිනට් මණ්ඩලය එය අනුමත කළාය කියන එක එතුමා පතික්ෙෂේප කරනවා. එෙහත් ෙදසැම්බර් තුන් වැනි දා පාර්ලිෙම්න්තුවට ඇවිල්ලා විෙශේෂ පකාශයක් කරමින් අෙප් ෆවුසි ඇමතිතුමා කිව්වා, “Hedging ගිවිසුමට කැබිනට් මණ්ඩලෙය් අනුමැතිය ලැබී ඇත” කියා.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, ෙම් රෙට් කැබිනට් මණ්ඩලය කියන්ෙන් නිකම් විහිළුකාරයන් ටිකක් ඉන්න තැනක් ෙනොෙවයි ෙන්. අෙප් ෙගෞරවණීය අගමැතිතුමාද ඇතුළුව ෙම් රෙට් උගත් බුද්ධිමත් ඇමතිවරුයි ෙම්ක ඇතුෙළේ ඉන්ෙන්. අෙප් ජනාධිපතිතුමා නායකත්වය දරනවා කැබිනට් මණ්ඩලෙය්. ආණ්ඩුකම වɕවස්ථාෙව් 43 වන වɕවස්ථාව යටෙත් ෙබොෙහොම පැහැදිලිව කියනවා, රෙට් කැබිනට් මණ්ඩලය ගන්නා වූ තීන්දුවලට සාමූහිකව වග කියන්න ඕනෑය කියා. Hedging ගිවිසුම පටන් ගන්න ෙකොට ඒ සඳහා උපෙදස් ෙදන්න ඉස්ෙසල්ලාම ආෙව් ෙවන කවුරුවත් ෙනොෙවයි කැනඩාෙව් වැඩ කරන උපුල් අරුණජිත් කියන පුද්ගලයායි. ඔහු ෙබොෙහොම පැහැදිලිව මුල ඉඳලාම ෙම් සම්බන්ධව අදහස් පකාශ කළා. අසන්ත ද මැල් මහත්මයා 2007 ජනවාරි 12 වැනි දා ඉඳලා hedging සම්බන්ධව කටයුතු කරන්න ඔහු consultant ෙකනකු විධියට පත් කරනවා. එෙහම පත් කරලා එතුමා report එකක් ෙදනවා. ඒ report එක අනුව එතුමා කියනවා hedging කළ යුත්ෙත් ෙකොෙහොමද කියා.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, hedging ගැන කවුරුත් දන්ෙන් නැහැ. ඔබතුමා දන්ෙන්ත් නැහැ. හරියට කිෙයව්ෙවොත් තමයි ඒ සම්බන්ධෙයන් අපට ෙත්ෙරන්ෙන්. ගෙම් ඉන්න සාමානɕ පුද්ගලයකුෙගන් hedging ගැන ඇහුෙවොත් ඔහු ෙමොකවත් දන්ෙන් නැහැ. ඒ නිසාම මා ෙම්කට කිව්වා සූදුව කියා. ෙමොකද, ෙලෝකෙය් ෙතල් මිල වැඩි වන ෙකොට ඒ ෙතල් මිලට ඔට්ටු අල්ලනවා. ෙතල් මිල පහළට යන ෙකොට ඒකට ඔට්ටු අල්ලනවා. එෙහම නම් ෙම්ක ඔට්ටු ඇල්ලීමක්. ෙම්ක සූදුවක්. මා කිව්වා ෙම්ක gambling කියා. This is not hedging, this is gambling. ෙම්ක සූදුවක් බවට පත් ෙවලායි තිෙබන්ෙන්. එෙහම නම් ෙම් සූදු ෙකළින්ෙන් රෙට් ජනතාවෙග් සල්ලිවලින්. කාෙග් ෙහෝ ඇමතිවරයකුෙග් ෙගදරින් ෙගන්වලා ෙනොෙවයි. අෙප් අහිංසක දුප්පත් මිනිසුන්ෙගන් බදු වශ ෙයන් එකතු කරන සල්ලිවලිනුයි ෙම් hedging සූදුව කරන්ෙන්. දැන් ඇමතිවරුන් එක එක තැන්වල ඉඳ ෙගන කියන කථාව තමයි, මිල පහත වැටුණු නිසායි දැන් ෙම් පැරදිලා තිෙබන්ෙන් කියන එක. ඒකට තමයි කැබිනට් මණ්ඩලයක් තිෙබන්ෙන්. ඒකට තමයි විද්වතුන් ඉන්ෙන්. ඒ නිසා තමයි ෙම් රෙට් ආර්ථික විෙශේෂඥයන් පිටරට ආර්ථික විෙශේෂඥයන්ෙගන් අදහස් අර ෙගන ෙම්වා කරන්න ඕනෑය කියා අප කියන්ෙන්.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, ෙලෝකෙය් කිසිම රටක් කරන්ෙන් නැති ෙද්වල් තමයි ලංකාෙව් ආණ්ඩුව කරන්ෙන්. Mihin Air කියන එක ගැන මා එදාත් කියපු කථාවක් නැවත මතක් කරන්නම්. ෙලෝකෙය් කිසිම ආණ්ඩුවක් කවදාවත් budget airline කරන්ෙන් නැහැ. ආණ්ඩු කරලා නැහැ, budget airline. ඒවා කරලා තිෙබන්ෙන් ෙපෞද්ගලික ෙකොම්පැනියි. ඇෙමරිකාෙව් South West Company එෙකන් පටන් අර ෙගන ෙපෞද්ගලික ෙකොම්පැනි තමයි දිගින් දිගටම budget airline කෙළේ. Budget airline සාර්ථක වීම නිසා මැෙල්සියාෙව් කරපු පළමු වැනි budget airline එක ඒ ආණ්ඩුවට පවරා ෙගන Malaysian Airlines විධියට පවත්වා ෙගන ගියා. ඒවා කරන්ෙන් ෙපෞද්ගලික ෙකොම්පැනියි. නමුත් ෙමච්චර රට බංෙකොෙලොත් ෙවලා තිෙබද්දී, ආර්ථික වශෙයන් කඩා වැටිලා තිෙබද්දී ලංකාෙව් ආණ්ඩුව පළමු වැනි වතාවට ෙම් සඳහා රුපියල් මිලියන හයදහසක් පාර්ලිෙම්න්තුෙව්දී අනුමත කර ගන්න හදනවා. මට ෙමහා පැත්ෙත් විමල් වීරවංශ මැතිතුමන්ලා ඉන්නවා. මා එතුමන්ලාෙගන් පශ්නයක් අහනවා. මා දුටුවා එතුමන්ලාෙග් පාර්ශ්වෙය් අය, - මුසම්මිල් මන්තීතුමා - ඊෙය් ෙපෙර්දා කියා තිබුණා, අප ෙමය ෙහළා දකිනවාය කියා. රුපියල් මිලියන හයදහසක් ෙදන එක එතුමන්ලා ෙහළා දකිනවා ලු. ෙහළා දකිනවා, හැබැයි ඊට පස්ෙසේ ආපහු ආණ්ඩුවට පක්ෂව අත ඔසවනවා. ෙහළා දකින ගමන් අෙනක් පැත්ෙතන් අත ඔසවනවා.
+
+[ගරු දයාසිරි ජයෙසේකර මහතා]
+
+2008 ෙදසැම්බර් 05 3227 3228
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, ගිය අය වැය කථාෙව්දීත් විමල් වීරවංශ මැතිතුමා කිව්ව කථාවක් මට මතකයි. ෙලොකු අගලකට නරිෙයක් වැටුණාය කියා එතුමා කිව්වා. ඊට පස්ෙසේ පහළට ගියාය කිව්වා. ඊට පස්ෙසේ කිනිතුල්ලන් ඇවිල්ලා ෙපොර කාලා දිගටම ෙල් උරා ෙබොන්න පටන් ගත්තාය කිව්වා. ඒ ෙල් උරා ෙබොන එක නතර කරන්න එක් ෙකනකු ඇවිල්ලා උදවු කරන්න හැදුවාය කිව්වා. එතෙකොට නරියා කිව්වා ලු, "නැහැ එෙහම උදවු කරන්න ඕනෑ නැහැ. කිනිතුල්ලන් කාලා මැෙරන එක ඊට වඩා ෙහොඳයි. ඉන්න කිනිතුල්ලන් ටික දැන් ඇති ෙවන්න ෙල් බීලායි ඉන්ෙන්" කියා. ඉතින් දැන් මා අහනවා, ෙම් අය වැයට අත ඔසවලා විමල් වීරවංශ මහත්මයාලා කරන්න හදන්ෙන් අර කිනිතුල්ලනුත් එක්ක එකතු ෙවලා -තවත් කිනිතුල්ලන් ෙදොෙළොස් ෙදනකු ගිහිල්ලා - නරියාව විනාශ කරන එකද, නැත්නම් නිකම් ඉන්න එකද කියා. ජාතිෙය් ෙද්හය විනාශ ෙවලා තිෙයද්දී ෙමහි තිෙබන වැරදි ෙපනි ෙපනී ෙම්වාට අත උස්සන අයට මා කියන්ෙන් කිනිතුල්ෙලෝ කියලා ෙනොෙවයි ෙවන කථාවක්. මා ලබන සඳුදාට ඒ පිළිබඳව පැහැදිලි කර කියන්නම්. ඒ ෙගොල්ලන්ට තමයි ෙද්ශපාලන කිනිතුල්ෙලෝය කියන්ෙන්. එත ෙකොට ෙම් ෙදොෙළොස් ෙදනා දැන් අද බල බලා ඉන්නවා, ෙකොෙහොමද මහින්ද රාජපක්ෂ මහත්මයාට උදවු කරන්ෙන් කියා. රෙට් අහිංසක දුප්පත් මිනිසුන්ෙග් සල්ලි රුපියල් මිලියන හයදාහක් මිහින් එයාර් වැඩ පිළි ෙවළට - budget airline එකට- ෙයොද වන ෙකොට ඒකට කනගාටු ෙවලා නැත්නම් ඒක ෙහළා දැකලා නිකම් ඉන්නවා. ෙම්ක තමයි කුහක පතිපත්තිය කියන්ෙන්. ඒ වාෙග්ම මා ෙම් කාරණයත් කියන්න කැමැතියි. ගරු නිෙයෝජɕ සභාපතිතුමනි, ෙලෝකෙය් රටවල් hedging කරන්ෙන් නැහැ. ඉතිහාසෙය් ආණ්ඩු hedging කරලා නැහැ. ෙපෞද්ගලික ෙකොම්පැනි එක එක තැන්වල ගිහින්,- [බාධා කිරීම්] ඔබතුමා වාඩි ෙවන්න ෙකෝ. ඇයි, ඉතින් ෙම් නටන්ෙන්? වාඩි ෙවන්න. මට කථා කරන්න ෙදන්න ෙකෝ. [බාධා කිරීම්] මා කියන්න කැමැතියි, ෙම් hedging ගනුෙදනු ටික ගැන. ෙම් සූදුව ආණ්ඩු විසින් කරන්ෙන් නැහැ. ෙලෝකෙය් හැම තැනම ෙපෞද්ගලික ෙකොම්පැනි ෙම් hedging කර තිෙබනවා. ආනයන අපනයනෙය් දී ෙතල්වලට, නැත්නම් ගෑස්වලට, විවිධ කාරණාවලට hedging කරනවා. හැබැයි ඒ කරන්ෙන් ෙපෞද්ගලික ෙකොම්පැනියි. Mihin Air කියන budget airline එක ෙම් ආණ්ඩුව හදපු එකක්. අද වන ෙකොට ෙම් ආණ්ඩුව hedgingවලට ගිහින් තිෙබනවා, සූදු ෙකළින්න. ෙම්ෙක් අවසාන පතිඵලය වන්ෙන් ර ට දැවැන්ත අර්බුදයකට යාමයි. ෙනොවැම්බර් මාසෙය් ෙගවන්න තිෙබන බිල ෙඩොලර් මිලියන 60.2යි. ෙනොවැම්බර් මාසෙය් බිල ෙදසැම්බර් 08 වන දාට කලින් ෙගවන්න ඕනෑ. ෙඩොලර් මිලියන 60.2ක් ෙගවනවා. කාෙග් සල්ලි ද ෙම් යන්ෙන්? කාෙග්වත් සල්ලි ෙනොෙවයි, අෙප් රෙට් තිෙබන විෙද්ශ සංචිත ටිකයි යන්ෙන්. අෙප් රෙට් තිබුණු විෙද්ශ සංචිත ෙඩොලර් මිලියන 3,800 සිට ෙඩොලර් මිලියන 2,200 දක්වා ෙම් වන ෙකොට පහත බැස තිෙබනවා. තව තමුන්නාන්ෙසේලා ෙගවනවා. ෙම් hedging සූදුෙව් අවසාන පතිඵලය විධියට මාසයක් පාසා ෙඩොලර් මිලියන 40 ගණෙන් ෙගවන්න ෙවනවා. ෙම්ෙකන් ෙමොකක් ද වන්ෙන්? රට බංෙකොෙලොත් වන එක විතරයි වන්ෙන්. ගරු නිමල් සිරිපාල ද සිල්වා ඇමතිතුමනි, ස්ටෑන්ඩඩ් චාටර්ඩ් බැංකුව තමයි TRO account එක ඉස්ෙසල්ලාම පටන් ගත්ෙත්. තස්තවාදීන්ෙග් සල්ලි ෙගනැවිත් හිර කර ගත් පළමු වන බැංකුව ස්ටෑන්ඩඩ් චාටර්ඩ් බැංකුවයි. තස්තවාදීන්ෙගන් සල්ලි එකතු කර ගත් බැංකුවත් එක්ක තමුන්නාන්ෙසේලා hedging කරනවා. සූදු ෙකළිනවා. ෙම්වා හරියට අවෙබෝධ කර ෙගනයි තමුන්නාන්ෙසේලාට ෙම්වා කරන්නට තිබුෙණ් කියන එක මා කියන්නට කැමැතියි. නමුත් තමුන්නාන්ෙසේලා ඒක කෙළේ නැහැ. ෙමන්න බලන්න. උපුල් අරුණජිත් මහත්මයා කියන එක. කැබිනට් මණ්ඩලෙය් ඉන්න තමුන්නාන්ෙසේලා ෙම්ක හරියට කිෙයව්වා නම් ඇත්තටම අද ෙම් විනාශය වන්ෙන් නැහැ. ඒකයි මා ෙම් කියන්ෙන්.
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) ගරු මන්තීතුමනි, ඔබතුමාට තව විනාඩි යක් තිෙබනවා.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) මා තව විනාඩියක් ෙදකක් ගන්නවා අෙප් පක්ෂෙයන්. 2008 ජනවාරි 18 වන දා උපුල් අරුණජිත් මහත්මයා අසන්ත ද මැල් මහත්මයාට ලිපියක් එවනවා. Sir, it states, I quote: "Further I take the liberty to state that Crack Hedge provided by the Citi Bank is a clear act of misleading the CPC. As well, Standard Chartered Bank mislead the CPC when they sold the Zero Cost Collar when they were fully aware that it was the wrong strategy. Even with the wrong strategy, the pay back to the CPC should be more (over US $ 5 million). Both these Banks mislead the CPC and failed to maintain proper business ethics."
+
+ෙම්ෙකන් කියන්ෙන් ෙමොකක්ද? ෙම් බැංකු ෙදකම ලංකාෙව් කැබිනට් මණ්ඩලය ෙනොමඟ යවා තිෙබනවා. තමුන්නාන්ෙසේලා Zero Cost Collar gap එකට ගිෙය් ෙමොකද? ෙම් බැංකු ෙදකම කැබිනට් එක ෙනොමඟ යවා තිෙබන නිසයි. ෙමෙහම ලියුම් ලියලියා ෙම්,- [බාධා කිරීම්] ඒක තමයි කියන්ෙන්. බැංකු නිසා ෙනොමඟ යන ඇමතිවරුයි ෙමහි ඉන්ෙන්.ෙම් වැඩ පිළිෙවළින් තමුන්නාන්ෙසේලාෙග් කැබිනට් එක ෙනොමඟ ගියා. ඒකයි අප කියන්ෙන්. ෙම්කට තමුන්නාන්ෙසේලා කැබිනට් එෙක්දී අත ඉස්සුවා. කැබිනට් එෙක් සාමුහික වග කීමක් තිෙබනවා. එම නිසා මා කියන්ෙන්, වැරදි වැෙඩ් කරලා ඇවිත් ෙමතැන රකින්න හදන්න එපාය කියලායි. ෙම්ක අනුමත කරලා තමුන්නාන්ෙසේලාට එක කථාවක් කියන්නට තිබුණා. ෙකොමිටිය පත් කර ෙකොමිටිෙය් proposal එක ආවායින් පස්ෙසේ අරන් එන්න, එතෙකොට ෙම් සූදුව අල්ලන්ෙන් කීයට ද කියා කියන්නම් කියලා කැබිනට් මණ්ඩලය විධියට තමුන්නාන්ෙසේලාට කියන්නට තිබුණා. තමුන්නාන්ෙසේලා අන්ධානුකරණෙයන් කටයුතු කර තිෙබනවා. තමුන්නාන්ෙසේලාට guidelines ටික කැබිනට් මණ්ඩලයට ඉදිරිපත් කරන්න තිබුණා. අසන්ත ද මැල් මහත්මයාට වැෙඩ් කරන්න නිකම්ම බලතල දුන්නා. ෙමොකක්ද අසන්ත ද මැල් මහත්මයා කෙළේ? අසන්ත ද මැල් මහත්මයා කෙළේ අධɕක්ෂ මණ්ඩලෙය් ඔක්ෙකොම ටික එකතු කර ෙගන තීරණයක් ගත්තා, ඒ ෙදෙදනාට ඕනෑ විධියට වැඩ කටයුතු කරන්න. කවුද ඒ ෙදෙදනා? අසන්ත ද මැල් මහත්මයා සහ මුදල් කළමනාකාරවරයා. ඒ ෙදෙදනාම එකතු ෙවලා තමන්ට වැෙඩ් කර ගන්න අධɕක්ෂ මණ්ඩලෙයන් අනුමැතිය ගත්තා.කැබිනට් මණ්ඩලය අන්ධෙයෝ වාෙග් වැඩ කරලා අනුමැතිය දුන්නා වාෙග්ම, ෙතල් සංස්ථාෙව් අධɕක්ෂ මණ්ඩලය අනුමැතිය ෙදනවා ඒ අයට ඕනෑ ෙදයක් කරන්නය කියා. ඒෙක් අවසාන පතිඵලය තමයි ෙම් තිෙබන්ෙන්. ඒක තමයි අපි කියන්ෙන් ෙම් කැබිනට් මණ්ඩලය ෙම්කට වග කියන්න ඕනෑය කියා. ආණ්ඩුකම වɕවස්ථාෙව් 43 වන වɕවස්ථාව අනුව ෙබොෙහොම පැහැදිලිව තිෙබනවා, තමුන්නාන්ෙසේලා සාමූහික වගකීම ගන්න ඕනෑය කියා. මම දන්ෙන් නැහැ තමුන්නාන්ෙසේලා ෙම් කැබිනට් මණ්ඩලෙය් ෙමොනවාද සාකච්ඡා කරන්ෙන් කියා. ෙම් වාෙග් වැඩ පිළිෙවළක් එන ෙකොට අඩුම තරමින් ෙම් සම්බන්ධ විෙශේෂඥයන් ෙගන්වා කතා කරන්න තිබුණා. ඉස්ෙසල්ලාම ෙම් වැඩ පිළිෙවළ ෙගනල්ලා දැම්ෙම් උපුල් අරුණජිත් කියන පුද්ගලයාවයි. එතැනින් පසුව ඔහු කියපු ෙද්වල් පැත්තකට විසි කරලා දැමුවා. අජිත් නිවාඩ් කබ්රාල් මහත්මයා - මහ බැංකු අධිපතිතුමා - තමයි ඊළඟට කැබිනට් එකට උපෙදස් ෙදන්ෙන් ෙමන්න ෙම්ක කරන්නය කියා. එදා අෙප් ඒ. එච්. එම්. ෆවුසි ඇමතිතුමා ඒක කිව්වා.
+
+ගරු ලලිත් දිසානායක මහතා (மாண்ᾗமிகு லᾢத் திஸாநாயக்க) (The Hon. Lalith Dissanayake) කබ්රාල් මහත්මයා ඒ පැත්ෙත් ඉන්න ෙකොට ෙහොඳයි.
+
+පාර්ලිෙම්න්තුව 3229 3230
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) අහ ගන්න. අඩුම තරමින් අනාගතෙය්දී නිෙයෝජɕ ඇමතිකමක්වත් හම්බ ෙවයි. ඒ නිසා ෙම්වා කියන ෙකොට ෙපොඩ්ඩක් අහ ගන්න. පල්ලි ගිනි තියලා වැෙඩ් කරන්න බැහැ. ඉඳ ගන්න. කබ්රාල් ගැන කියන ෙකොට තමුන්නාන්ෙසේලාට හරියට රිෙදනවා. ඇයි ෙම් කබ්රාල් රකින්න හදන්ෙන්? අජිත් නිවාඩ් කබ්රාල් මහත්මයා ෙම් රෙට් ආර්ථිකයට කරලා තිෙබන විනාශය තමුන්නාන්ෙසේලාට ඔෙහොම නැඟිටලා වහ ගන්න බැහැ. මතක තියා ගන්න. එදා ෙබොෙහොම පැහැදිලිව ඒ.එච්.එම්. ෆවුසි ඇමතිතුමා කිව්වා, ෙම් වැඩ පිළිෙවළට වග කියන්න ඕනෑ අජිත් නිවාඩ් කබ්රාල් මහත්මයාය කියන එක. දැන් එක එක් ෙකනා එක එක් ෙකනා ගැලවි ගැලවී අරයාට, ෙමයාට ඒක දමනවා. එක් ෙකෙනක් කියනවා නිවාඩ් කබ්රාල් වග කියන්න ඕනෑය කියා. තව එක් ෙකෙනක් කියනවා අසන්ත ද මැල් අෙපන් ඇහුෙව් නැහැ කියා. තව එක් ෙකෙනක් කියනවා කැබිනට් එෙක් ෆවුසි ඇමතිතුමා තමයි ෙම්කට වග කියන්න ඕනෑ කියා. තමුන්නාන්ෙසේලා දැන් එක එක් ෙකනාට ෙබෝෙල පාස් කරනවා. හැබැයි එෙහම ෙබෝෙල පාස් ෙකරුවාට ෙවන කාෙගවත් ෙනොෙවයි අෙප් ජනතාවෙග් ඇෙහේ තමයි ෙබෝෙල වැදිලා තිෙබන්ෙන්. ඒකයි ෙමතැන තිෙබන පශ්නය. [බාධා කිරීමක්] තමුන්නාන්ෙසේට අනාගතෙය්දී නිෙයෝජɕ ඇමතිකමක්වත් හම්බ ෙවයි කියා හිතනවා නම් අඩුම තරමින් ෙම්ක අහ ගන්න, පල්ලි ගිනි තියන්ෙන් නැතුව. ගරු නිෙයෝජɕ සභාපතිතුමනි, අපි ෙශේෂ්ඨාධිකරණයට ගරු කරනවා. අපි එතුමන්ලාට කියනවා, ෙම්ක null and void ගිවිසුමක්; ෙම්ක අවලංගු කරන්න කටයුතු කරන්නය කියා. දැන් කතා කරනවා ෙම්ක restructure කරන්න.
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ෙම් ගිවිසුම පිළිබඳ පශ්නය ෙශේෂ්ඨාධිකරණෙය් විනිශ්චයට භාජන ෙවලායි තිෙබන්ෙන්. ඒ නිසා ඒ පිළිබඳව කතා කරන එක වැරදියි. ගරු මන්තීතුමනි, ඔබතුමාත් නීතිඥෙයක් ෙන්.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) මම ස්තුති කළා, ෙශේෂ්ඨාධිකරණයට. එච්චරයි. ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ෙම්ක null and void කරන්න ඕනෑද නැද්ද කියන කාරණය ෙශේෂ්ඨාධිකරණෙය්යි තිෙබන්ෙන්. ඉතින් ඒ නිසා අපි ෙම් පාර්ලිෙම්න්තුෙව් ඒ ගැන කතා කරන එක හරි නැහැ.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) මා ඒක අගය කළා. මම කියන්න කැමැතියි ෙමන්න ෙමතැනට තමයි ෙම් රට තල්ලු ෙව්ෙගන යන්ෙන් කියා.
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) ගරු මන්තීතුමනි. දැන් විනාඩි පහක් වැඩිෙයනුත් අරෙගන තිෙබනවා.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) අද බලන්න කර්මාන්ත අමාතɕාංශයට සිද්ධ ෙවලා තිෙබන ෙදය. කර්මාන්ත අමාතɕාංශය තුළ අද දැවැන්ත ගනුෙදනු ගණනාවක් සිද්ධ ෙවමින් පවතිනවා. මම කියන්න කැමැතියි.
+
+තමුන්නාන්ෙසේලා "සිය රට ෙද්-සිරි සැප ෙද්" කියා මහ ෙලොකුවට කතා කරනවා. [බාධා කිරීමක්] ඕක ෙත්ෙරන්ෙන් තමුන්නාන්ෙසේලාටයි. ඕක එෙහම පිටින්ම කුණු හරුපයක්. ඒකයි මම කියන්ෙන්. අපි දන්නවා තමුන්නාන්ෙසේ එෙහේ ගිහින් කරපු ෙදය. පළාත් සභාවට ගිහින් කරපු ෙද්වල් අපි දන්නවා. අහ ගන්න. තමුන්නාන්ෙසේලාෙග් ජාතික ආර්ථික කුණු හරුපය අපට ෙත්ෙරන්ෙන් නැති එක තමයි තිෙබන පශ්නය. අහ ගන්න. ගරු නිෙයෝජɕ සභාපතිතුමනි, ලංකාෙව් නිෂ්පාදනය කරන්න පුළුවන් රතිඤ්ඤා ටිකත් දැන් පිට රටින් ෙගෙනනවා. කුරක්කන් ටිකත් පිට රටින් ෙගෙනනවා. ලුණු ටිකත් පිට රටින් ෙගෙනනවා. ඊෙය් ෙපෙර්දා වන ෙකොට අවුරුදු ෙදක, තුනක් තිස්ෙසේ වරාෙය් හිර කරලා තිබිච්ච රතිඤ්ඤා containers ෙදකක් නිදහස් කළා. කිඹුලාපිටිෙය්, මීගමුෙව් අහිංසක, දුප්පත් මිනිසුන් ගණනාවක් එකතු ෙවලා රතිඤ්ඤා නිෂ්පාදන කටයුතු කරනවා. ඒ අය ලංකාෙව් රතිඤ්ඤා නිෂ්පාදකෙයෝයි. මහනුවර පෙද්ශෙය්ත් රතිඤ්ඤා නිෂ්පාදනය කරනවා. තමුන්නාන්ෙසේලා ෙමොකක්ද කෙළේ. ඉන්දියාෙවන් ලංකාවට රතිඤ්ඤා containers ෙදකක් ෙගෙනන්න අවශɕ කටයුතු ටික ලෑස්ති කළා.
+
+ගරු අනුර පියදර්ශන යාපා මහතා (ජනමාධɕ හා ෙතොරතුරු අමාතɕතුමා)
+
+(மாண்ᾗமிகு அᾒர பிாியதர்ஷன யாப்பா - மக்கள் ெதாடர்பாடல், தகவல் அைமச்சர்)
+
+(The Hon. Anura Priyadharshana Yapa - Minister of Mass Media and Information)
+
+එක්සත් ජාතික පක්ෂෙය් ආර්ථික පතිපත්තිය ෙමොකක්ද? ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) මම ඔබතුමාට කියා ෙදන්නම්. එහා පැත්තට එන්න ෙකෝ. අපි ෙදෙදනා කතා කර ගනිමු.
+
+ගරු අනුර පියදර්ශන යාපා මහතා (மாண்ᾗமிகு அᾒர பிாியதர்ஷன யாப்பா) (The Hon. Anura Priyadharshana Yapa) ඔබතුමන්ලාෙග් ආර්ථික පතිපත්ති මට කියා ෙදන්න. ඔබතුමන්ලා ෙජ්.ආර්. ජයවර්ධන මැතිතුමාෙග් ආර්ථික පතිපත්තිය අනුගමනය කරනවාද, එෙහම නැත්නම් ඩඩ්ලි ෙසේනානායක මැතිතුමාෙග් ආර්ථික පතිපත්තිවලට ආපහු යනවාද කියා කියන්න ෙකෝ.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) මම කියා ෙදන්නම්. අපි ෙදෙදනා ෙකොෙහේ හරි තැනකදී හම්බ ෙවමු. අෙප් ආර්ථික පතිපත්තිය මම හරියට කියලා ෙදන්නම්.
+
+ගරු අනුර පියදර්ශන යාපා මහතා (மாண்ᾗமிகு அᾒர பிாியதர்ஷன யாப்பா) (The Hon. Anura Priyadharshana Yapa) ෙකොෙහේවත් යන්න ඕනෑ නැහැ.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) 1994 දී තමුන්නාන්ෙසේලා බලයට ආෙව් ෙමොකටද? විවෘත ආර්ථිකය විනාශයක්ය කියලා ඒ විවෘත ආර්ථිකයට මානුෂික මුහුණුවරක් ෙදන්නයි තමුන්නාන්ෙසේලා ආෙව්. ෙකෝ, දුන්නු මානුෂික මුහුණුවර?
+
+ගරු අනුර පියදර්ශන යාපා මහතා (மாண்ᾗமிகு அᾒர பிாியதர்ஷன யாப்பா) (The Hon. Anura Priyadharshana Yapa) ඒක අපි කළා. [බාධා කිරීමක්]
+
+2008 ෙදසැම්බර් 05 3231 3232
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ෙම් ආණ්ඩුව යටෙත් ආයතන 49ක් ෙපෞද්ගලීකරණය කරලා තමයි නතර කෙළේ.
+
+ගරු අනුර පියදර්ශන යාපා මහතා (மாண்ᾗமிகு அᾒர பிாியதர்ஷன யாப்பா) (The Hon. Anura Priyadharshana Yapa) ගරු මන්තීතුමනි, එදා ඔබතුමා ඇමතිවරයකු යටෙත් නිලධාරිෙයක් හැටියට වැඩ ෙකරුෙව්. [බාධා කිරීමක්]
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ෙෂල් සමාගම වික්කා. ලංකාෙව් තිබුණු ගුවන් සමාගම එමිෙර්ට්ස් එකට වික්කා. තමුන්නාන්ෙසේලාෙග් ආර්ථික වැඩ පිළිෙවළ ඒක ද? ලාභ ලබමින් තිබුණු ෙෂල් සමාගම වික්කා. ලංකාෙව් තිබුණු එකම ගෑස් සමාගම විකුණලා දැම්මා. ගුවන් ෙතොටු ෙපොෙළේ තිබුණු සියලු ෙද්වල් එක්කම ශී ලංකන් එයාර් ලයින් එක එමිෙර්ට්ස් එකට වික්කා. ඉඩම් අක්කර ගණනක් විකුණලා දැම්මා. 1994 ඉඳලා 2000 වන ෙතක් ආයතන 46ක් විකුණලා දැම්මා. තමුන්නාන්ෙසේලා පටන් ගත් මානුෂික මුහුණුවර ඒක තමයි. ඔන්න, විවෘත ආර්ථිකයට මානුෂික මුහුණුවරක් දීම. ඊළඟට ෙද්ශීය ආර්ථිකය ගැන කථා කරන්න පටන් ගත්තා. ෙද්ශීය ආර්ථිකයට සිදු ෙවලා තිෙබන ෙද් මම ෙහට කියන්නම්. දැන් මට ෙවලාව නැති නිසා කියන්ෙන් නැහැ. ෙනොදන්නා වැඩ පිළිෙවළවලට ගියාම තමුන්නාන්ෙසේලාට සිද්ධ වන්ෙන් ඕක තමයි. ෙම් අය වැය ෙල්ඛනය තුළ ෙද්ශීය ආර්ථිකය නංවන එක වැඩ පිළිෙවළක්වත් නැහැ. තිෙබන්ෙන් තමුන්නාන්ෙසේලාෙග් අර ෙමොබිෙටල් උපහාර පැෙක්ජය විතරයි. අෙප් ෙගෞරවණීය ස්වාමීන්දයන් වහන්ෙසේලාටත් ෙමොබිෙටල් උපහාර පැෙක්ජය ෙදනවා. විදුහල්පතිවරුන්ටත් ඒක ෙදනවා. එච්චර තමයි තිෙබන්ෙන්. ඒකත් නිකම් ෙදන්ෙන් නැහැ. ඒක දීලා හාමුදුරුවන්ෙගන් රුපියල් 1,000ක් ගන්නවා. අන්න එතැනට තමයි ඇවිල්ලා තිෙබන්ෙන්.
+
+ඒ වාෙග්ම අද වන විට සිෙමන්ති පිළිබඳව තිෙබන අර්බුදය බලන්න. බන්දුල ගුණවර්ධන ඇමතිතුමා සිෙමන්ති ෙටොන් එක ෙගනාෙව් ෙඩොලර් 79 ගණෙන්. ඒ දවෙසේම ඒ ෙකොම්පැනිෙයන්ම කර්මාන්ත අමාතɕාංශයට ෙගන්වනවා, සිෙමන්ති ෙටොන් එක ෙඩොලර් 86යි. ෙහොඳයි ෙන් ගණන. කර්මාන්ත ඇමතිතුමා ෙමතැන ඉන්නවා නම් කරුණාකරලා පරීක්ෂණයක් කරන්න කියලා මම එතුමාට කියනවා. ෙමතැන දැවැන්ත ෙහොරකමක් සිද්ධ ෙවනවා. ඒ ෙකොම්පැනිෙයන්ම, ඒ දවෙසේම බන්දුල ගුණවර්ධන ඇමතිතුමා ෙගන්වන ෙකොට ෙටොන් එකක් ෙඩොලර් 79යි. ඒ දවෙසේම කර්මාන්ත ඇමතිතුමන්ලා ෙගන්වන ෙකොට ෙඩොලර් 86යි. කවුද ෙම්ෙකන් ගැහුෙව්. ඒ නිසා කරුණාකරලා ලංකාෙව් මිනිසුන්ට සිෙමන්ති කවන්න ලෑස්ති ෙවන්න එපා. අර ෙහජින් ගනුෙදනුවට වග කියනවා වාෙග්ම ලංකාවට අඩු මිලට සිෙමන්ති ෙදනවා කියලා කථා කරපු ෙම් ඇමතිවරු අද කෂාය බීපු ෙගොළුෙවෝ වාෙගයි ඉන්ෙන්.
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) දැන් කථාව අවසන් කරන්න. ෙබොෙහොම ස්තුතියි. ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) මම තව එක විනාඩියක් ගන්නවා. අද උෙද් ෙගෝඨාභය රාජපක්ෂ මහත්මයා ගිහිල්ලා අෙප්ක්ෂිත අපහාස කිරීම පිළිබඳව තහනම් නිෙයෝගයක් ගත්තා. සාමානɕෙයන් අෙප්ක්ෂිත ඇපයක් ගන්න පුළුවන් බව තමුන්නාන්ෙසේලා දන්නවා. නමුත් ඉතිහාසෙය් කවදාවත් අෙප්ක්ෂිත අපහාස කිරීමක් තහනම් කරන්ෙන් නැහැ.
+
+එතුමාට කවුරු හරි අපහාස කරන්න ඉන්නවාය කියලා ඒක තහනම් කරන්න අද ෙකොළඹ දිස්තික් උසාවියට ගිහිල්ලා වාරණ නිෙයෝගයක් ගත්තා. ෙම් ෙමොකටද? ෙම් භය ෙවලා තිෙබන්ෙන් ඇයි? ගරු නිෙයෝජɕ සභාපතිතුමනි, ෙමොකක් හරි වැරැද්දක් කෙළොත් තමයි උසාවියට ගිහිල්ලා ඒ සම්බන්ධෙයන් වාරණ නිෙයෝගයක් ගන්ෙන්. ලබන සතිෙය් පත්තර කිහිපයකින්, ආයතන කිහිපයකින් ජානක ෙපෙර්රා මැතිතුමා සම්බන්ධ කාරණා කිහිපයක් ඉදිරිපත් කරන්න හිටියා. ඒක වැළැක්වීම සඳහා තමයි ෙම් වාරණ නිෙයෝගය ගන්ෙන්. ෙම්ක අෙප් ආණ්ඩුකම වɕවස්ථාව යටෙත් අදහස් පකාශ කිරීෙම් අයිතිය උල්ලංඝනය කිරීමක් බවට පත් ෙවලා තිෙබනවා.
+
+ෙම් අමාතɕාංශ 21 පිළිබඳව ඇමතිවරුන් එක්ක කථා කරලා, ඒ කාරණා සම්බන්ධෙයන් මැදිහත් ෙවන්න අපටත් අවස්ථාව ලැබීම ගැන අපි සන්ෙතෝෂ ෙවනවා. අෙප් නිමල් සිරිපාල ද සිල්වා මැතිතුමා එහි සභාපතිවරයා විධියට විශාල කාර්ය භාරයක් ඉටු කළා. මා ආණ්ඩුවට ෙයෝජනා කරනවා, අනාගතෙය්දී හැම අමාතɕාංශයක් ගැනම ෙම් විධියට අපිත් එක්ක ඉඳ ෙගන සාකච්ඡා කරන්න කටයුතු කරන්නය කියලා. එෙහම කරන්න පුළුවන් නම් ඉතාම වටිනාකමක් තිෙබන බවට පකාශ කරමින්, මට ලබා දුන්නු කාලය ෙවනුෙවන් තමුන්නාන්ෙසේට ස්තුතිවන්ත ෙවමින්, අපට බාධා කළ අෙප් ලලිත් දිසානායක මැතිතුමාට ෙම් ආත්මෙය්දීම ඇමතිකමක් ලැෙබ්වාය කියා පාර්ථනා කරමින් මා නිහඬ වනවා. ෙබොෙහොම ස්තුතියි. නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) ෙබොෙහොම ස්තුතියි. ඊළඟට ගරු අගමැතිතුමා. [අ.භා. 12.15] ගරු රත්නසිරි විකමනායක මහතා (අගාමාතɕතුමා, අභɕන්තර පරිපාලන අමාතɕතුමා සහ රාජɕ ආරක්ෂක, මහජන ආරක්ෂාව, නීතිය හා සාමය පිළිබඳ නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு ரத்னசிறி விக்கிரமநாயக்க - பிரதம அைமச்சᾞம் உள்ளக நிᾞவாக அைமச்சᾞம் பாᾐகாப்ᾗ, ெபாᾐமக்கள் பாᾐகாப்ᾗ, சட்டᾙம் ஒᾨங்கும் பற்றிய பிரதி அைமச்சᾞம்)
+
+(The Hon. Ratnasiri Wickramanayaka - Prime Minister, Minister of Internal Administration and Deputy Minister of Defence, Public Security, Law and Order)
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, අදහස් කිහිපයක් පකාශ කරන්න මට අවසර ෙදන්න. ඇත්ත වශෙයන් අද අපි සාකච්ඡා කරන්ෙන් අමාතɕාංශ 21ක වැය ශීර්ෂයන් පිළිබඳවයි. තමුන්නාන්ෙසේෙග් සැලකිල්ල ෙයොමු කරන්න සිදු වනවා, එදා ෙඩොෙනොෙමෝර් ආණ්ඩු කමය පැවැති කාලෙය් තිබුණු කමිටු පිළිබඳව. ඒ කමිටු හරහා ෙබොෙහෝ දුරට වැඩ ෙකරුණාය කියන එක කවුරුත් පිළිගත් ෙදයක්. නමුත් එදා තිබුණු තත්ත්වය ෙනොෙවයි, අද තිෙබන්ෙන්. අද ඊට වඩා ෙවනස්. එනමුත් අපි ආරම්භයක් හැටියට ෙම් ආකාරෙය් සුහදව සාකච්ඡා කරලා, අදහස් හුවමාරු කර ෙගන යම් කිසි නිගමනයන්ට එන්න පුළුවන් වාතාවරණයක් බිහි කිරීම සම්බන්ධව ෙම් ගරු සභාෙව් සියලුම ගරු මන්තීවරුන්ට අපෙග් පසාදය හා පණාමය පිරිනමන්නට ඕනෑ. ෙමය අලුත් ආරම්භයක්. අඩු පාඩුකම් මකා ෙගන අපි ෙමය තවදුරටත් ඉදිරියට ෙගන යමු. ඒකයි මෙග් පළමු වන ෙයෝජනාව.
+
+ෙද වන කාරණය ෙම්කයි. අෙප් දයාසිරි ජයෙසේකර මන්තීතුමා, ෙම් ෙතල් මිල ගැන, ෙහජින් ගැන විශාල වශෙයන් කරුණු ඉදිරිපත් කළා. සමහර ඒවා ෙශේෂ්ඨාධිකරණෙය් සැලකිල්ලට ෙයොමු ෙවලා තිෙබනවා. ඒවාට ඇඟිලි ගහන්න මා සූදානම් නැහැ. නමුත් මට අවසර ෙදන්න, ෙතල් මිල සම්බන්ධව රජය ෙමෙතක් අනුගමනය කරපු පතිපත්තිය පිළිබඳව තමුන්නාන්ෙසේ ඉදිරිෙය් කියන්න.
+
+2009 අය වැය කථාව ඉදිරිපත් කරමින් අතිගරු ජනාධිපතිතුමා සඳහන් කෙළේ ඉන්ධන මිල අනවශɕ ෙලස අඩු කර නැවතත් ෙම් රෙට් ෙතල් මත යැෙපන ආර්ථිකයක් ඇති කිරීම විනාශකාරී
+
+පාර්ලිෙම්න්තුව 3233 3234
+
+කියාවක් බවයි. 2007 ජනවාරි මාසෙය් සිට 2008 ජූලි මාසය දක්වා ෙබොර ෙතල් බැරලයක මිල ඇෙමරිකානු ෙඩොලර් 50 සිට ඇෙමරිකානු ෙඩොලර් 147 දක්වා ශීඝ ෙලස වැඩි වී නැවතත් 2007 ජනවාරි මාසෙය් පැවැති මිල ගණන්වලටම ආසන්න ෙලස පහත වැටී තිෙබනවා. එෙලසම පිට රටින් ෙගන්වන ෙපටල් සහ ඩීසල්වල මිල ගණන්ද, පිළිෙවළින් 2007 ජනවාරි මස පැවැති මිල ගණන් වූ ඇෙමරිකානු ෙඩොලර් 160 දක්වා වැඩි වී ෙම් වන විට නැවතත් ඇෙමරිකානු ෙඩොලර් 50 හා ඇෙමරිකානු ෙඩොලර් 70 දක්වා වූ අඩු ගණනට පහළ බැහැලා තිෙබනවා. ෙම් අනුව ජාතɕන්තර ෙතල් මිල ගණන් උච්චාවචනය වන බව මනාව පැහැදිලි වනවා. මිල ඉහළ යනවා; පහළ යනවා. අතිගරු ජනාධිපතිතුමා අය වැය කථාෙව් දී මිල ගණන්වල අස්ථාවරත්වය ගැන විෙශේෂෙයන් විමසිලිමත් විය යුතු බව සඳහන් කළා. එෙමන්ම මිල ඉහළ යන අවස්ථාෙව් ජනතාවට සහනයක් දීම සඳහා ඛනිජ ෙතල් මත පැවැති බදු බර අඩු කරනු ලැබුවා. ඒ අනුව රජය විසින් ඛනිජ ෙතල් මිල ගණන් නියම කිරීෙම්දී අනුගමනය කළ පතිපත්ති ෙමන්න ෙම්වායි. 1. කෘෂිකර්මය, ධීවර, විදුලි බලය ෙනොමැති හා අඩු ආදායම් ලාභී පාරිෙභෝගිකයන් බහුල වශෙයන් භාවිත කරන භූමි ෙතල් සඳහා ෙර්ගු බදු, නිෂ්පාදන බදු හා වැට් බදු ෙනොපැනවීම. පැෙනව්ෙව් නැහැ. 2. පවාහන ක්ෙෂේතයට හා ෙපොදු පවාහනයට ෙමන්ම කර්මාන්තවල භාවිතය සඳහා ගැෙනන ඩීසල් සඳහා ලීටරයකට රුපියල් 2.50 බැගින් වූ නිෂ්පාදන බද්ද හැර ෙර්ගු බදු හා වැට් බද්ද ඉවත් කිරීම. 3. ෙමෝටර් රථ හා ෙමෝටර් සයිකල් සහ සියයට 60කින් පමණ භාවිත වන ෙපටල් සඳහා පමණක් ලීටරයකට රුපියල් 25ක් වූ නිෂ්පාදන බද්ද පැන වූ අතර වැට් බද්දත් සියයට 15 සිට සියයට 5 දක්වා අඩු කිරීම. ජාතɕන්තර මිල ගණන් වැඩි වීමට සමගාමීව ෙද්ශීය ඛනිජ ෙතල් නිෂ්පාදනවල මිල වැඩි කිරීෙමන් ජීවන වියදම හා ආර්ථිකයට ඇති වන දැඩි පීඩනය සැලකිල්ලට ගනිමින්, එෙසේ මිල වැඩි කිරීම සීමා කිරීමට රජයට සිදු වූ අතර, එයින් රජයට විශාල අලාභයක්ද සිදු වුණු බව සඳහන් කරන්නට ඕනෑ. ඇත්ත වශෙයන්ම 2008 මැයි මාසෙය් දී ඩීසල් ලීටරයක මිල රුපියල් 150 දක්වාත්, භූමිෙතල් ලීටරයක මිල රුපියල් 129 දක්වාත් වැඩි කළ යුතුව තිබුණු නමුත් රජය කියාත්මක කළ මිල ගණන් වූෙය් ඩීසල් ලීටරයක් රුපියල් 110ක් හා භූමිෙතල් ලීටරය රුපියල් 80ක් වශෙයනි. ඒ වන විට ෙපටල් ලීටරයකින් රුපියල් 7ක පමණ ලාභයක් ලැබුවද, අෙනකුත් ඉන්ධනවලින් ලැබුණු පාඩුව පිරිමසා ගැනීමට එම ලාභය පමාණවත් වූෙය් නැත. විදුලිබල මණ්ඩලය ඛනිජ ෙතල් නීතිගත සංස්ථාවට ෙනොෙගවූ ණය පමාණය ද රුපියල් බිලියන 40ක් පමණ වුණා. ෙම් කරුණ සැලකිල්ලට ෙගන අතිගරු ජනාධිපතිතුමා අය වැය කථාෙව් දී ෙපන්වා දුන්ෙන් අහිමි වූ බදුවලින් ෙකොටසක් ෙහෝ නැවත ලබා ගැනීමටත්, ඇති වූ පාඩුව යම් දුරකට ෙහෝ පියවා ගැනීම ගැනත් සැලකිලිමත් විය යුතු බවයි. තවද, ඉන්ධන අරපිරිමැස්මට ගනු ලැබූ පියවර ෙමන්ම විකල්ප බලශක්ති සංවර්ධනය සඳහාත් ගනු ලැබූ කියා මාර්ග ආපසු හැර විය යුතු නැති බව අතිගරු ජනාධිපතිතුමා සඳහන් කළා. එබැවින් වාහන ආනයනය මත අධික බදු පවත්වා ෙගන යාම, ෙනොෙරොච්ෙචෝෙල් ගල් අඟුරු බලාගාරය, ෙකොත්මෙල් ජල විදුලි බලාගාරය, ෙමගාෙවොට් 300ක පමණ කුඩා හා මධɕම පරිමාණෙය් ජල විදුලි බලාගාර හා ෙවනත් විකල්ප බලශක්ති සංවර්ධන වɕාපෘති තවදුරටත් කර ෙගන යා යුතුය කියන එක තමයි රජෙය් ස්ථාවරය වූෙය්. එෙමන්ම රෙට් ඉදිරි සංවර්ධනයට අවශɕ පරිසර සංරක්ෂණය සම්බන්ධෙයන්ද, අධික ෙතල් භාවිතය අෛධර්යවත් වන වැඩ පිළිෙවළවල්ද ඉදිරියටත් ෙගන යා යුතු බව එතුමාෙග් අදහස වුණා. විදුලි බලය ජනනය කිරීම සඳහා විදුලිබල මණ්ඩලය
+
+විසින්ද, නිෂ්පාදන කටයුතු සඳහා විවිධ කර්මාන්තශාලා විසින් භාවිත කරන දැවි ෙතල් මිල අඩු මට්ටමක තබා ගැනීම තුළින් ද, එම කර්මාන්තවල නිෂ්පාදන වියදම අඩු කර ගැනීමත්, ජාතɕන්තර වශෙයන් තරගකාරිත්වය පවත්වා ෙගන යාමත් අතɕවශɕව කළ යුතුව තිබුණා. විෙශේෂෙයන්ම සපුගස්කන්ද ෙතල් පිරිපහදුව සඳහා ෙබොර ෙතල් ෙගන්වා පිරිපහදු ෙකොට රට තුළ ඉන්ධන නිපද වීමත්, එම කර්මාන්ත ශාලාව ආරක්ෂා කර ගැනීම සඳහා ෙලෝක ෙවෙළඳ ෙපොෙළේ ෙතල් මිල අඩු කාලවලදී ෙබොර ෙතල් ෙගන්වා පිරිපහදු කිරීෙම් කියාවලිය අඛණ්ඩව පවත්වා ෙගන යා යුතු බවත් අපෙග් ස්ථාවරය වුණා. එෙසේ ෙනොවුව ෙහොත් පසු ගිය රජයන් යටෙත් කඩදාසි සංස්ථාවටත්, තුල්හිරිය, ෙව්යන්ෙගොඩ වැනි ඒ කර්මාන්තශාලාවලටත්, අල, ලූනු, බඩ ඉරිඟු, වී වගා කරන ෙගොවීන්ටත් සිදු වුණු ෙද් ඛනිජ ෙතල් සංස්ථාවටද ඇති විය හැකි බවට අපි අනතුරු ඇඟවූවා. ෙම් නිසා ෙද්ශීය නිෂ්පාදන ආරක්ෂා වන අයුරින් බදු පතිපත්තිය සකස් කර ගැනීම මහින්ද චින්තනෙය් පතිපත්තිය වූවා. අතɕවශɕ පාරි ෙභෝගික භාණ්ඩවල බදු පතිපත්තිය සකස් කිරීෙම් දීද, ෙමවැනිම ෙපොදු කරුණු රාශියක් ෙකෙරහි රජය සැලකිලිමත් වී තිෙබනවා. ඒ අනුව අල, බී ලූනු, දියර කිරි, වී, බඩ ඉරිඟු, ලූනු, සීනි වැනි ෙද්ශීය නිෂ්පාදනයන්ෙගන් ස්වයංෙපෝෂණය විය හැකි භාණ්ඩ පිට රටින් ෙගන්වීෙම් දී තීරු බදු, ෙසස් බදු, විෙශේෂ ෙවළඳ භාණ්ඩ බද්ද, වැට් බද්ද සකස් කර තිෙබනවා. එම භාණ්ඩවල නිෂ්පාදන තත්ත්වය, ලැෙබන මිල ගණන්, පාරිෙභෝගිකයා විසින් ෙගවිය යුතු මිල ගණන් පිළිබඳව සැලකිලිමත්ව බදුවල ෙවනස්කම් ඇති කර තිෙබනවා. විෙශේෂෙයන් ෙද්ශීය අස්වැන්න ලැෙබන කාලවල දී හා ජාතɕන්තර මිල ගණන් ඉහළ යන විට බදු අඩු කිරීමටත් කටයුතු කර තිෙබනවා. ඒ නිසාම අද ෙද්ශීය නිෂ්පාදනය දිරි ගැන් වී තිෙබන අතර, 2006 සිට සෑම වර්ෂයකම දියර කිරි, වී, බඩ ඉරිඟු, ලූනු ෙමන්ම ෙවනත් ෙද්ශීය කර්මාන්තවල නිෂ්පාදනයන්ද කමෙයන් වැඩි ෙවමින් පවතිනවා. ආහාරවලින් ස්වයංෙපෝෂිත වීම සඳහාත්, විෙද්ශ විනිමය ඉතිරි කර ගැනීම සඳහාත් ෙමම වැඩ පිළිෙවළ අනුගමනය කිරීම රජෙය් පතිපත්තියයි. ෙම් අතරතුර ජාතɕන්තර ෙතල් මිෙලහි මැදි කාලීන සාමානɕ ස්ථාවර ෙබොර ෙතල් මිල බැරලයකට ඇෙමරිකානු ෙඩොලර් 65, 70 මට්ටෙම් පවතී යයි අෙප්ක්ෂා කරන අතර වර්තමානෙය් එය ඇෙමරිකන් ෙඩොලර් 50කට පමණ අඩු වී තිෙබනවා. ෙම් අනුව මිල පතිපත්තිෙය් පහත ලක්ෂණ අප ෙපන්නුම් කළ යුතු වනවා. 1. එක් එක් නිෂ්පාදිතය බහුල වශෙයන් පරිෙභෝජනය කරන ජන ෙකොටස් සැලකිල්ලට ෙගන බූමි ෙතල් වැනි ඉන්ධන හැර අෙනකුත් ඉන්ධන සඳහා පවත්නා බදු මුළුමනින්ම කියාත්මක කිරීම මඟින් රජෙය් අහිමි වූ ආදායම යළි ස්ථාපිත කිරීම හා එමඟින් රජෙය් සංවර්ධන කටයුතු සඳහා අවශɕ මුදල් ලබා ගැනීම. 2. කර්මාන්ත හා නිෂ්පාදන අංශවල පිරිවැය අඩු වන පරිදි දැවි
+
+ෙතල් වැනි ඉන්ධනවල මිල අඩු කිරීෙමන් ආර්ථිකෙය් තරගකාරිත්වය රැක ගැනීම. 3. සපුගස්කන්ද පිරිපහදුව ආරක්ෂා වන පරිදි, ෙපටල්, ඩීසල්
+
+වැනි ආනයනය කරන ඉන්ධනවල තීරු බදු හා ෙසස් බදු පවත්වා ෙගන යාම. 4. පරිසරය, ඉන්ධන අරපිරිමැස්ම, විකල්ප බලශක්ති වැඩ
+
+පිළිෙවළවල් ගැන සැලකිලිමත්ව මිල තීරණය කරමින් විෙද්ශ විනිමය ඉතිරි කර ගැනීමට පමුඛත්වය දීම. ෙද්ශීය මිල ගණන් ස්ථාවරව පවත්වා ගැනීම සඳහා ඉහත සඳහන් කරුණු සැලකිල්ලට ෙගන අය වැය කථාෙව් අතිගරු ජනාධිපතිතුමා සඳහන් කළ පරිදි, දැනට පහත බැස ඇති ජාතɕන්තර ෙතල් මිල ගණන් අනුව අද සිට ෙපටල් ලීටරයක මිල රුපියල් 20කින් ද, දැවි ෙතල් ලීටරයක මිල රුපියල් 10කින් ද අඩු කරනු ලබන බව මම තමුන්නාන්ෙසේට කියන්න කැමැතියි.
+
+[ගරු රත්නසිරි විකමනායක මහතා]
+
+2008 ෙදසැම්බර් 05 3235 3236
+
+ජාතɕන්තර ෙතල් මිල ගණන් තව දුරටත් පහළ යන්ෙන් නම් ඒ අනුව ඉදිරිෙය්දී තව දුරටත් මිල අඩු කිරීමට අපි බලාෙපොෙරොත්තු වන බව ද තමුන්නාන්ෙසේ ඉදිරිෙය් පකාශ කරන්න කැමැතියි. මීට අදාළ ෙනොෙයක් ෙනොෙයක් කරුණු ෙමම ගරු සභාෙව්දී පකාශ වුණා. ඒවා ගැන මම කථා කරන්න සූදානම් නැහැ, ඒවා ෙවන තැනක අධීක්ෂණයට ලක් ෙවලා තිෙබන නිසා. ගරු නිෙයෝජɕ සභාපතිතුමනි, මම තමුන්නාන්ෙසේට ස්තුතිවන්ත වනවා, මට ෙව්ලාව ලබා දීම ගැන. [බාධා කිරීම්] ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) අපි සන්ෙතෝෂ වනවා. අපි ෙශේෂ්ඨාධිකරණයට ස්තුතිවන්ත වනවා. ආණ්ඩුවට- [බාධා කිරීම්]
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) මීළඟට ගරු පියෙසේන ගමෙග් ඇමතිතුමා. [බාධා කිරීම්] ගරු ඇමතිතුමාට බාධා කරන්න එපා. [බාධා කිරීම්]
+
+[අ.භා. 12.28] ගරු පියෙසේන ගමෙග් මහතා (වෘත්තීය හා කාර්මික පුහුණු අමාතɕතුමා)
+
+(மாண்ᾗமிகு பியேசன கமேக - வாழ்க்ைகத் ெதாழில், ெதாழிᾒட்பப் பயிற்சி அைமச்சர்)
+
+(The Hon. Piyasena Gamage - Minister of Vocational and Technical Training)
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, ෙම් අවස්ථාෙව්දී අමාතɕාංශ 21ක වැය ශීර්ෂ සාකච්ඡාවට භාජන ෙකෙරනවා. [බාධා කිරීම්] ෙම්වා පිළිබඳව විෙශේෂ කාරක සභා අවස්ථාෙව්දී පුළුල් ෙලස සාකච්ඡා ෙකරුණු අතර ෙම් ෙවලාෙව් මට ලැබී තිෙබන ඉතා සීමිත කාල සීමාව තුළ මාෙග් අමාතɕාංශය, එනම් වෘත්තීය හා කාර්මික පුහුණු අමාතɕාංශය පසු ගිය වසර කිහිපය තුළ ලැබූ පගතිය පිළිබඳව අදහස් කිහිපයක් ඉදිරිපත් කිරීමට මා බලාෙපොෙරොත්තු වනවා. විෙශේෂෙයන් ෙම් ◌රෙට් පාසල් යන ළමුන්ෙගන් උසස් අධɕාපනයට ෙයොමු වන්නට පුළුවන්කම ලැෙබන්ෙන් ඉතාම සීමිත පමාණයකටයි. එනම් සියයට ෙදකක් වැනි පමාණයකටයි.
+
+සියයට 98ක් පමණ වන පාසලින් බැහැර වන අෙනක් දූ දරුවන්ෙග් අනාගතය සාක්ෂාත් කර ගැනීම සඳහා, ඒ තරුණ පිරිස රැකියාගත කිරීම සඳහා, ඔවුන්ට ජීවන මාර්ගයක් සකස් කර දීම සඳහා වෘත්තීය අධɕාපනය ඉහළ මට්ටමකට ෙගෙනන්න දිවයින පුරා ඈත එපිට ගම්මාන දක්වා වෘත්තීය අධɕාපනය වɕාප්ත කරන්න පසු ගිය කාලය තුළ අෙප් අමාතɕාංශය මඟින් දැඩි පයත්නයක ෙයදුණා. අපි ඒ තුළ විෙශේෂ පගතියක් පසු ගිය කාලය තුළ ලැබුවා. අපි වෘත්තීය අධɕාපනය කමවත් කමෙව්දයකට භාජන කළා. පිළිගත් සහතිකයක් ලබා ෙදන්න අවශɕ කටයුතු කළා. රාජɕ අංශෙය් ෙමන්ම ෙපෞද්ගලික අංශෙය්ත් වෘත්තීය අධɕාපනය ලබන අයට ඒ වෘත්තීය අධɕාපනය ලැබීෙමන් පසුව ඒ ලබන දැනුම මිම්මක් කර ගන්න පුළුවන් පිළිගත් සහතිකයක් ලබා දීම තමයි අෙප් වගකීම වන්ෙන්. අන්න ඒ සඳහා ජාතික වෘත්තීය ෙයෝගɕතා සහතික කමයක් අපි 2006 වසෙර් හඳුන්වා දුන්නා. ඒ NVQ සහතික කමය. ඒ NVQ සහතික කමය යටෙත් 1 සිට 7 දක්වා මට්ටම් 7ක් අපි හඳුන්වා දුන්නා. 1 සිට 4 දක්වා පාථමික නැත්නම් සහතික මට්ටම, 5, 6 උසස් ඩිප්ෙලෝමා මට්ටම, 7 වන මට්ටම උපාධි මට්ටම. වෘත්තීය අධɕාපනය පිළිගැනීමට ලක් කිරීම සඳහා අපි ෙම් විධියට සහතික කමයක් හඳුන්වා දුන්නා. ෙම් නිසා ජාතික මට්ටමින් පමණක් ෙනොෙවයි, ජාතɕන්තර මට්ටෙම් පිළිගැනීමකට අෙප් වෘත්තීය අධɕාපනය ලක් කිරීමට අපට අවකාශ ලැබුණා. ෙම් යටෙත් 5, 6 මට්ටෙම් ඩිප්ෙලෝමා සහ උසස් ඩිප්ෙලෝමා සහතික ලබා ෙදන ආයතන වශෙයන් පළාතට එකක් බැගින් අපි උසස් තාක්ෂණ ආයතන 9ක්
+
+ස්ථාපිත කළා. විෙශේෂෙයන් මම මතක් කරන්න ඕනෑ, අපි පළමු වන එක ආරම්භ ක ෙළේ යාපනෙය් බව. යාපනෙය් කාර්මික විදɕාලය උසස් තාක්ෂණ විදɕාලයක් වශෙයන් නම් කර ෙකොරියන් ආධාර - KOICA ආධාර - යටෙත් ඒ අවශɕ කටයුතු ෙම් වන විට කර ෙගන යනවා. පසු ගිය කාලය තුළ පැවතුණු වාතාවරණය තුළ අපට කඩිනමින් ඒ කාර්යය කර ගැනීමට අපහසු වුණත් ඒ කටයුතු ෙම් වන විට ඉටු ෙවමින් පවතිනවා. ඒ වාෙග්ම අපි කාර්මික විදɕාලවල, උසස් තාක්ෂණ ආයතනවල ෙමකා ෙටොනික් ෙතොරතුරු හා සන්නිෙව්දන තාක්ෂණය, ෙලෝහ වැඩ පාඨමාලා වැනි අලුත් පාඨමාලා ආරම්භ කළා. ෙම් රෙට් ඉල්ලුමක් තිෙබන, ඒ වාෙග්ම ජාතɕන්තර ඉල්ලුමක් ඇති පාඨමාලා රාශියක් අපි ස්ථාපිත කළා.
+
+ඒ වාෙග්ම 5, 6 මට්ටමින් ෙනොනැවතී අෙප් ඊළඟ අවස්ථාව වන 7 වන මට්ටෙම් උපාධිය දක්වා යන්න පුළුවන්. ෙම් රෙට් වෘත්තීය අධɕාපනෙයන් විශ්වවිදɕාලයට යන්න නැත්නම් උපාධියක් ලබන්න පුළුවන් විධියට අපි වෘත්තීය තාක්ෂණ විශ්වවිදɕාලයක් ස්ථාපිත කළා. දැන් ආරම්භ කර තිෙබන්ෙන්. අපි මහින්ද චින්තනය යටෙත් අෙප් වෘත්තීය අධɕාපනයට ෙම් වාෙග් විශාල ශක්තියක් ලබා දුන්නා. අලුතින් වෘත්තීය පුහුණු මධɕස්ථාන 100ක් ආරම්භ කිරීමට කටයුතු කළා. අපි ෙම් වන විට එයින් 50ක් ආරම්භ කර තිෙබනවා.
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) ඔබතුමාට නියමිත කාලය අවසානයි. ගරු පියෙසේන ගමෙග් මහතා (மாண்ᾗமிகு பியேசன கமேக) (The Hon. Piyasena Gamage) එෙහම නම් මම කථාව අවසාන කරනවා. [අ.භා. 12.33] ගරු වජිර අෙබ්වර්ධන මහතා (மாண்ᾗமிகு வஜிர அேபவர்தன) (The Hon. Vajira Abeywardena) ගරු නිෙයෝජɕ සභාපතිතුමනි, අමාතɕාංශ 21ක වැය ශීර්ෂ සම්බන්ධෙයන් සාකච්ඡා කරන ෙම් අවස්ථාෙව්දී එයට අදහස් කිහිපයක් එකතු කරන්න අවස්ථාව ලැබීම ගැන මම ඉතාම සතුටු ෙවනවා. අය වැෙය්දී කිහිප වතාවක් අදහස් පකාශ කරමින් ෙපොදුෙව් අපි පකාශ කෙළේ සමස්ත අය වැය අසාර්ථක අය වැයක් කියන එකයි. ෙම් අමාතɕාංශ 21 දිහා බැලුවත්, ෙපොදුෙව් සියලු අමාතɕාංශ දිහා බැලුවත් මුළු ෙලෝකයම අපට හිනා ෙවන ෙවලාවක තමයි ෙම් අමාතɕාංශ ගැන අපි පාර්ලිෙම්න්තුෙව් සාකච්ඡා කරන්ෙන්. ෙලෝකෙය් සියලුම මුලɕ ආයතන අතර අෙප් රට විහිළුවට පාත ෙවලායි තිෙබන්ෙන්.
+
+ෙලෝකෙය් ඕනෑම මුලɕ ආයතනයකට ගියාම -ෙලෝක බැංකුව ෙවන්න පුළුවන්, ආසියානු සංවර්ධන බැංකුව ෙවන්න පුළුවන්, ෙවනත් මූලɕ ආයතනයක් ෙවන්න පුළුවන්- ලංකාෙව් තිෙබන අමාතɕාංශ ගණන අහලා ඒ අය අෙප් රට දිහා බලන්ෙන්, අෙප් ආණ්ඩුව දිහා බලන්ෙන් ෙම් රටට ෙමච්චර අමාතɕාංශ පමාණයක් අවශɕද කියන උපහාසෙයන් ෙම් අමාතɕාංශ අතර ආණ්ඩුකම වɕවස්ථා හා ජාතික ඒකාබද්ධතා අමාතɕාංශයත් තිෙබනවා. එක පැත්තකින් ආණ්ඩුකම වɕවස්ථාවත් විකෘති ෙවලා, මහජන මතය පාර්ලිෙම්න්තුෙව් හරියාකාරව නිෙයෝජනය ෙනොවන අවස්ථාවක තමයි ෙම් අය වැය ගැන අපි සාකච්ඡා කරන්ෙන්. උදාහරණයක් හැටියට කල්පනා කර බැලුවාම, 2004 පාර්ලිෙම්න්තු මැතිවරණයට ඒ ඒ දිස්තික්කවලින් තරග කරපු මහජන නිෙයෝජිතයන් පළමු වැනියා, ෙද වැනියා, තුන් වැනියා වශෙයන් ඒ ඒ දිස්තික්කවල මහජන මතෙයන් ෙතෝරලා එව්වා. ඒ අයෙගන් ආණ්ඩුවක් හැදුවා. පළමු වන, ෙද වන, තුන් වන
+
+පාර්ලිෙම්න්තුව 3237 3238
+
+මහජන මතය තිබුණු අය කවුරුවත් ඒ හදපු ආණ්ඩුෙව් ඇමති මණ්ඩලෙය්වත් පාලන තන්තෙය්වත් දැන් නැහැ. හතර, පහ, හය යන ස්ථානවලට ආපු උදවිය දැන් රට පාලනය කරනවා. අෙප් ආණ්ඩුකම වɕවස්ථාව අනුව මහජනයා සුපිම්. ෙම් සුපිම් මහජනයා දීපු තීන්දුව අනුව තිෙබන පාර්ලිෙම්න්තුවක් ෙනොෙවයි අද තිෙබන පාර්ලිෙම්න්තුව. ඒ නිසා තමයි සමස්ත සමාජයම විකෘති ෙවලා තිෙබන්ෙන්. පාර්ලිෙම්න්තු ඉතිහාසෙය් කවදාද පාර්ලිෙම්න්තු ෙසේවකෙයෝ කලබල වුෙණ්? අද ෙපරවරු එෙකොළහහමාරට විතර පාර්ලිෙම්න්තු ෙසේවකයන් සියල්ලන්ම එළියට බහින්නයි හිටිෙය්. පාර්ලිෙම්න්තු මහ ෙල්කම්තුමාෙග් කාරුණික ඉල්ලීම නිසා ඒක ෙපොඩ්ඩක් නැවතුණා. හැම තැනම ෙසේවක කලබල. ෙනොෙයකුත් ෙද්වල් ෙදනවාය කියලා ෙම් අය වැෙයන් පකාශ කළාට, පාර්ලිෙම්න්තු ෙසේවකයන්ෙග් ආපදා ණය ටිකවත් ලබා ෙදන්න බැරි ආණ්ඩුවක් ෙම්. පාර්ලිෙම්න්තු ෙසේවකයන්ෙග් ආපදා ණය ටික ෙදන්න අවුරුදු තුනක් හතරක් යනවා. රුපියල් මිලියන ෙදකක්, මිලියන තුනක් ෙහොයා ගන්න බැහැ පාර්ලිෙම්න්තුෙව් ෙසේවකයන්ෙග් ආපදා ණය ටික ෙදන්න. එතෙකොට පාර්ලිෙම්න්තුව ඇතුෙළේ ඉන්න ෙසේවකයන්ෙග් ආපදා ණය ලබා ෙදන්න බැරි ආණ්ඩුවක් සමස්ත රාජɕ ෙසේවෙය්ම ඉන්න ෙසේවකයන්ෙග් ආපදා ණය ෙදන්ෙන් ෙකොෙහොමද? හැබැයි අය වැය ෙල්ඛනෙය් ෙබොෙහොම ලස්සණට කරුණු කාරණා සඳහන් ෙවලා තිෙබනවා. අපි ෙම් ෙව්ලාෙව් එකක් පැහැදිලිව මතක් කරන්න කැමැතියි. සමස්ත ආර්ථිකයම අවුල් ෙවලායි තිෙබන්ෙන්. ආර්ථිකය හැසිර වීම සම්පූර්ණෙයන් අවුල් ෙවලා තිෙබන්ෙන්. මෙග් මිත පියෙසේන ගමෙග් ඇමතිතුමා ෙම් සභා ගර්භෙය් දැන් ඉන්නවා. එතුමා ෙත් කර්මාන්තය ගැන ෙහොඳ අවෙබෝධයක් තිෙබන ෙකෙනක්. සමස්ත ෙත් කර්මාන්තයම වැටිලා. ගාල්ල දිස්තික්කය ෙවන්න පුළුවන්, මාතර දිස්තික්කය ෙවන්න පුළුවන්, එෙහම නැත්නම් රත්නපුර දිස්තික්කය ෙවන්න පුළුවන් ඒවාෙය් ෙත් කර්මාන්තය සම්පූර්ණෙයන් කඩා වැටිලා. අහනවා, ෙම්කට විසඳුමක් තිෙබනවාද කියලා. මම මෙග් කථාව ඉවර කරන්න හදන්ෙන් විසඳුමක් තිෙබනවා, ආණ්ඩුවට පුළුවන් නම් ෙම් විසඳුම ලබා ෙදන්න කියලායි. බලන්න, ෙත් ෙබෝකර්වරුන් සියලු ෙදනාෙග්ම රැකියා කඩා වැටිලා. ෙත් අපනයනකරුවන්ෙග් වɕාපාර කඩා වැටිලා. කර්මාන්තශාලාකරුවන්ෙග් වɕාපාර සම්පූර්ණෙයන්ම කඩා වැටිලා. ඒවාෙය් කාර්ය මණ්ඩල අනතුරට ලක් ෙවලා. කුඩා ෙත් වතු හිමියන්ෙග් ආර්ථිකය -ලංකාෙව් ෙත් ආර්ථිකෙයන් සියයට 70ක් සපයන්ෙන් කුඩා ෙත් වතු හිමියන්- සම්පූර්ණෙයන්ම කඩා වැටිලා. කුඩා ෙත් වතු හිමියන් සම්බන්ධ වුණු පවුල් සංඛɕාව මිලියන ගණනක් ෙවනවා. ඔවුන් ෙව්ගෙයන් ඉතාම අසරණ තත්ත්වයකට පත් ෙව් ෙගන යනවා. සතියකට ෙත් කිෙලෝගෑම් මිලියන පහක් හයක් අතර පමාණයක් ෙවන්ෙද්සියට යනවා. දැනට මාස කීපයකට උඩදී ෙත් කිෙලෝගෑම් එකක් රුපියල් 300ත් 350ත් අතෙර් මිලකට ෙත් ෙවෙළඳ ෙපොෙළේ තිබුණා. අද ඒ මිල රුපියල් 180කට, රුපියල් 200කට වැටිලා තිෙබනවා. ෙගොඩක් පහළට වැටිලා. ෙම්ෙකන් සතියකට රටට වන හානිය දළ වශෙයන් මිලියන 750යි. දළ වශෙයන් හිතුෙවොත් සතියකට මිලියන 750ක් ෙඩොලර්වලින් රටට අහිමි ෙවනවා. එතෙකොට ෙම්කට විසඳුමක් ෙදන්න ආණ්ඩුව කල්පනා කරනවා නම් ෙත් ආර්ථිකය ෙගොඩ ගන්න ආණ්ඩුව ඉදිරිපත් කරන විකල්පය ෙමොකක්ද? ආණ්ඩුව කියන ෙල්සිම සින්දුව තමයි, "ෙලෝක ආර්ථීකෙය් පශ්නයක් තිෙබනවා, ඒ නිසා කරන්න ෙදයක් නැහැ'' කියන එක. ෙලෝක ආර්ථිකය වැෙටන ෙකොට අෙප් ආර්ථිකය නිවැරදිව හසුරු වන්න ඕනෑ නිසා තමයි අෙප් පාලන තන්තය කාලෙය් අනාගතය දිහා බලලා ෙබොෙහොම පරිස්සමින් ආර්ථිකය හසුරු වන්න කියා කෙළේ. ෙත් නිෂ්පාදනය තිෙබන ඉන්දියාව, ෙකන්යාව වාෙග් අෙනක් රටවල් බලන්න. ඒ ෙගොල්ලන් ෙකොෙහොමද දැන් ඒ ආර්ථිකය ආරක්ෂා කර ෙගන ඉන්ෙන්? ඒ ෙගොල්ලන්ට ඒ රෙට් ෙත්
+
+ආර්ථීකය ආරක්ෂා කර ගන්න පුළුවන් නම් ඇයි අෙප් රෙට් බැරි? ඇයි අෙප් රෙට් මාර්කට් එක අද ඒ ෙගොල්ලන් අල්ලා ෙගන යන්ෙන්? අෙප් ආර්ථික දුර්වලතාව නිසායි. ගරු නිෙයෝජɕ සභාපතිතුමනි, ෙත් වගාවට ෙයොදන ෙපොෙහොර ගැනත් මා වචනයක් කියන්න ඕනෑ. T -1240 වර්ගෙය් කි ෙලෝ පනෙහේ මල්ලක් රුපියල් 3,700යි. රුපියල් 1,000ට ෙත් ෙපොෙහොර ෙදනවාය කියා ෙම් අය වැෙයන් කියනවා. දැන් ෙත් වතු හිමියන් ෙසේරම ෙපොෙහොර දමන්ෙන් නැතිව බලා ෙගන ඉන්නවා ජනවාරි මාසෙය්දී රුපියල් දාෙහේ ෙපොෙහොර දමන්න. ජනවාරි මාසෙය් රුපියල් දාෙහේ ෙපොෙහොර දමන්න හම්බ වන්ෙන් නැහැ. ෙත් ආර්ථිකෙය් ආදායම තවත් අඩු වනවා. U -709 කිෙලෝ පනෙහේ බෑග් එකක් රුපියල් 4,940යි. ෙම් අද තිෙබන ගණන්. T - 750 කිෙලෝ පනෙහේ බෑග් එකක් රුපියල් 3,655යි. T - 200 කිෙලෝ පනෙහේ බෑග් එකක් 3,305යි. ඊළඟට VPLP - 880 - ෙත් ෙදපාර්තෙම්න්තුෙවන් ළඟදී අනුමත කරපු වර්ගය - රුපියල් 5,040යි. T -1075 අලුත් ෙපොෙහොර වර්ගය රුපියල් 5,567ක් වනවා. සහනාධාරයට දුන්ෙනොත් රුපියල් 2,725ක් වනවා. යූරියා ෙපොෙහොර විතරක් සහනාධාරය වශෙයන් ෙදන්න ආණ්ඩුව කල්පනා කරනවා. ඒෙකන් රුපියල් එකසිය ගණනක සහනයක් ලැෙබනවා. ඒක ෙත්වලට එච්චර අවශɕ වන්ෙන් නැහැ. යම් පමාණයකට අවශɕ වනවා. නමුත් එච්චර අවශɕ වන්ෙන් නැහැ. ෙකොෙහොමත් ෙලෝක ෙවෙළඳ ෙපොළ දිහා බැලුවාම ෙපොෙහොර මිල බැහැලා. ෙලෝක ෙවෙළඳ ෙපොෙළේ මිලට ලංකාෙව් ෙගොවියාට ෙපොෙහොර ෙනොලැෙබන්ෙන් ෙම් ආණ්ඩුව හරියට ආර්ථිකය හසුරුවන්ෙන් නැති නිසායි. පසු ගිය කාලෙය් ෙලෝක ෙවෙළඳ ෙපොෙළේ ෙතල් බැරල් එක ෙඩොලර් 147ට තිබුණා. ඒ ෙවලාෙව් යූරියා ෙටොන් එකක මිල ෙඩොලර් 850යි. අද ෙතල් බැරල් එකක මිල ෙඩොලර් 56යි. අද එයින් ෙපොෙහොරවලට ලැෙබන්න ඕනෑ සහනාධාරය අෙප් රෙට් ෙගොවියාට ලැෙබන්ෙන් නැහැ. ෙලෝක ෙවෙළඳ ෙපොෙළේ ෙපොෙහොර මිල බැහැලා. හැබැයි ෙලෝක ෙවෙළඳ ෙපොෙළේ මිලට ලංකාෙව් ෙගොවියාට ෙපොෙහොර ලැෙබන්ෙන් නැහැ. අමාතɕාංශ විසි ගණන්, තිස් ගණන්, එකසිය ගණන් තිෙබනවාය කියන්න පුළුවන්. ෙලෝකෙය් ෙකොෙහේවත් නැති තරම් අමාතɕාංශ තිෙබන්න පුළුවන්. වැදගත් විෂයන්ට වග කියන්න පුළුවන් අදාළ අමාතɕවරුත් ෙම් සභාෙව් නැති වන්නත් පුළුවන්. 1994 සිට 2000 වන තුරු අප කෑ ගැහුවා පාර්ලිෙම්න්තුවට මුදල් ඇමතිවරෙයක් පත් කරන්නය කියා. අපි අවුරුදු ෙදකක් ආණ්ඩුවක් කළා. වග කියන්න මුදල් ඇමතිවරෙයක් පත් කළා. අද ඇමතිවරු එකසිය ගණනක් පත් කර තිෙබන්න පුළුවන්. මුදල් විෂයය කරන්න පුළුවන් පුද්ගලෙයක් ෙම් එකසිය ගණන අතෙර් ෙහොයා ගන්න බැහැ. රටක් ෙමෙහම පාලනය කරලා ෙම් පශ්නය විසඳන්න පුළුවන් කියා අප කල්පනා කරනවා නම් මා හිතන්ෙන් ඒක අප අපටම කර ගන්නා ෙබොරුවක්. යූරියා මිල ෙඩොලර් 400කට අඩු ෙවලාත් ඒෙක් වාසිය ලංකාෙව් කිසිම ෙගොවි ජන ෙකොටසකට ගන්න තවම පුළුවන්කමක් ලැබිලා නැහැ. ඇත්තටම ෙලෝක ෙවෙළඳ ෙපොෙළේ මිලටම අපට ෙපොෙහොර ෙදනවා නම් අය වැෙයන් අලුෙතන් අඩු කරන්න ඕනෑ නැහැ. යූරියා ෙපොෙහොර මිටියක් අනිවාර්යෙයන්ම රුපියල් 1,000ට ෙදන්න පුළුවන්. ෙලෝක ෙවෙළඳ ෙපොෙළේ ෙපොෙහොර මිල අඩු ෙවලා තිෙයද්දීත් ලංකාෙව් ෙගොවි ජනතාවට ඒක භුක්ති විඳීෙම් අයිතිය ලබා ෙදන්න ෙම් ආණ්ඩුව අෙපොෙහොසත් ෙවලා තිෙබනවා. ඉතින් අමාතɕාංශ 21ක්ද, අමාතɕාංශ 25ක්ද, අමාතɕාංශ කීයද කියන එක ඒ තරම් වැදගත් වන්ෙන් නැහැ. සමස්ත ආර්ථිකය හැසිර වීම සම්පූර්ණෙයන්ම වැරදියි. ගරු නිෙයෝජɕ සභාපතිතුමනි, ෙත්වලට වුණු ෙද්මයි ෙපොල්වලට ෙවලා තිෙබන්ෙන්ත්; ෙපොල්වලට වුණු ෙද්මයි කුරුඳුවලට ෙවලා ති ෙබන්ෙන්ත්; කුරුඳුවලට වුණු ෙද්මයි රබර්වලට ෙවලා තිෙබන්ෙන්ත්. අද සමස්ත ආර්ථිකය කඩා ෙගන වැටිලා. පාෙර් යන විට තීවිලර්වල, කාර්වල, වෑන්වල "For sale" කියා ගහලා තිෙබනවා. හැබැයි sale කරන එක ගන්නත් මිනිසුන්ෙග් අෙත් සල්ලි නැහැ. මා හිතන්ෙන් ෙම් ආණ්ඩුවටත් "For sale" කියලා ෙබෝඩ් එකක් අලවා ගත්ෙතොත් ෙහොඳයි. "For
+
+[ගරු වජිර අෙබ්වර්ධන මහතා]
+
+2008 ෙදසැම්බර් 05 3239 3240
+
+sale" කියලා ගැහුවත් ආණ්ඩුව ගන්න කවුරුවත් ඉන්න එකක් නැහැ. ෙමොකද, රෙට් ඒ තරම් විශාල දරිදතාවක් තිෙබනවා. යන්න තීවිලර් පාක් එකකට. තීවිලර් දහයක් තිෙබනවා නම් අටක "For sale" කියා ගහලා තිෙබනවා. හැබැයි sale කරන එක ගන්න ෙකෙනක් නැහැ. යන්න ෆිනෑන්ස් සමාගම්වලට. ෙවන දා මාස ෙදකක් ෆිනෑන්ස් එක ෙගව්ෙව් නැති වුණාම ෆිනෑන්ස් සමාගෙමන් වාහනය අරෙගන යනවා. දැන් මාස පහක්, හයක් මුදල් ෙගව්ෙව් නැතත් ඒක ෙගන යන්ෙන් නැහැ. ෙමොකද අරන් ගිහින් පාක් කර ගන්න බැහැ. ඒ අය බලනවා ෙකොෙහොම හරි කීයක් හරි ලබා ගන්න. ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) “ආණ්ඩුව විකිණීමට ඇත.” ගරු වජිර අෙබ්වර්ධන මහතා (மாண்ᾗமிகு வஜிர அேபவர்தன) (The Hon. Vajira Abeywardena) ඒ නිසා “ආණ්ඩුව sale කිරීමට ඇත” කියා ෙබෝඩ් එකක් ගහ ගත්ෙතොත් ඇත්තටම ෙහොඳයි. එතෙකොට ඒ sale එකට ෙම් රෙට් අය ඉදිරිපත් ෙවලා බලයි, sale එෙකන් අරෙගන ෙම් ආණ්ඩුව කරන්න පුළුවන්ද කියලා. දැන් ෙම්කට, - [බාධා කිරීමක්]
+
+ගරු වයි. එම්. නවරත්න බණ්ඩා මහතා (மாண்ᾗமிகு ைவ. எம். நவரத்ன பண்டா) (The Hon. Y. M. Navaratne Banda)
+
+Sale එෙකන් ගත්ත ගමන්, - [බාධා කිරීමක්] ගරු වජිර අෙබ්වර්ධන මහතා (மாண்ᾗமிகு வஜிர அேபவர்தன) (The Hon. Vajira Abeywardena) ගරු නිෙයෝජɕ සභාපතිතුමනි, ෙම්කට දැන් රජය කියන කථාව තමයි “ෙම්ක ෙලෝක ආර්ථිකෙය් පශ්නයක්. ෙලෝක ආර්ථිකය කඩා වැටිලා තිෙබන නිසා අපට ෙම් පශ්නය විසඳන්න බැහැ" කියන එක. ගරු නිෙයෝජɕ සභාපතිතුමනි, ෙම් ටිකම 1970-1977 ආණ්ඩුව කාලෙය්දීත් ෙම් රෙට් ජනතාවට කිව්වා. “ෙලෝකෙය් පශ්නයක් තිෙබනවා, ඒ නිසා ෙපෝලිම් තියනවා. ෙලෝකෙය් පශ්නයක් තිෙබනවා, ඒ නිසා ෙදන්න පුළුවන් හාල් ෙසේරු ෙදකයි. ෙලෝකෙය් පශ්නයක් තිෙබනවා, ඒ නිසා අහවල් අහවල් ආහාර වර්ග අඩු කරලා ලාවුලු කන්න, හබරල කන්න, කුණු බක්කි කන්න" කියා 1970-1977 කාලෙය්දීත් අපට කිව්වා. 1970-1977ට පස්ෙසේ ෙමොකක්ද සිද්ධ වුෙණ් කියා කල්පනා කර බලන්න. එක්සත් ජාතික පක්ෂය 1977 දී ආණ්ඩුව භාර ෙගන පැය විසිහතරකින් ෙපෝලිම් නැති වුෙණ් ෙකොෙහොමද? පැය විසිහතරකින් මුං ඇට, කඩල, පරිප්පු ආදි ෙසේරම ෙගනැල්ලා කඩ බක්කි පිෙරව්ෙව් ෙකොෙහොමද? එතෙකොට ෙමොකක්ද ඒ ආර්ථික දර්ශනය? මා අහ ෙගන හිටියා, ෙම් සභාෙව්දී අහනවා, “එක්සත් ජාතික පක්ෂෙය් ආර්ථික දර්ශනය ෙමොකක්ද?” කියා. එක්සත් ජාතික පක්ෂයට ආෙව්ණික වූ ආර්ථික දර්ශනයක් තිෙබනවා. එක්සත් ජාතික පක්ෂය වැඩ කරන්ෙන් ෙලෝකයත් එක්කයි. එක්සත් ජාතික පක්ෂය ලංකාෙව් මිනිසුන්ෙගන් බදු මුදල් අර ෙගන ෙනොෙවයි ජනතාව ජීවත් කරන්න හදන්ෙන්. ලංකාෙව් ජීවත් වන ෙකෝටි ෙදකක ජනතාවෙගන් බදු අර ෙගන ලංකාෙව් මිනිසුන් ජීවත් කරන්න අප බලාෙපොෙරොත්තු වන්ෙන් නැහැ.
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ගරු මන්තීතුමනි, තවමත් ඒ පරණ එකද? ගරු වජිර අෙබ්වර්ධන මහතා (மாண்ᾗமிகு வஜிர அேபவர்தன) (The Hon. Vajira Abeywardena) අප බලාෙපොෙරොත්තු වන්ෙන් ෙලෝකෙය් ජනතාව tax කරලා ලංකාෙව් ජනතාව ජීවත් කරවන්නයි. එෙහම ආණ්ඩු කරපු ෙද්ශපාලන පක්ෂයක් තමයි අෙප් පක්ෂය.
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) තවමත් ඒ පරණ කමයමද? ගරු වජිර අෙබ්වර්ධන මහතා (மாண்ᾗமிகு வஜிர அேபவர்தன) (The Hon. Vajira Abeywardena) ගරු අනුර කුමාර දිසානායක මන්තීතුමනි, මා ඔබතුමා එක්ක පැටෙලන්න කැමැති නැහැ. ඔබතුමන්ලාෙග් ෙවනම නɕාය පතයක් තිෙබනවා. ෙවනම වැඩ සටහනක් තිෙබනවා. ඔබතුමා ඒක කියාත්මක කරන්න.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, එෙහම තමයි 1970-1977 දී කිව්ෙව්. හැබැයි මහ ජන මතෙයන් ආණ්ඩුව ෙවනස් වුණා. පැය හතළිස්අෙටන් ෙපෝලිම් නැතිව ගියා; ලාවුලු කන්ෙන් නැතිව ගියා; හබරල කන්ෙන් නැතිව ගියා; ගහල කන්ෙන් නැතිව ගියා; පුන්නක්කු කන්ෙන් නැතිව ගියා; ෆර්මිට්වලට සිවුරු ගන්න අවශɕ වුෙණ් නැහැ. සමාජය සම්පූර්ණෙයන්ම ෙවනස් කරලා නව ආර්ථික රටාවකට ෙගනාවා. ඒ වාෙග් තමයි ගරු රනිල් විකමසිංහ මැතිතුමා අගමැතිවරයා හැටියට අවුරුදු ෙදකක් රට පාලනය කරන ෙකොට ඊළඟ අවුරුදු පෙහේදී ඇති වන ෙලෝක ආර්ථිකය දිහා බලලා රට හැසිෙරව්ෙව්. අද ෙම් කරන හැම කියාවලියකින්ම එකක් ඔප්පු ෙවනවා. ඒ තමයි 2001 ෙදසැම්බර් මාසෙය් ඉඳලා 2004 අෙපේල් මාසය ෙවන කල් පාලනය කරපු ආණ්ඩුෙව් අප හරියාකාරව අෙප් ආර්ථිකය හැසිෙරව්වාය කියන කාරණය. එෙසේ ආර්ථිකය හැසිර වීෙම් පතිඵල රටට ලැබුණා.
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) ගරු මන්තීතුමනි, තවත් විනාඩියකින් කථාව අවසාන කරන්න.
+
+ගරු වජිර අෙබ්වර්ධන මහතා (மாண்ᾗமிகு வஜிர அேபவர்தன) (The Hon. Vajira Abeywardena) අද වැරැදි විධියට ආර්ථිකය හසුරු වන ආණ්ඩුවට ෙම් පශ්නයට මුහුණ ෙදන්න සිදු ෙවලා තිෙබනවා.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, අෙප් පළාත්වල සම්පූර්ණෙයන්ම ෙත් ආර්ථිකය වැටිලා; රබර් ආර්ථිකය වැටිලා; ෙපොල් ආර්ථිකය වැටිලා. ෙකෝපි ආර්ථිකය වැටිලා. ෙලොකු වතු සමාගම් තිෙබන අයට ෙපොල් ෙගඩිය රුපියල් ෙදොළහකට වඩා වැඩි මිලකට ෙදන්න බැහැ. සමහර බඩුවල මිල ෙගොඩක් අඩු ෙවනවා. හැබැයි බඩු ගන්න මහජනයා අෙත් සල්ලි නැහැ. ඒකයි මෙග් කථාෙව් මා මුලින් කිව්ෙව්, “ෙසේල් ෙබෝඩ් තිෙබනවා, ෙසේල් ගන්න ෙකෙනක් නැහැ.” කියා. අවසාන වශෙයන් මට කියන්න තිෙබන්ෙන් ෙම්කයි. ආණ්ඩුවටත් “ෙසේල්" කියා ෙබෝඩ් එකක් ගහ ෙගන ෙම් ආණ්ඩුව ෙසේල් කෙළොත් ෙම් පශ්නය අවසන් කරන්න පුළුවන්ය කියා පකාශ කරමින් මා නිහඬ ෙවනවා.
+
+ගරු තිස්ස කරල්ලියද්ද මහතා (ෙද්ශීය ෛවදɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு திஸ்ஸ கரல்ᾢயத்த - சுேதச மᾞத்ᾐவத்ᾐைற அைமச்சர்)
+
+(The Hon. Tissa Karalliyadde - Minister of Indigenous Medicine)
+
+විපක්ෂ නායකතුමාටත් “ෙසේල්" කියා ෙබෝඩ් එකක් ගහන්න. නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) මීළඟට ගරු මහින්ද විෙජ්ෙසේකර ඇමතිතුමා. ගරු ඇමතිතුමනි, ඔබතුමාට විනාඩි හයක් තිෙබනවා. 5 - PL 003633 - (2009/01)
+
+පාර්ලිෙම්න්තුව 3241 3242
+
+[අ.භා. 12.47] ගරු මහින්ද විෙජ්ෙසේකර මහතා (විෙශේෂ වɕාපෘති අමාතɕතුමා සහ තැපැල් හා විදුලි සංෙද්ශ අමාතɕතුමා)
+
+(மாண்ᾗமிகு மஹிந்த விேஜேசகர - விேசட கᾞத்திட்டங்கள் அைமச்சᾞம் தபால், ெதாைலத்ெதாடர்ᾗகள் அைமச்சᾞம்)
+
+(The Hon. Mahinda Wijesekara - Minister of Special Projects and Minister of Posts and Telecommunication)
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, තැපැල් හා විදුලි සංෙද්ශ අමාතɕාංශයත්, ෙම් අමාතɕාංශ විසිඑෙක් විෙශේෂ කාරක සභාව ඉදිරියට ගියා. එය, අලුත් තත්ත්වය අනුව කාල ෙව්ලාව ෙබ්රා ගන්න ෙදපැත්ෙත් එකඟතාව උඩ සිදු වූ ෙදයක්. එහිදී අපට අවස්ථාවක් ලැබුණා, ඒ මන්තීතුමන්ලා ඉදි රිෙය් අෙප් අමාතɕාංශය ගැන දීර්ඝව කරුණු කියන්න. මට ලැබී තිෙබන්ෙන් විනාඩි හයයි. ඒ විනාඩි හෙය් මට කියන්න තිෙබන්ෙන් තැපැල් හා විදුලි සංෙද්ශ අමාතɕාංශෙය් කාර්ය භාරය, එහි වර්තමාන තත්ත්වය, එහි තිෙබන ශක්තිය සහ වර්තමාන තත්ත්වෙයන් ෙගොඩ එන්න ෙමොන විධිෙය් වැඩසටහනක්ද ෙගන යන්ෙන් කියන කරුණු ගැනයි.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, ඇත්ෙතන්ම තැපැල් හා විදුලි සංෙද්ශ අමාතɕාංශය කරන්ෙන් ෙතොරතුරු හුවමාරු ක්ෙෂේතයට උදවු කිරීමයි. ෙම් අමාතɕාංශයට අවුරුදු 207ක් ෙවනවා. ඉතාම පැරැණි අමාතɕාංශයක්; රාජɕ ෙදපාර්තෙම්න්තුවක්. ඉතින් මුළු ලංකා වම ආවරණය ෙවන්න අපට තිෙබනවා, ෙපොදුෙව් තැපැල් කන්ෙතෝරු 4,701ක්. එයින් අපට තැපැල් කන්ෙතෝරු තිෙබනවා 641ක්; උප තැපැල් කන්ෙතෝරු තිෙබනවා 3,500ක්; ෙවනත් ෙවනත් agency post offices එක්ක ගත්තාම ඔක්ෙකොම 4,701ක් තිෙබනවා. ෙම් 4,701 ෙමෙහයවන්න තැපැල් ෙදපාර්තෙම්න්තුෙව් තැපැල්පතිවරයකු ඉන්නවා. නිෙයෝජɕ තැපැල්පතිවරුන් 11ක් පමණ ඉන්නවා. දිස්තික්කවලට අධිකාරිතුමන්ලා ඉන්නවා. තැපැල් කන්ෙතෝරුවල තැපැල් ස්ථානාධිපතිවරුන් ඉන්නවා. ඒ වාෙග්ම උප තැපැල් ස්ථානාධිපතිවරුන් ඉන්නවා. තැපැල් ෙදපාර්තෙම්න්තුෙව් පමණක් ඔක්ෙකෝම ෙසේවකයන් 19,000ක් ඉන්නවා. අපට වෘත්තීය සමිති ගණනාවක් තිෙබනවා. ෙම් අනුව බැලුවාම ෙම් තැපැල් ෙසේවය 19 වන 20 වන ශත වර්ෂ වන කල්ම, තාක්ෂණ දියුණුව, ඒ වාෙග්ම විදɕාත්මක දියුණුව සහ ෙලෝකෙය් තිෙයන ආර්ථිකය; අර විවෘත ෙවච්ච - ෙගෝලීය ෙවච්ච - ලිබරල් ෙවච්ච ආර්ථිකය එන කල්ම, ඒ කියන්ෙන් ෙසේවය වɕාපාරයක් ෙවන්න කලින් ෙමහි පමුඛයා බවට පත් ෙවලා තිබුෙණ් තැපැල් ෙදපාර්තෙම්න්තුවයි. ඒ නිසා තැපැල් ෙදපාර්තෙම්න්තුෙවන් විශාල ෙසේවයක් සිදු වුණා. ගම්වල ලිපියක් ෙබදන්න, ෙටලිගෑම් එකක් ගහන්න, මනිඕඩරයක් ගන්න, ඒ වාෙග්ම පාර්සලයක් ගන්න ආදී වශෙයන් විශාල ෙසේවයක් අපි අතින් ඉෂ්ට වුණා. කාලයක් තිස්ෙසේ ෙම් ෙසේවය ඉදිරියට ගිහිල්ලා අද හැම ෙගදරකටම ලියුමක් ෙදන්න පුළුවන් තත්ත්වයක් අපට තිෙබනවා. ඒ ගැන මම ස්තුතිවන්ත ෙවනවා. හැම සැතැප්ම පහකටම දහයකටම ෙපොඩි තැපැල් කන්ෙතෝරුවක් තිෙබනවා. ඒ වාෙග් විශාල ජාලයක් තිෙබනවා. [බාධා කිරීමක්] අපි ෙහට අනිද්දා විෙශේෂෙයන් 500ක් බඳවා ගන්නවා. මම හිතන්ෙන් ගරු ෙතොණ්ඩමන් ඇමතිතුමා කැමැති වුණා, 9 වන දා ඒක ෙදන්න; ඒ අඩුව පිරිමහන්න. නමුත් දැන් මම කියා ෙගන ආෙව් අෙපන් ෙවච්ච ෙසේවය ගැනයි; අපට තිෙබන ශක්තිය ගැනයි. වර්තමාන යුගෙය් අපට තිෙබන ෙහොඳ නාමය -ශක්තියයි ෙසේවයයි කියන ඒ කීර්ති නාමය- අර කිව්ව කරුණු නිසා ගිලිහිලා ගිහිල්ලා. අපට තරග කරන්න බැරි ෙවලා. අපි නවීකරණය වන්ෙන් නැතිව තාක්ෂණය ෙනොමැතිව ඒ වාෙග්ම අෙප් ස්වයංකීය තත්ත්වයන් ෙනොමැතිව අපට අර ෙපෞද්ගලික අංශයත් එක්ක තරග කරන්න බැරුව පසු ගිය අවුරුද්ෙද් ලක්ෂ 3,000ක් අපි ණය වුණා. අෙප් ආදායමට වඩා වියදම ගත්තාම, අපට ලක්ෂ 30,000ක් පියවන්න වුණා. අවුරුදු දහයක් තිස්ෙසේම ෙම්ක තමයි අපට ෙවලා තිෙයන්ෙන්. ලක්ෂ 30,000ක් කියන්ෙන් ෙලොකු මුදලක්. මම ෙම් අමාතɕාංශය බාර ගන්න ෙකොට ෙම්කයි තත්ත්වය. ෙහොඳ කීර්ති නාමයක් තිෙබනවා. එතෙකොට ෙම් ෙසේවය අත හරින්න බැහැ. අපි තැපැල් ෙසේවය ෙම් තත්ත්වෙයන් ෙගොඩ ගන්න දස අවුරුදු සැලැස්මක් ෙගනැල්ලා තිෙබනවා. අෙප් ආකල්ප ෙවනස් කරලා
+
+නවීකරණය කරලා අපට නැති වුණු බැංකු කමය; මූලɕ කමය ෙගනැල්ලා -අපට තිබුණු ෙසේවින්ස් බැංකුව නැති වුණා. ඒ බැංකු කමය මූලɕ කමය ෙගනැල්ලා- අපට නැති වුණු විදුලි සංෙද්ශ අංශයත් ෙගනැල්ලා -අෙප් තිබුණු ෙටලිෙකොම් එකත් අපට නැති වුණා. අපි විදුලි සංෙද්ශ අංශයත් ෙගනැල්ලා- ෙම් ෙසේවය ශක්තිමත් කරන්න අෙප් දස අවුරුදු සැලැස්මක් තිෙබනවා. ඒ දස අවුරුදු සැලැස්ෙම්දී අපි ගණන් බලලා තිෙබනවා, 2011 වන ෙකොට ෙම් ණය වුණු මුදල උපයා ගන්න. එහිදී අපි බලාෙපොෙරොත්තු ෙවනවා, ෙම් ෙසේවය කාර්යක්ෂම කරන්න; ෙම් ෙසේවය ඵලදායී කරන්න.
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) මුද්දර ගාස්තු වැඩි කරන්ෙන් නැහැ ෙන්ද?
+
+ගරු මහින්ද විෙජ්ෙසේකර මහතා (மாண்ᾗமிகு மஹிந்த விேஜேசகர) (The Hon. Mahinda Wijesekara) නැහැ, නැහැ. එෙසේ කරන්ෙන් නැහැ. එෙසේ ෙනොෙකොට ආදායම වැඩි කරලා ෙසේවය කාර්යක්ෂම කරලා ආණ්ඩුවට බරක් ෙනොෙවන්න කටයුතු කරන්න මා බලාෙපොෙරොත්තු ෙවනවා. මා ෙම් අවස්ථාෙව්දී අෙප් අමාතɕාංශෙය් ෙල්කම්තුමා, අෙප් තැපැල්පතිතුමා ඇතුළු සියලුම නිලධාරින්ට ස්තුතිවන්ත ෙවනවා.
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) අර වැඩ බලන තැපැල් ස්ථානාධිපතිවරුන්ට ෙමොකද කරන්ෙන්? වැඩ බලන තැපැල් ස්ථානාධිපතිවරු ෙගොඩක් ඉන්නවා. ඒ ෙගොල්ලන්ෙග් සුදුසුකම් බලලා ඒ ෙගොල්ලන් ඉතා ඉක්මනින් ස්ථීර කරන වැඩ පිළිෙවළවකට යන්න ෙවයි.
+
+ගරු මහින්ද විෙජ්ෙසේකර මහතා (மாண்ᾗமிகு மஹிந்த விேஜேசகர) (The Hon. Mahinda Wijesekara) ඔව්. අපි ඒ අය ස්ථීර කරන්න කටයුතු කරනවා. මම ඒ සියල්ලම කරනවා. බඳවා ගැනීෙම් පරිපාටිය ගැන කියන්න ඕනෑ. දැන් අපට පුරප්පාඩු 20ක් තිෙබනවා. දැනට වɕවස්ථාෙව් තිෙබන්ෙන් ගැසට් කරලා විභාගයක් තියන්න කියලා. ඉතින් ගැසට් කරලා විභාගයක් තියන්න නම් පුරප්පාඩු 5,000ක් විතර වාෙග් තිෙයන්න ඕනෑ. පුරප්පාඩු 20ටත් ගැසට් කරන්නය කියනවා. ඉතින් ඒවා ෙවනස් කරලා, වɕවස්ථාව ෙවනස් කරලා ෙහොඳ කමයකට මිනිස්සු බඳවා ගන්නවා. ඉන්න ෙසේවකෙයෝ බලා ගන්නවා; කාර්යක්ෂම ෙසේවයක් ෙදනවා; ලාභ ලබා ෙදනවා.
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) ෙබොෙහොම ස්තුතියි. මී ළඟට ගරු සී.බී. රත්නායක අමාතɕතුමා. ගරු අමාතɕතුමා, ඔබතුමාට විනාඩි හයක් තිෙබනවා.
+
+ඊට ෙපර, ගරු නිෙයෝජɕ කථානායකතුමා මූලාසනය ගන්නවා ඇති.
+
+අනතුරුව නිෙයෝජɕ කාරක සභාපතිතුමා මූලාසනෙයන් ඉවත් වුෙයන්, නිෙයෝජɕ කථානායකතුමා [ගරු පියංකර ජයරත්න මහතා] මූලාසනාරූඪ විය.
+
+அதன்பிறகு, குᾨக்களின் பிரதித் தவிசாளர் அவர்கள் அக்கிராசனத்தினின்ᾠ அகலேவ, பிரதிச் சபாநாயகர் அவர்கள் [மாண்ᾗமிகு பியங்கர ஜயரத்ன] தைலைம வகித்தார்கள்.
+
+Whereupon MR. DEPUTY CHAIRMAN OF COMMITTEES left the Chair, and MR. DEPUTY SPEAKER [THE HON. PIYANKARA JAYARATNE] took the Chair.
+
+2008 ෙදසැම්බර් 05 3243 3244
+
+[අ.භා. 12.53] ගරු සී. බී. රත්නායක මහතා (පශු සම්පත් සංවර්ධන අමාතɕතුමා)
+
+(மாண்ᾗமிகு சீ. பி. ரத்நாயக்க - கால்நைட வளர்ப்ᾗ அபிவிᾞத்தி அைமச்சர்)
+
+(The Hon. C. B. Rathnayake - Minister of Livestock Development)
+
+ගරු සභාපතිතුමනි, අමාතɕාංශ ගණනාවක වැය ශීර්ෂ පිළිබඳව සාකච්ඡා ෙකරුණු විෙශේෂ කාරක සභාෙව් වාර්තාව සම්බන්ධෙයන් ෙකෙරන ෙම් විවාදයට එක් වීමට ලැබීම පිළිබඳව මා සතුටු වනවා. විෙශේෂෙයන් පශු සම්පත් සංවර්ධන අමාතɕාංශය හැටියට ෙම් රෙට් කිරි නිෂ්පාදනය වැඩි කර ගැනීම සඳහා විශාල දායකත්වයක් ලබා දීමට අපි කටයුතු කරනවා, ඒ සඳහා වැඩ පිළිෙවළවල් කියාත්මක කරනවාය කියන එක මා ෙම් අවස්ථාෙව්දී විෙශේෂෙයන් සඳහන් කළ යුතු ෙවනවා. ෙම් රෙට් කිරි නිෂ්පාදනය සියයට 15කට වැටිලා තිෙබන අවස්ථාවක එය ඉදිරියට ෙගන යාම සඳහා විශාල වැඩ ෙකොටසක් කළ යුතුයි කියන එක මා විෙශේෂෙයන් සඳහන් කළයුතු ෙවනවා. ගරු සභාපතිතුමනි, ඒ කාර්යය සඳහා අෙප් රෙට් ෙද්ශ ගුණික තත්ත්වය ෙබෙහවින් බලපානවා. ඒ වාෙග්ම ඒ සඳහා ජනතාව ෙපලඹවීම, ඒ සඳහා ජනතාවෙග් සහභාගිත්වය ලබා දීම සඳහා අප කටයුතු කළ යුතු ෙවනවා. ඒ කාරණෙය් දී විෙශේෂෙයන් මෙග් අමාතɕාංශය පශු සම්පත් සංවර්ධන අමාතɕාංශය හැටියට ෙම් සඳහා කමෙව්දයන් කිහිපයක් අනුගමනය කරන්න සූදානම් වුණා. එයින් එකක් තමයි, ෙම් රෙට් කිරි නිෂ්පාදනය සහ පශු සම්පත් ක්ෙෂේතය වැඩි දියුණු කිරීම සඳහා ආකල්පමය ෙවනසක් ඇති කිරීම. ඇයි අප ආකල්පමය ෙවනසක් ඇති කරන්ෙන්?
+
+ගරු සභාපතිතුමනි, ෙම් රෙට් කිරි නිෂ්පාදනය සඳහා ෙවෙහෙසන ජනතාව ඒ සඳහා දායකත්වය ලබා ෙදන ෙකොට, අප විවෘත ආර්ථිකයට නැඹුරු වීමත් එක්ක ෙම් රෙට් කිරි නිෂ්පාදනය වැඩි කර ගැනීම සඳහා කටයුතු කරන්නටයි බලාෙපොෙරොත්තු වුෙණ්. නමුත් ෙද්ශීය වශෙයන් කිරි නිෂ්පාදනය අඩු කර ෙගන, පශු සම්පත් ක්ෙෂේතෙය් නිෂ්පාදන අඩු කර ෙගන අපි සූදානම් වුෙණ් විෙද්ශ රටවලින් කිරි පිටි ආනයනය කරන්නයි; භාණ්ඩාගාරෙය් විශාල මුදල් සම්භාරයක් ඒ සඳහා වැය කරන්නයි. ෙම් කර්තවɕෙය් ෙවෙහෙසන උදවියට වටිනාකමක්, මිලක් හා රැකවරණයක් ලබා ගන්න අවස්ථාවක් ෙනොලැබීම නිසාම එෙසේ කරන්න ෙපලඹී සිටියා. ෙම් කාරණෙය් දී ෙම් ආකල්පමය ෙවනස ඇති කරමින් තරුණ ජවය, තරුණ සහභාගිත්වය ඒ සඳහා ෙයොමු කර ගනිමින් පශු සම්පත් ක්ෙෂේතෙය් සියලු නිෂ්පාදනයන් සඳහා නියමිත වටිනාකමක් ෙදමින්, වග කීමක් දරමින් පශු ෙගොවියා රක්ෂණය කරන ඒ වාෙග්ම ගවයා රක්ෂණය කරන වැඩ පිළි ෙවළකට යන්න පසු බිම සකස් කර පසු ගිය වර්ෂෙය් දී අපට විශාල පගතියකට එන්නට පුළුවන්කම ලැබුණා. ඒ වාෙග්ම මිල්ෙකෝ සමාගම ෙම් සඳහා දායකත්වය ලබා ෙදමින් අෙප් රෙට් කිරි මිල නියම කරනවා වාෙග්ම කිරි ෙගොවියා ට රැකවරණය ආරක්ෂණය ලබා දීම සඳහා ද අද කටයුතු ආරම්භ කර තිෙබනවා. ඒ වාෙග්ම ජාතික පශු සම්පත් සංවර්ධන මණ්ඩලය ෙගොවි ෙපොළවල් අභිජනන ෙගොවි ෙපොළවල් බවට පරිවර්තනය කර, සත්ව ආහාර නිෂ්පාදන ෙගොවි ෙපොළවල් බවට පරිවර්තනය කර, ඒ වාෙග්ම ෙද්ශීය පශු සම්පත් සඳහා අවශɕ පසු බිම සකස් කරමින් ඉස්සරහට යනවා. ලංකා-ලිබියානු සමාගමත් එක්ක ඒක රාශි වී ෙම් රෙට් පශු සම්පත් ක්ෙෂේතෙය් දියුණුවක් දකින්න, වැළලී ගිය, වැටී ගිය තැනින් අප එය ෙගොඩ ගන්න උත්සාහ කර තිෙබනවා. ජාතික පශු සම්පත් මණ්ඩලෙය් ෙගොවි ෙපොළවල් තිහ ෙම් කාර්යෙය් දී උඩට ගැනීම සඳහා ෙම් අමාතɕාංශය භාර ගන්නා අවස්ථාෙව් ලක්ෂ 450ක් ණය ෙවලා තිබුණා. ඒ ණය බරින් මුදා ගන්න අපතිහත ෛධර්යයක් දරන්න සිද්ධ වුණා. ඒ කාර්යයත් අප ඉදිරියට ෙගන යමින් කටයුතු කියාත්මක කර තිෙබනවා.
+
+ගරු සභාපතිතුමනි, සත්ව නිෂ්පාදන හා ෙසෞඛɕ ෙදපාර්තෙම්න්තුව මඟින් අවශɕ නව තාක්ෂණය ලබා ෙදන්න, ඒ වාෙග්ම සත්ව වර්ගයාට අවශɕ වන ෙබ්ත් ෙහේත් ටික ලබා
+
+ෙදන්න කටයුතු කරමින්, පශු විමර්ශන මධɕස්ථාන ආරම්භ කරමින්, පශු ෛවදɕවරුන් බඳවා ගනිමින්, පශු ෛවදɕවරුන්ට අවශɕ ෙභෞතික සම්පත් ලබා ෙදමින් කියාත්මක කරන්න අප සූදානම් වුණා.
+
+සභාපතිතුමා (தவிசாளர் அவர்கள்) (The Chairman) ගරු ඇමතිතුමා කථාව අවසාන කරන්න.
+
+ගරු සී. බී. රත්නායක මහතා (மாண்ᾗமிகு சீ. பி. ரத்நாயக்க) (The Hon. C. B. Rathnayake) ගරු සභාපතිතුමනි, මා හිතන විධියට ෙම් සම්බන්ධෙයන් දීර්ඝ වශෙයන් කථා කළ යුතුව තිෙබනවා. වසර තුනක වැඩ පිළිෙවළක් යටෙත් ඒ අවශɕ පසු බිම සකස් කර,-[බාධා කිරීම්]
+
+ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) ගරු ඇමතිතුමනි, නගරාසන්නව දියර කිරි පචලිත,- [බාධා කිරීම්]
+
+සභාපතිතුමා (தவிசாளர் அவர்கள்) (The Chairman) බාධා කරන්න එපා. ගරු ඇමතිතුමා කථාව අවසාන කරන්න. ගරු මන්තීතුමා වාඩි ෙවන්න. [බාධා කිරීම්] කරුණාකර වාඩි ෙවන්න. ගරු ඇමතිතුමා කථාව අවසාන කරන්න.
+
+ගරු සී. බී. රත්නායක මහතා (மாண்ᾗமிகு சீ. பி. ரத்நாயக்க) (The Hon. C. B. Rathnayake) මා දීර්ඝ වශෙයන් කථා කරන්ෙන් නැහැ. මන්තීතුමා මා පසුව ඔබතුමාට ඒ ගැන පකාශ කරන්නම්. [බාධා කිරීම්] දියර කිරි පචලිත කිරීෙම් වැඩ පිළිෙවළක් ආරම්භ කර තිෙබනවා. දශක තුනක පමණ කාල පරිච්ෙඡ්දයක් තුළ ගරා වැටුණු කියාදාමය ඉදිරියට ෙගන යාෙම් දී එක රැයින් එක ෙමොෙහොතින් ෙම්වා කියාත්මක කරන්න අමාරුයි. එම නිසා ෙපොඩ්ඩක් ඉවසා ඉන්න. ඒ කාර්ය සඳහා දැන් අත ගහලා තිෙබනවා. ඒ සඳහා අපට අවශɕ පසු බිම පකාශ කරන්න මා සූදානම්.
+
+මා විෙශේෂෙයන් සඳහන් කරන්න ඕනෑ, ෙම් කර්තɕයය ෙම් සා විශාලව ෙගන යෑම සඳහා මහජන නිෙයෝජිතයන් හැටියට තමුන්නාන්ෙසේලාෙගන් ලබා ෙදන සහෙයෝගය මා ඉතා අගය කරන බව. ඒ වාෙග්ම මෙග් අමාතɕාංශෙය් ෙල්කම්තුමා, මෙග් අමාතɕාංශෙය් නිලධාරි මණ්ඩලය, අමාතɕාංශයට අනුබද්ධ ආයතනවල නිලධාරින් ලබා ෙදන සහෙයෝගය මා ඉතාම අගය ෙකොට සලකනවා. ෙම් විනාඩි කිහිපය ලබා දීම පිළිබඳව ගරු සභාපතිතුමාට කිරි ඉතිෙර්වා කියා පර්ථනා කරමින් මා නිහඬ වනවා.
+
+සභාපතිතුමා (தவிசாளர் அவர்கள்) (The Chairman) ස්තුතියි. ඊළඟට ගරු තිලකරත්න විතානාච්චි මන්තීතුමා. [අ.භා. 1.00]
+
+ගරු තිලකරත්න විතානාච්චි මහතා (மாண்ᾗமிகு திலகரத்ன வித்தானாச்சி) (The Hon. Thilakaratne Withanachchi) ගරු සභාපතිතුමනි, වැය ශීර්ෂ 21ක් පිළිබඳ සාකච්ඡා කරන ෙම් අවස්ථාෙව්දී, මා හට අදහස් දැක්වීමට ඉඩක් ලබා දීම පිළිබඳව පළමු ෙකොට ඔබතුමාට ස්තුතිවන්ත ෙවනවා. පාර්ලිෙම්න්තු කටයුතු අමාතɕාංශය පිළිබඳ වැය ශීර්ෂයත් අද දින විවාදයට භාජන වන
+
+පාර්ලිෙම්න්තුව 3245 3246
+
+* පුස්තකාලෙය් තබා ඇත. ᾓனிைலயத்தில் ைவக்கப்பட்ᾌள்ளᾐ. Placed in the Library.
+
+නිසාම මෙග් කථාව ආරම්භ කරන්න ෙපර එක කාරණයක් ගැන කියන්න ඕනෑ. අප පාර්ලිෙම්න්තු මන්තීවරු 225 ෙදනාෙග් සියලුම කටයුතු ෙමෙහයවන්ෙන්, මැදිහත් වන්ෙන් පාර්ලිෙම්න්තු කාර්ය මණ්ඩලයයි. ඔවුන්ෙග් ආපදා ණය ඇතුළු කරුණු ගණනාවක් පිළිබඳව විෙරෝධතාවක්, උද්ෙඝෝෂණයක් ෙමොෙහොතකට ෙපර පැවැතුණු බව අපි දන්නවා. ගරු සභාපතිතුමනි, මහා අමාතɕ මණ්ඩලයක් නඩත්තු කරන ෙම් ආණ්ඩුව, මිහින් එයාර් වාෙග් ආයතනවලට රුපියල් මිලියන 6,000ක් වැනි මුදලක් ෙවන් කරලා මහා මුදල් කන්දරාවක් නාස්ති කරන අවස්ථාෙව්දී ෙම් පාර්ලිෙම්න්තුෙව් ෙසේවය කරන සමස්ත කාර්ය මණ්ඩලෙය් ඒ සියලු පශ්න, ගැටලු ගැන ෙසොයා බලා ඔවුන්ෙග් අවශɕතාවන් ඉෂ්ට කරන්න මූලිකත්වයක් ෙදන්නය කියලා මා ෙම් ෙමොෙහොෙත් විෙශේෂෙයන් ඉල්ලා සිටිනවා.
+
+මට ලැබුණු කාල ෙව්ලාව තුළ ෙද්ශීය ෛවදɕ අමාතɕාංශය පිළිබඳව කරුණු කිහිපයක් පකාශ කරන්න කැමැතියි. ෙද්ශීය ෛවදɕ අමාතɕාංශය විසින් ඉදිරිපත් කර ඇති ෙපොෙත් සඳහන් වනවා, "ෙලොවටම ආඩම්බරෙයන් දායාද කළ හැකි මහඟු ෙද්ශීය ෛවදɕ කමයක් අප සතුව ඇත" කියා. නමුත් ඒ සඳහා අවශɕ අවධානය ෙයොමු ෙනොකිරීම පිළිබඳ තමයි අපෙග් විෙශේෂ කනගාටුව පකාශ කරන්න තිෙබන්ෙන්. ෙම් වන විට ෙද්ශීය ෙවදකමට සම්බන්ධ රා ජɕ අංශය වාෙග්ම පාරම්පරික ෙවදකමත් රෙට් කියාත්මක වනවා. විෙශේෂෙයන්ම මා කියන්න බලාෙපොෙරොත්තු වන්ෙන් ෙද්ශීය ෙවදකෙම් පාරම්පරික අංශය ගැන ෙනොව ෙද්ශීය ෙවදකමට රාජɕ අංශෙය් මැදිහත් වීම පිළිබඳවයි. ඒ පිළිබඳව මහින්ද චින්තනෙය් ෙමෙසේ සඳහන් වනවා:
+
+"සිංහල ෙවදකමත්, ආයුර්ෙව්දයත්, යුනානී ෛවදɕ කමයත්, ෙහෝමිෙයෝපති හා චීන කටු චිකිත්සාව වැනි සියලුම ෛවදɕ කමවලට අවශɕ නිසි ෙගෞරවය හා පිළිගැනීම ලබා ෙදන්ෙනමි."
+
+බලය ෙබදන්න කියා සමස්ත රට පිළිබඳවම කථා කරනවා. නමුත් අෙප් ෙදමළ ජනතාවෙග් පධාන ෛවදɕ කමය වුණු සිද්ධ ෛවදɕ කමය පිළිබඳව මහින්ද චින්තනෙය් කිසිම සඳහනක් නැහැ. ඒෙකන්ම ෙත්ෙරනවා, ජනාධිපතිතුමා ෙද්ශීය ෛවදɕ කමය නඟා සිටු වන්නය කියා කථා කළාට ඒ පිළිබඳ දක්වන පමුඛතාව ගැන.
+
+චීන කටු චිකිත්සාව ගැන බලන්න. සමස්ත රෙට්ම ෙද්ශීය ෛවදɕවරුන්ෙග් ෛවදɕ කමයත් එක්ක එකට බැඳිලා එන එකක් තමයි චීන කටු චිකිත්සාව. අපි දන්නවා, විෙශේෂෙයන්ම පාර්ලිෙම්න්තුෙව් පිහිටුවා තිෙබන ෙද්ශීය ෛවදɕ සායනෙය් පවා කියාත්මක වන චීන කටු චිකිත්සාව සමස්ත රෙට්ම සිද්ධ කරන බව. නමුත් ඒක දියුණු කරන්න, ඒ ෛවදɕවරුන්ට තව ඉදිරියට යන්න අවශɕ කරන කමෙව්දයක් සකස් කරලා නැහැ. ඒ පිළිබඳව ගරු අමාතɕතුමාෙග් අවධානය ෙයොමු කරවනවා.
+
+2008 අය වැය කථාෙව් ෙද්ශීය පර්ෙය්ෂණ අංශය දියුණු කිරීම සඳහා රුපියල් මිලියන 100ක් ෙවන් කළාය කියා සඳහන් වනවා. ෙම් වන ෙකොට ඒ පර්ෙය්ෂණ ආයතනෙය් සිදු කරන පරීක්ෂණ පිළිබඳ දීර්ඝ වාර්තාවක් ෙහළ ෙවද පුනරුද පගතිය පිළිබඳ සටහෙන් සඳහන් වනවා. නමුත් අපි දන්නවා, ෙම් වන ෙකොට ෙද්ශීය ෛවදɕ පරීක්ෂණ කිහිපයකටයි ෙයොමු වී තිෙබන්ෙන් කියලා.
+
+ඊළඟට විෙශේෂෙයන්ම පසු ගිය කාලෙය් මා දිගින් දිගටම සඳහන් කළා ඇදුම ෙරෝගය පිළිබඳව. සමස්ත රෙට්ම, ඒ වාෙග්ම සමස්ත ෙලෝකෙය්ම විශාල පිරිසක් ඇදුම ෙරෝගෙයන් ෙපෙළනවා. ඇදුම ෙරෝගය පිළිබඳ පතිකාර කමයක් ලංකාෙව් ඉතාම දක්ෂ ෛවදɕවරෙයක් ෙසොයා ෙගන තිෙබනවා. ඒකට අවශɕ කරන පරීක්ෂණ කඩිනමින් කරලා, ඒ ෙරෝගීන්ට පතිකාර කරන්න අවශɕ කටයුතු සලස්වන්නය කියන ඉල්ලීම කරමින් ඒ පිළිබඳව ගරු අමාතɕවරයාෙග් අවධානය ෙයොමු කරවනවා.
+
+වි ෙශේෂ පශ්නයක් තිෙබනවා. අපි දන්නවා, බටහිර ෛවදɕ ක්ෙෂේත ෙය් ඉන්න නිලධාරීන්ට, ෛවදɕවරුන්ට දීමනා විශාල පමාණයක් ලැෙබන බව. නමුත් ෙම් වන ෙතක් රාජɕ අංශෙය්
+
+ආයුර්ෙව්ද ක්ෙෂේතෙය් ෙසේවය කරන ආයුර්ෙව්ද ෛවදɕ නිලධාරීන්ට අවශɕ - ඒ ක්ෙෂේතෙය් සියලුම නිලධාරීන්ට අවශɕ - ඒ දීමනා ලැෙබන්ෙන් නැහැ. 1/20 දීමනාව, 2006, 2010 චකෙල්ඛන අනුව කියාත්මක වන කිසිම දීමනාවක් ලැෙබන්ෙන් නැහැ. ඒ සම්බන්ධව සාකච්ඡා ගණනාවක් පැවැත්වුවා. ඊට අදාළ ඔවුන්ෙග් ඉල්ලීම සහිත ලිපිය හැන්සාඩ් වාර්තාවට ඇතුළත් කිරීම සඳහා සභාගත* කරනවා. ඒ සම්බන්ධෙයන් ගරු ඇමතිතුමාෙග් අවධානය ෙයොමු කරන ෙලසත්, ෙබෝලය ඒ පැත්තට ෙම් පැත්තට පාස් කර කර ඉන්න එක නවත්වා සමස්ත ආයුර්ෙව්ද ෛවදɕ නිලධාරීන්ෙග් පශ්නය විසඳන්නය කියාත් මම ඉල්ලා සිටිනවා. ඒ වාෙග්ම 2004.12.15 වන දින ආයුර්ෙව්ද ෛවදɕ නිලධාරීන් 227 ෙදෙනක් බඳවා ෙගන තිෙබනවා. අද වන ෙතක් ඔවුන්ට විධිමත් පත්වීම් ලබා දී නැහැ. විෙශේෂෙයන් ඒ පිළිබඳව ගරු ඇමතිතුමාෙග් අවධානය ෙයොමු කරවනවා. ඊට අවශɕ කරන ලිපි මම හැන්සාඩ් ගත කිරීම සඳහා සභාගත* කරනවා.
+
+2008.11.19 වන දින පැවති උපෙද්ශක කාරක සභාෙව්දී ෙද්ශීය ෛවදɕ ක්ෙෂේතයට අදාළ පශ්න ගණනාවක් ඉදිරිපත් කළා. ඒ පිළිබඳවත් ගරු ඇමතිතුමාෙග් අවධානය ෙයොමු කරවමින් -ඊට අදාළ ලිපි ගණනාවක් තිෙබනවා.- ඒ අදාළ ලිපියත් මම හැන්සාඩ් වාර්තාවට ඇතුළත් කිරීම සඳහා සභාගත* කරනවා.
+
+ෙද්ශීය ෛවදɕ ක්ෙෂේතය නඟා සිටු වීම සඳහා ගිය අවුරුද්දට වැඩි යම් පමාණයක් ෙම් අවුරුද්ෙද් ෙවන් කර තිෙබනවා. නමුත් ගරු ජනාධිපතිතුමාෙග් වැය ශීර්ෂයට සවෙලන් දමා ගන්න ෙකොට ෙද්ශීය ෛවදɕ අමාතɕතුමාෙග් වැය ශීර්ෂයට ෙබදා තිෙබන්ෙන් කන් හැන්ෙදනුයි. ඒකට කන් හැන්ෙදන් ෙදපාරක් ෙබදා තිෙබනවා. ඒ වාෙග්ම ෙද්ශීය ෛවදɕ කමය සඳහා අවශɕ නිමි දවɕ ෙගන්වීෙම්දී බද්දක් අය කරනවාය කියා සඳහන් වනවා. නමුත් අපි දන්නා විධියට සියලුම අමු දවɕ ෙගන්වීෙම්දීත් ෙම් බද්ද පන වන්න සූදානම් වනවා. ඒ සම්බන්ධෙයන් ගරු ඇමතිතුමාෙග් විෙශේෂ අවධානය ෙයොමු කරවන අතර ලංකාෙව් නිෂ්පාදනය ෙනොකරන, පිට රටින් ෙගන්වන අතɕවශɕ අමු දවɕ සඳහා බදු අය කිරීම සිදු කරන්න එපාය කියා ඉල්ලා සිටිනවා. පසු ගිය කාලෙය්දී පාෙද්ශීය ෙල්කම් ෙකොට්ඨාස 326 සඳහා ආයුර්ෙව්ද ෙසෞඛɕ ෛවදɕ නිලධාරින් 318ක් බඳවා ගත්තා. ඒ ගැන අපි ඉතාම සතුටු ෙවනවා. ඒක අතɕවශɕ කටයුත්තක්. ඒ මගින් ඒ පුද්ගලයන්ට රැකියා ලබා දී තිෙබනවා. නමුත් අපි දන්නවා ෙම් වන ෙකොට ඒ උදවියට අවශɕ කරන පුටුවක්වත් ෙම්සයක්වත් නැතිව පාෙද්ශීය ෙල්කම් කාර්යාලවල කාලය ගත කරනවා. ඒ පිළිබඳව ඔවුන් දිගින් දිගටම කතා කර තිෙබනවා. ෙයෝජනා ගණනාවක් ඉදිරිපත් කර තිෙබනවා. ගරු ඇමතිතුමාෙග් අවධානය ෙයොමු කිරීම සඳහා මම ඒ ලිපියත් හැන්සාඩ් ගත කිරීම සඳහා සභාගත** කරනවා.
+
+අවසාන වශෙයන් ඩිප්ෙලෝමාධාරීන් 375කට ආසන්න පමාණයක පිරිසක් විතරයි ෙම් වන ෙකොට ඉන්ෙන්. පසු ගිය දවස්වල ජනාධිපතිවරයාෙග් මූලිකත්වෙයන් සාකච්ඡාවක් කැඳවා ඒ ඩිප්ෙලෝමාධාරින් සියලු ෙදනාට සහකාර ෛවදɕ ෙසේවෙය් පත්වීම් ලබා ෙදන්න එකඟ වුණා. ෙම් වන ෙකොටත් ඒක සාකච්ඡා කරමින් තිෙබනවා. මී ළඟට පත් වන්ෙන් උපාධිධාරිනුයි. ඒ නිසා ඒ අවසාන ඩිප්ෙලෝමාධාරින් සඳහා පත් වීම් ලබා ෙදන්නට අවශɕ පියවර ගන්නය කියාත් මා ඉල්ලා සිටිනවා. ඒ සඳහා ගරු අමාතɕතුමාෙග් විෙශේෂ අවධානය ෙයොමු කරවනවා. ඔවුන්ෙග් ඉල්ලීම ඇතුළත් ලිපියත් ෙම් අවස්ථාෙව්දී මා හැන්සාඩ් ගත කිරීම සඳහා සභාගත* කරනවා.
+
+[ගරු තිලකරත්න විතානාච්චි මහතා]
+
+* *ලියවිල්ල ඉදිරිපත් ෙනොකරන ලදී. ஆவணம் சமர்ப்பிக்கப்படவில்ைல. Document not tendered.
+
+2008 ෙදසැම්බර් 05 3247 3248
+
+අෙප් රෙට් ෙද්ශීය ෛවදɕ කමය නඟා සිටු වීම සඳහා අදාළ ෙයෝජනා අදහස් ගණනාවක් ෙද්ශීය ෛවදɕ ඇමතිතුමා සතුව තිෙබනවා කියා අපි විශ්වාස කරනවා. නමුත් ෙම් රෙට් ති ෙබන ෙද්ශීය ෛවදɕ දැනුමත්, සමස්ත පාරම්පරික දැනුමත් නිසි ෙලස උපෙයෝගි කර ෙගන ෙද්ශීය ෛවදɕ කමය නඟා සිටු වන්න අවශɕ කරන විධිමත් සැලැස්මක් කියාත්මක වන්ෙන් නැහැ කියන විෙව්චනය තමයි අප ඉදිරිපත් කරන්ෙන්. ඒ වාෙග්ම ගරු සභාපතිතුමනි, ෙම් ෙමොෙහොෙත් තවත් කාරණයක් සඳහන් කළ යුතුව තිෙබනවා. පසු ගිය දා සභාව කල් තැබීෙම් අවස්ථාෙව්දීත් ෙම් ෙයෝජනාවක් මගිනුත් ෙම් ගැන සාකච්ඡා වුණා. ඒ තමයි ෙම් රෙට් නිෂ්පාදනය කරන ෙද්ශීය ඖෂධ සඳහා නිසි පමිතියක් සලස්වන්නය කියන එක. ඒ ඉදිරිපත් වුණු ෙයෝජනාව රෙට් තවම කියාත්මක වන්ෙන් නැහැ කියන එක පිළිබඳව අපට ගැටලුවක් තිෙබනවා. දැනට ෙද්ශීයව නිෂ්පාදනය කරන මදන ෙමෝදකය පිළිබඳව රට පුරාම විශාල පශ්නයක් පැන නැඟී තිෙබනවා. මා දන්නා තරමින් ෙද්ශීය ඖෂධ වර්ග 26කින් එක කිෙලෝ එකකුත්, කංසා එෙහම නැත්නම් ගංජා කිෙලෝ එකකුත් මිශ කරලා තමයි මදන ෙමෝදකය නිෂ්පාදනය කරන්ෙන්. හැබැයි ඒවා නිසි පමිතිෙයන් නිෂ්පාදනය වුෙණ් නැති වුණාම සිදු වන ෙද් තමයි අවසානෙය් ෙද්ශපාලන වශෙයනුත් පශ්න ඇති වීම. ගරු සභාපතිතුමනි, සමහර උදවිය ෙම්වා කාලා ෙද්ශපාලන වශෙයන් අෙනක් පැත්තට ගිහිල්ලා ඔළුෙවන් හිට ෙගන විවිධ පකාශ කරනවා. ඒ අනුව සමස්ත රටටම ෙද්ශපාලන වශෙයන් පශ්නයක් ඇති ෙවනවා. ඒ නිසා එම කාරණයත් ගරු සභාපතිතුමාෙග් අවධානයට ෙයොමු කරනවා. ඒ නිසා ෙම් ගැන පමුඛතාවක් ලබා දී කටයුතු කරන්නය කියා ෙද්ශීය ෛවදɕ අමාතɕතුමාෙගන් ඉල්ලා සිටිනවා.
+
+ගරු සභාපතිතුමනි, අවසාන වශෙයන් කියන්නට තිෙබන්ෙන් අද මහින්ද රාජපක්ෂ මහත්මයාෙග් ආණ්ඩුව ෙද්ශීය ෙවදකම ගැන දක්වා තිෙබන පමුඛතාව පමාණවත් නැහැයි කියන එකයි. ෙම් ආණ්ඩුෙව් සමහර උදවිය ෙද්ශීය ෙවදකම නඟා සිටු වන්නට ඉතා වුවමනාෙවන් කටයුතු කරන වැඩ පිළිෙවළක් ෙම් තුළ සම්බන්ධ ෙවලා නැහැ. නමුත් මාධɕෙයන් අපට පකාශ වන්ෙන් ෙම්ක ෙද්ශ ෙපේමී අය වැයක් කියලායි. ඒක හැම පැත්ෙතන්ම පකාශ ෙවනවා. සමහර උදවිය ගරු ජනාධිපතිතුමාෙග් වැය ශීර්ෂය සම්බන්ධෙයන් කථා කරමින් ඒක ෙද්ශ ෙපේමී අය වැයක් කියන්නට ෙබොෙහොම ෙවෙහස මහන්සි ෙවලා, ඒ සඳහා සළුපිළි අන්දන්න, ෙම් ආණ්ඩුවට හැදිලා තිෙබන අතීසාරයට අමුඩ ගහන්න උත්සාහ කරනවා. ඒ වාෙග්ම මාධɕ තුළිනුත් ඒ සඳහා කටයුතු කරන බව අපි දන්නවා. රාජɕ මාධɕ ආයතන ෙදකක් තිෙබනවා. ඒ තුළින් හැම දාම හැන්දෑවට එක ෙකොටසක් අතීසාරයට අමුඩ ගහන්න උත්සාහ කරනවා. එක මාධɕ ආයතනයක හැන්දෑවට පවෘත්ති පකාශය අවසානෙයන් "පසුවිපරම" කියලා සාකච්ඡාවක් යනවා. මම දකින්ෙන්, ෙමොකක්ද? එක ෙකොටසක් ගිහිල්ලා අතීසාරයට අමුඩ ගහනවා වාෙග්ම අෙනක් ෙකොටස ගිහිල්ලා අතීසාරයට ඇබ ගහනවා. අර ඇෙබ් කියන නමින් සුන්දර ෙකෙනක් තමයි හැම දාම ඒක ලියන්ෙන්. ඒ ගැනත් සඳහන් කරමින් ෙමොනවා කළත් ෙම් ආණ්ඩුෙව් අතීසාරය නම් ඒ උදවියට අමුඩ ගහලා නවත්වන්න බැහැයි කියන එක සඳහන් කරමින් මෙග් වචන ස්වල්පය අවසන් කරනවා.
+
+[අ.භා. 1.11] ගරු ෛවදɕ රාජිත ෙසේනාරත්න මහතා (ඉදිකිරීම් හා ඉංජිෙන්රු ෙසේවා අමාතɕතුමා)
+
+(மாண்ᾗமிகு ைவத்தியகலாநிதி ராஜித ேசனாரத்ன - நிர்மாணத்ᾐைற, ெபாறியியல் ேசைவகள் அைமச்சர்)
+
+(The Hon (Dr.) Rajitha Senaratne-Minister of Construction and Engineering Services)
+
+ගරු සභාපතිතුමනි, එදා මෙග් අමාතɕාංශෙය් වැය ශීර්ෂයන් යටෙත් පැවැති සාකච්ඡා වාරයට සහභාගි වුණා. විෙශේෂ කාරක සභා අවස්ථාෙව් දී විනාඩි 12ක පමණ කාලයකින් මෙග් අමාතɕාංශෙය් වැය ශීර්ෂයන් සම්මත වුණා.
+
+මෙග් අමාතɕාංශය යටෙත් ආයතන හයක් තිෙබනවා. ෙගොඩනැඟිලි ෙදපාර්තෙම්න්තුව තිෙබනවා. ICTAD ආයතනය තිෙබනවා. එතැනින් තමයි පුහුණුවීම් කරන්ෙන්; ඉදි කිරීෙම් ක්ෙෂේතෙය් පතිපත්ති හදන්ෙන්; ඒ විතරක් ෙනොෙවයි ෙකොන්තාත්කරුවන් ලියා පදිංචි කරන්ෙන්. රාජɕ ඉංජිෙන්රු සංස්ථාව සහ නිර්මාණ නීතිගත සංස්ථාව කියලා ෙදකක් තිෙබනවා. ඒ ෙදකම ෙපෞද්ගලීකරණය කරන්නයි තිබුෙණ්. ඒ ෙපෞද්ගලීකරණය කිරීම නවත්වලා අද ෙම් වන විට ලාභදායී අන්දමින් ඉදි කිරීම් කර ෙගන යනවා. රජෙය් කර්මාන්තශාලාවත් වසා දමන්නටයි තිබුෙණ්. ඒකත් අද ඉතා ෙහොඳින් ෙගන යනවා. අවුරුදු 40කට පස්ෙසේ පළමු වැනි වරට රජෙය් කර්මාන්තශාලාෙවන් අද ෙගොඩනැඟිලි ෙදකක් හදනවා. එදා ෙඩව්ෙකෝෙෂෝවා ආයතනය වසා දැම්මා. එදා ජනතා විමුක්ති ෙපරමුෙණ් ඇමතිතුමාමයි ඒක වසා දැම්ෙම්. අද අපි ඒක ආරම්භ කළා. ඒ ආයතනෙය් තිබුණ ෙකෝටි, පෙකෝටි ගණනක් වටිනා උපකරණ පරණ යකඩවලට ෙටොන් ගණනින් විකුණන්නට ඈවර කරන්න ලැහැස්ති කරලා තිෙබද්දී මම ඇවිල්ලා ඒක ෙබ්රා ෙගන Fujima Corporation කියලා අලුතින් ඒකාබද්ධ සමාගමක් විධියට හදලා, පරණ යකඩවලට විකුණන්නට තිබුණ ඒවා අද වැඩ කරනවා. අද ඒ ආයතනෙය් ටිපර්, බැෙකෝ, loaders ඔක්ෙකොම ඉතා ෙහොඳින් වැඩ කරනවා. ඒ එක්කම අපට තිෙබන විශාලම පශ්නය රජය කරනු ලබන ඉදි කිරීම් ෙවනුෙවන් ලැෙබන්නට තිෙබන ණය පමාණයයි. රාජɕ ඉංජිෙන්රු සංස්ථාවට රජය රුපියල් මිලියන 500ක් විතර ණයයි. නිර්මාණ නීතිගත සංස්ථාවට රුපියල් මිලියන 250කට වැඩි පමාණයක් රජය ණයයි. අපට ඒ මූලධනය නැතිව, එෙහත් අලාභදායී ෙනොවී කර ෙගන යනවා. 2006 - 2007 අතිගරු මහින්ද රාජපක්ෂ ජනාධිපතිතුමා කරපු සියලුම පඩි නඩි වැඩි කිරීම් ෙගව්වා. සියයට 50ක පඩි වැඩි කිරීමක් කළා. 2004 ෙදසැම්බර් දක්වා රාජɕ ඉංජිෙන්රු සංස්ථාවට බඳවා ගත් 600ක් පමණ ෙසේවකයන් ඔක්ෙතෝබර් 10 වැනි දා ස්ථිර කළා. ෙම් විධියට ඒ වැඩ කටයුතු ටික අවසන් කළා.
+
+විෙද්ශ ඉදි කිරීම් සම්බන්ධෙයන් කථා කළා. අපි ජනවාරි මාසෙය් විෙද්ශ ඉදි කිරීම් ආරම්භ කරනවා. ෙම් සඳහා සියල්ල ලැහැස්ති කරලා බලන ෙකොට සංස්ථා ෙදෙක්ම පනත් යටෙත් අපට ඒ විෙද්ශ ඉදි කිරීම් කරන්න බැහැ; අපට එෙහම ෙදයක් කරන්නට අවකාශ නැහැ. ෙම් සංස්ථා ෙදකට වි ෙද්ශ ඉදි කිරීම් සඳහා එකඟතාව ලබා ගැනීමට ෙම් පනත පාර්ලිෙම්න්තුවට ෙගනැල්ලා සැප්තැම්බර් මාසෙය් අගදී තමයි සම්මත කර ගත්ෙත්. ජනවාරි මාසෙය්දී විශ්වවිදɕාලයක් ඉදි කිරීම සඳහා සවුදි රියාල් මිලියන 400ක ෙකොන්තාත්තුවක් අප ලබා ගත්තා. විෙද්ශ ඉදි කිරීම් ක්ෙෂේතෙය් ඉතිහාසෙය් පළමු වන ඉදි කිරීම ඇෙමරිකානු සමාගමත් එක්ක ඒකාබද්ධව සවුදි අරාබි රාජɕෙයන්ම ආරම්භ කරනවා. අද උෙද් රණවීර පතිරණ මන්තීතුමා කියා තිබුණා, -මම උෙද් මාධɕ සමඟ සම්බන්ධ වූ වැඩසටහනකයි හිටිෙය්- ෙම්වා සිදු වන්ෙන් නැහැ කියා. ඕනෑ ෙකෙනකුට කියන්න පුළුවන් නැහැයි, බැහැයි කියලා. ඒක සමහරුන්ෙග් පතිපත්තියක්. අපි ඇවිල්ලා තිෙබන්ෙන් නැහැයි කියන ඒවායි, බැහැයි කියන ඒවායි තිෙයනවා කියා කියන්නයි, කරන්න පුළුවන් කියා කියන්නයි. අපි ඒ වɕාපෘතිෙයන් 2,000කට රැකියා අවස්ථා ලබා ෙදනවා. සවුදි අරාබි රජය මඟින් අපිට රැකියා අවස්ථා 2,000කට ඉඩ පස්ථාව ලබා ෙදනවා. එතැනින් අපි ආරම්භ කරනවා. එතැනින් අපි ෙම් වැඩ පිළිෙවළ ඉවර කරන්ෙන් නැහැ. රට රටවල තව විශාල ෙකොන්තාත් අපි අරගන්නවා. ෙම් රෙට් ඉදි කිරීම් ක්ෙෂේතෙය් ෙයදී සිටින අෙනකුත් ෙපෞද්ගලික සමාගම් ඔක්ෙකොම ඒකාබද්ධ කරලා ඒ ෙගොල්ලන්ට උප ෙකොන්තාත් දීලා ඒ ෙගොල්ලත් එක්ක ඒ වැඩ කටයුතු ඉදිරියට ෙගන යනවා.
+
+ඒ මන්තීතුමා තවදුරටත් කියා තිබුණා, අපි විශාල වැටුපකට ෙද්ශපාලන පත්වීම් දුන්නාය කියා. කිසිම ෙද්ශපාලන පත්වීමක් නැහැ. ඊෙය් ෙපෙර්දා එක් ෙකෙනක් ෙදන්ෙනක් දැක්කා මිසක් ඊට කලින් ෙම් ගත්ත එක මනුෂɕෙයක්වත් මම දැකලාවත් නැහැ. DGM (Finance) තනතුරට එක් ෙකෙනක් ගත්තා. රාජɕ ඉංජිෙන්රු සංස්ථාව ඉතිහාසගත සංස්ථාවක්. ෙම් සංස්ථාෙව් ෙසේවකයන් 2,700ක් ඉන්නවා. රුපියල් බිලියන 10ක turnover
+
+පාර්ලිෙම්න්තුව 3249 3250
+
+එකක් තිෙබනවා. ඉස්සර තිබුණු බිලියන ෙදකහමාරක turnover එක හතර ගුණයකින් වැඩි කරලා අද බිලියන 10ක turnover එකක් තිෙබනවා. නමුත් chartered accountant ෙකෙනක් නැහැ. Chartered accountantsලා ෙම් පඩිවලට එන්ෙන් නැහැ. ඒ නිසා අපි රුපියල් 80,000ක පඩිය ෙගවන්නත්, රුපියල් 40,000ක allowance එකක් ෙගවන්නත් කථා කරලා ෙබොෙහොම අමාරුෙවන් තමයි මෑත ඉතිහාසෙය් ෙකොන්තාත් කමයට chartered accountant ෙකෙනක් ගත්ෙත්. ඒක ෙද්ශපාලන පත්වීමක් ෙනොෙවයි. DGM (Mechanical and Engineering) විධියට රුපියල් 75,000ක පඩිය ෙගවන්න chartered mechanical engineer ෙකෙනක් අරෙගන තිෙබනවා. ෙම් අයට ෙපෞද්ගලික අංශෙය් මීට වඩා වැටුපක් ෙගවනවා. ගාමිණී විකමසිංහ කියා මහත්මෙයක් අපි ඩුබායි ඉඳලා ෙගන්වා ගත්තා, අෙප් විෙද්ශ වɕාපෘති භාර ගන්න. එයා රාජɕ ඉංජිෙන්රු සංස්ථාෙව් -පරණ SEC එෙක්- වැඩ කරපු ෙකෙනක්. එයාට රුපියල් 50,000ක් ෙගවනවා. එයත් chartered engineer ෙකෙනක්. නිකම් එක් ෙකෙනක් ෙනොෙවයි. ෙම් පැත්ෙත් ඉඳලා ඒක monitor කරන්න රුපියල් 1,00,000ක් වියදම් කරලා ටියුඩර් විෙජ්නායක කියා තව chartered engineer ෙකෙනක් ගත්තා. ෙම් ඔක්ෙකොම සභාපතිතුමා සහ අධɕක්ෂ මණ්ඩලය කථා කරලා තීන්දු කරලා ෙතෝරා ගත් අයයි. ෙකොන්තාත් කමයටයි අරෙගන තිෙබන්ෙන්. ෙමොකද, ෙම් පඩි ෙගවන්න බැරි නිසා. නමුත් ජනාධිපතිතුමාත් එක්ක කථා කරලා මම කිව්වා, ෙම් හැම ඉංජිෙන්රුවාම ෙම් ආයතන ෙදෙක් සහතිකය අරෙගන රුපියල් ලක්ෂයට, රුපියල් ලක්ෂ එකහමාරට ෙපෞද්ගලික අංශයට යනවාය කියා. අපිට හැම දාම අවුරුදු ෙදෙක් තුෙන් පළපුරුදු ෙබොෙහොම කනිෂ්ඨ ඉංජිෙන්රුෙවොත් එක්ක තමයි කටයුතු කරන්න ෙවලා තිෙබන්ෙන්. අය වැය ෙයෝජනා ෙගෙනන්න වෘත්තීයෙව්දීන් හම්බ වුණු ෙවලාෙව් රජෙය් ඉංජිෙන්රු සංගමෙයන් ෙගනාපු ෙම් ෙයෝජනාව මමත් සහෙයෝගය දීලා ඉදිරිපත් කළා. ජනාධිපතිතුමා කිව්වා, "සල්ලි තිෙබනවා නම් පිට උදවියට කථා කරන්න" කියා. ඒ අනුව සාමානɕ ෙවෙළඳ ෙපොෙළේ වැටුපට වඩා සුළු පමාණයක් අඩුෙවන් ෙදන්න ලැහැස්ති කර, මම ෙමවර ඉංජිෙන්රුවන්, වාස්තු විදɕාඥයින්, quantity surveyorsලා, accountantsලා වැනි අපට වැඩිපුර එන්ෙන් නැති විෙශේෂ ෙශේණිෙය් උදවිය ගන්නවා. එෙහම නැත්නම් කවදාවත් ෙම් ආයතන ෙගොඩ නඟලා ඉදිරියට ෙගන යන්න බැහැ. ඒ වාෙග්ම අපිට තව පශ්නයක් තිෙබනවා. ෙම් රටට ෙලෝක බැංකුෙව්, ආසියානු සංවර්ධන බැංකුෙව් විශාල වɕාපෘති එකක්වත් ෙදන්ෙන් නැහැ. ෙමොකද, අපි රජෙය් ආයතන කියා. ආසියානු සංවර්ධන බැංකුෙව් මිලියන දහස් ගණන්, මිලියන හයසිය ගණන්වල විශාල වɕාපෘති අපට අහිමි ෙවනවා. ඒ ෙගොල්ලන්ෙග් පතිපත්ති අනුව අපිට ෙටන්ඩර් එකක්වත් දමන්න බැහැ. ආසියානු සංවර්ධන බැංකුෙව් අධɕක්ෂවරයාත් එක්ක මම කිව්වා, ෙම් විධියට කෙළොත් රජෙය් සියලුම ෙකොන්තාත් අපට ගන්න ෙවනවා, එෙහම වුෙණොත් ෙපෞද්ගලික අංශයට ඔය ෙගොල්ෙලොයි පාඩුව කරන්ෙන් කියා. ඒ පතිපත්තිය අනුව ඒ ෙගොල්ෙලොත් එක්ක කථා කරනවා. සභාපතිතුමා (தவிசாளர் அவர்கள்) (The Chairman) ගරු ඇමතිතුමනි, අවසාන කරන්න. ගරු ෛවදɕ රාජිත ෙසේනාරත්න මහතා (மாண்ᾗமிகு ைவத்திய கலாநிதி ராஜித ேசனாரத்ன) (The Hon (Dr.) Rajitha Senaratne) ගරු සභාපතිතුමනි, මම කථාව ඉවර කරනවා. මෙග් ආයතනවල වෘත්තීය සමිති කිසිම පශ්නයක් නැතිව ෙම් ෙගන යන වැඩ පිළිෙවළට ඉතාමත්ම ෙහොඳින් මට සහෙයෝගය ෙදනවා. හැම ෙද්ශපාලන පක්ෂයක් යටෙත්ම ඇති වෘත්තීය සමිති ෙද්ශපාලනය බලන්ෙන් නැතිව ඉතාමත්ම ෙහොඳින් මට සහෙයෝගය ෙදනවා. ඒ අයට මම ස්තුතිවන්ත ෙවනවා. ඒ වාෙග්ම මෙග් ෙල්කම්තුමාටත්, නිෙයෝජɕ ෙල්කම්වරු ඇතුළු සියලුම
+
+නිලධාරි මහත්වරුන්ටත්, ෙසේවක මහත්වරුන්ටත්, අෙප් හැම ආයතනයකම ඉන්න සභාපතිවරු, අධɕක්ෂවරු සහ ආයතන පධානීන්ටත්, ඒ වාෙග්ම මණ්ඩලවල නිලධාරින්, අධɕක්ෂවරුන් සහ ෙසේවක මහත්වරුන් ආදී සියලු ෙදනාටත් මා ස්තුතිවන්ත ෙවනවා. මෙග් වැය ශීර්ෂය සම්මත කිරීමට එකඟත්වය පළ කළ ආණ්ඩු පක්ෂෙය් ෙමන්ම විපක්ෂෙය් මන්තීවරුන්ටත් මම ස්තුතිවන්ත ෙවනවා.
+
+සභාපතිතුමා (தவிசாளர் அவர்கள்) (The Chairman) ස්තුතියි. ඊ ළඟට ගරු එස්. බී. නාවින්න ඇමතිතුමා. [අ.භා. 1.19] ගරු එස්. බී. නාවින්න මහතා (ගාමීය කර්මාන්ත හා ස්වයං රැකියා පවර්ධන අමාතɕතුමා)
+
+(மாண்ᾗமிகு எஸ். பி. நாவின்ன - கிராமியக் ைகத்ெதாழில், சுயெதாழில் ஊக்குவிப்ᾗ அைமச்சர்)
+
+(The Hon. S. B. Nawinne - Minister of Rural Industries and Self-employment Promotion)
+
+ගරු සභාපතිතුමනි, මෙග් වැය ශීර්ෂය විෙශේෂ කාරක සභා ෙව්දී සම්මත වුණා. මෙග් අමාතɕාංශය යටෙත් තිෙබන ශිල්ප සභාව, ජාතික ෙමෝස්තර මධɕස්ථානය, කාර්මික සංවර්ධන මණ්ඩලය, ශී ලංකා හස්ත කර්මාන්ත මණ්ඩලය, ජන කලා ෙක්න්දය, නිෂ්පාදන ගම්මාන වɕාපෘතිය, පුනර්ජීවන අරමුදල කියන ෙම් සියලු ආයතන ඇත්තටම ලංකාෙව් නිෂ්පාදන කියාවලියට එක්කාසු වූ ආයතනයි. විෙශේෂෙයන්ම ශිල්ප සභාෙවන් තමයි හැම නිෂ්පාදනයක්ම කරන්න ශිල්පීන්ට පුහුණුව ෙදන්ෙන්. ඒ ෙගොල්ෙලෝ ජාතɕන්තරෙය් පවා පුහුණු කිරීෙම් කටයුතුවලට සම්බන්ධ ෙවනවා. ඒ වාෙග්ම ජාතික ෙමෝස්තර මධɕස්ථානෙයන් තමයි අවශɕ නවීන ෙමෝස්තර ලබා ෙදන්ෙන්. ඒ වාෙග්ම කාර්මික සංවර්ධන මණ්ඩලය ෙම් සඳහා අවශɕ තාක්ෂණය ලබා ෙදනවා. නව නිපැයුම් සියල්ලක්ම ෙකෙරන්ෙන් අෙප් ෙම් කාර්මික සංවර්ධන මණ්ඩලෙයනුයි. ෙම්වා අෙලවි කරන ලංකාෙව් රජයට අයත් එකම මධɕස්ථානය තමයි ශී ලංකා හස්ත කර්මාන්ත මණ්ඩලය. හස්ත කර්මාන්ත මණ්ඩලෙයන් තමයි ෙම් සියලු ෙදයක්ම අෙලවිය සඳහා ෙයොදවා තිෙබන්ෙන්. ඒ වාෙග්ම ඊට අමතරව ෙකොළඹ පිහිටා තිෙබන ජනකලා ෙක්න්දය ශිල්පීන් පුහුණු වන ස්ථානයක් පමණක්ම ෙනොෙවයි. අපි පසු ගිය වසෙර් එළිමහන් රංග පීඨයක් පිහිටුවා අද එය විවෘත කර තිෙබනවා. සාමානɕෙයන් පුටු 750ක් පමණක් තිෙබන, හැම පැත්ෙතන්ම ඉඳ ෙගන බලන්නට පුළුවන් එළිමහන් රංග පීඨයක්. පළාත් මට්ටෙමන් බැලුවාම, ලංකාෙව් පළාත් නවෙය්ම සිටින හස්ත කර්මාන්තකරුවන්ට තමන්ෙග් නිෂ්පාදන භාණ්ඩ අෙලවි කිරීමට ස්ථානයක් නැහැ. ඒ නිසා අෙප් ජන කලා ෙක්න්ද භූමිෙය් ෙම් වන ෙකොටත් ඒ සඳහා ස්ථානයක් ඉදි ෙවමින් පවතිනවා. හැම පළාතක්ම නිෙයෝජනය කරමින් ඒ අයෙග් නිෂ්පාදන භාණ්ඩ අෙලවි කිරීම සඳහා මධɕස්ථාන නිම ෙවමින් පවතිනවා. එයත් තව සති කිහිපයකින් විවෘත කිරීමට අපි බලාෙපොෙරොත්තු ෙවනවා.
+
+ඒ වාෙග්ම නිෂ්පාදන ගම්මාන වɕාපෘතිය යටෙත් ලංකාෙව් සියලුම පළාත්වල නිෂ්පාදන ගම්මාන ඇති කිරීම කියාත්මක ෙවනවා. අපට ලැබුණු අරමුදල් සියල්ල ෙම් වන විට වියදම් කර තිෙබනවා. ෙම් නිෂ්පාදන ගම්මාන ඇති කිරීම පමණක් ෙනොෙවයි, එදා ගාමීය කර්මාන්තය සඳහා පමණක් සීමා වී සිටි අප අද වන විට ගෙම් කෘෂිකර්මය සඳහාත් සම්බන්ධ ෙවලා එම කටයුතු කර ෙගන යනවා. ඒ වාෙග්ම අෙප් අමාතɕාංශය යටෙත් තිෙබන පුනර්ජීවන අරමුදලින් මුදල් ලබා ෙගන අෙප් ගම් පෙද්ශවලට අවශɕ මාර්ග පද්ධති, විදුලිය, ඒ වාෙග්ම අවශɕ ෙවනත් කටයුතු ඉටු කරනවා.
+
+වි ෙශේෂෙයන්ම ෙම් අවස්ථාෙව් දී මා සඳහන් කරන්නට කැමැතියි, ලංකාෙව් නිෂ්පාදනවල අෙලවිය වැඩි කිරීමට නම් අනිවාර්ෙයන්ම පිට රටින් ෙගන්වන භාණ්ඩවලට බදු වැඩි කිරීමට,
+
+[ගරු ෛවදɕ රාජිත ෙසේනාරත්න මහතා]
+
+2008 ෙදසැම්බර් 05 3251 3252
+
+නැත්නම් පිට රටින් ෙගන්වීම නතර කිරීමට අපට සිදු වන බව. ඒ නිසා අතිගරු ජනාධිපතිතුමා විසින් ෙම් අය වැෙය්දී ෙද්ශීයව නිෂ්පාදනය කරන ෙබොෙහෝ භාණ්ඩ, විෙශේෂෙයන්ම අෙප් අමාතɕාංශය යටෙත් නිෂ්පාදනය කරන භාණ්ඩ පිට රටින් ෙගන්වනවා නම් ඒ සඳහා සියයට 100ක ෙසස් බද්දක් පනවා තිෙබනවා. ඒ අනුව ෙම් වසර තුළ අෙප් නිෂ්පාදනය වැඩි කරන්නට අපි බලාෙපොෙරොත්තු ෙවනවා. ඊට අමතරව කිතුල් වɕාපෘතියක් ඇති කරන්නටත් අපි කටයුතු කර ෙගන යනවා. සම් භාණ්ඩ නිෂ්පාදන වැඩ පිළිෙවළකුත් කියාත්මක කරන්නට අපි කටයුතු කරනවා. ෙම් සියලු වැඩ පිළිෙවළ තුළින් අප බලාෙපොෙරොත්තු වන්ෙන් ෙම් ගාමීය කර්මාන්ත නඟා සිටු වීම පමණක් ෙනොෙවයි, ජනතාවට අවශɕ සියලු ෙද්වල් ලබා දීමයි. මට ලැබී තිෙබන්ෙන් ෙබොෙහොම සුළු ෙව්ලාවක්. ඒ නිසා මා ෙම් අවස්ථාෙව් දී විෙශේෂෙයන්ම ෙම් වසර තුළ කියාත්මක, - ගරු පියසිරි විෙජ්නායක මහතා (மாண்ᾗமிகு பியசிறி விேஜநாயக்க) (The Hon. Piyasiri Wijenayake) ගරු ඇමතිතුමනි, ඔබතුමා විසින් සඳහන් කරන ලද කර්මාන්තවලට අමතරව කුඩා හා මධɕම පරිමාණෙය් ගිනි ෙකළි නිෂ්පාදන කර්මාන්තය තිෙබනවා. ෙම් වන ෙකොට පිට රටින් ගිනි ෙකළි භාණ්ඩ ආනයනය කර තිෙබනවා. ෙම් උත්සව සමෙය්දී පිට රටින් ෙගන්වන ඒ ගිනි ෙකළි භාණ්ඩ ෙවෙළඳ ෙපොළට පැමිණීම නිසා ෙද්ශීය ගිනි ෙකළි කර්මාන්තෙය් බිඳ වැටීමක් ඇති ෙවනවා. ෙම් පිළිබඳව ඔබතුමන්ෙග් පැත්ෙතන් ගන්නා කියා මාර්ගය ෙමොකක්ද?
+
+ගරු එස්. බී. නාවින්න මහතා (மாண்ᾗமிகு எஸ். பி. நாவின்ன) (The Hon. S. B. Nawinne) ගරු මන්තීතුමනි, ඇත්ෙතන්ම ගිනි ෙකළි කර්මාන්තය නම් මට අයිති ෙදයක් ෙනොෙවයි. ෙබොෙහෝ දුරට ගිනි ෙකළි කර්මාන්තය විශාල පරිමාණෙයන් කරන ෙදයක්. ෙකෙසේ ෙවතත්, එවැනි ෙද්වල් පිට රටින් ෙගන්වනවා නම් ඒ සඳහාත් බද්දක් පැන වීමට අපි ෙයෝජනා කරනවා. ෙමොකද, ලංකාෙව් නිෂ්පාදනය කරන්නට පුළුවන් සියලු ෙදයක්ම පිට රටින් ෙගන්වීෙම්දී නිෂ්පාදනය බද්දක් අය කෙළොත් ඔය පිට රටින් එන පමාණයන් සියල්ලක්ම අඩු ෙවනවා. එතෙකොට ලංකාෙව් නිෂ්පාදනය වැඩි ෙවනවා.
+
+අවසාන වශෙයන් 2007 වසර තුළ කියාත්මක කරන ලද වැඩ පිළිෙවළවලට සහෙයෝගය දැක්වීම පිළිබඳව අෙප් අමාතɕාංශෙය් ෙල්කම්තුමා ඇතුළු සියලුම නිලධාරින්ටත්, අමාතɕාංශය යටෙත් ඇති ආයතනවල සභාපතිවරුන්ටත් අමාතɕාංශය ෙවනුෙවන් මා ස්තුතිවන්ත ෙවනවා.
+
+සභාපතිතුමා (தவிசாளர் அவர்கள்) (The Chairman) ස්තුතියි. මීළඟට දිමුතු බණ්ඩාර අබයෙකෝන් මන්තීතුමා. [අ.භා. 1.25] ගරු දිමුතු බණ්ඩාර අබයෙකෝන් මහතා (மாண்ᾗமிகு திᾙத்ᾐ பண்டார அபயேகான்) (The Hon. Dimuthu Bandara Abayakoon) ගරු සභාපතිතුමනි, අමාතɕාංශ 21ක් සම්බන්ධෙයන් කථා කරන්න තිෙබන ෙම් ෙව්ලාෙව් ඒ අමාතɕාංශ 21ම නිෙයෝජනය කරමින් අෙප් ගරු සී.බී. රත්නායක ඇමතිතුමා ඇතුළු ඇමතිවරුන් හතර ෙදනකු පමණ උෙද් සිට ෙම් ෙමොෙහොත වන තුරුම රැඳී සිටියා. එෙහම තත්ත්වයක් තුළයි අපට කථා කරන්න සිද්ධ ෙවලා තිෙබන්ෙන්. විෙශේෂෙයන්ම මම මැදිහත් වන්ෙන් විෙශේෂ කරුණු කිහිපයක් ගැන තරුණ කටයුතු අමාතɕාංශය සම්බන්ධෙයනුත්, තවත් අමාතɕාංශ ෙදකක් සම්බන්ධෙයනුත් කථා කරන්නයි. තරුණ කටයුතු අමාතɕාංශය භාර
+
+ගරු පවිතාෙද්වි වන්නිආරච්චි ඇමතිතුමිය උෙද් සිටම ෙම් ස්ථානෙය් රැඳී සිටිෙය් නැහැ. ගරු සී.බී. රත්නායක ඇමතිතුමාත්, ගරු තිස්ස කරල්ලියද්ද ඇමතිතුමාත් සහ ගරු එස්.බී. නාවින්න ඇමතිතුමාත් අද උෙද් සිටම රැඳී සිටියා. හැබැයි ඒ ඇමතිවරුන්ට ජනාධිපතිවරයාෙග් අය වැෙයන් සිද්ධ ෙවලා තිෙබන ෙද්වල් සම්බන්ධෙයන් අපට සෑහීමකට පත් වන්නට බැහැ. විෙශේෂෙයන්ම ගරු සී.බී. රත්නායක ඇමතිතුමා අෙප් පළාෙත් ඇමතිවරයායි. එතුමාෙග් කථාෙවන් පස්ෙසේ ඇහුවා, ඔබතුමාට දිගටම ඇමති ධුරෙය් ඉන්න පුළුවන් ෙව්විද කියා. එතුමා කිව්ෙව්ත් ඒක නම් කියන්න බැහැයි කියායි. හැබැයි අප හදවතින්ම පාර්ථනා කරනවා, එතුමා වැනි ඇමතිවරුන්ට ඇමති ධුරෙය් රැඳී සිටීමට හැකියාව ලැෙබ්වායි කියා. තිෙබන බාධාවන් අප දන්නවා. වැඩ කරන ඇමතිවරුන්ට අදාළ නිසි තැන ලබා දීම සඳහාත් ආණ්ඩුව පැත්ෙතන් කටයුතු කරන්නය කියන ඉල්ලීම කරමින් මෙග් කථාව ආරම්භ කරනවා.
+
+ගරු සභාපතිතුමනි, මා විශ්වාස කරනවා, තරුණ කටයුතු අමාතɕාංශය සම්බන්ධෙයන් කථා කරද්දී ගරු ඇමතිතුමිය ෙම් අවස්ථාවට සම්බන්ධ ෙව්විය කියා. ෙමම අමාතɕාංශෙය් කාර්ය සාධනය සම්බන්ධෙයන් අපට ලබා දුන්නු ෙපොෙත් පළමු වන පිටුෙව් සඳහන් වනවා, දැක්ම සහ ෙමෙහවර. එහි ෙමෙහම සඳහන් ෙවනවා:
+
+''ජාතික තරුණ පතිපත්තියට අනුගත ෙවමින් ශාරීරික සුවතාවෙයන් හා මානසික සමබරතාවෙයන් යුක්ත වූ ද, විනය ගරුක, ෙද්ශමාමක, නිර්මාණශීලී වූ ද, ජාතික සංවර්ධනයට සකීය දායකත්වයක් ලබා ෙදන, ......... ''
+
+ෙමහිදී මුලිකවම අපට විසඳා ගත යුතු ගැටලු කිහිපයක් තිෙබනවා. ගරු ඇමතිතුමිය ගරු සභාෙව් සිටියා නම් ෙහොඳයි කියලා මම කිව්ෙව් ඒකයි. අෙප් රෙට් විෙශේෂෙයන්ම ෙද්ශීය නිෂ්පාදනයක් ගැන කථා කරනවා; ජාතික ආර්ථිකයක් ගැන කථා කරනවා. අප හැමෙග්ම අරමුණ රට සංවර්ධනය කිරීම නම් රට සංවර්ධනය කිරීෙම් කටයුත්තට අෙප් රෙට් තරුණයා දායක කර ගත යුතුයි. තරුණයන්ෙග් ජීවෙනෝපායන් වැඩිදියුණු කළ යුතුයි. රටක් විධියට අප සංවර්ධනය වනවාද, නැද්ද කියන එක මතයි අප හැෙමෝෙග්ම අනාගතය රඳා පවතින්ෙන්. ඒ නිසා රෙට් අනාගතය තීරණාත්මක මං සන්ධියකට ෙගන යාම සඳහා තරුණයන්ෙග් කාර්ය භාරය ඉමහත් දායකත්වයක් දරනවා. එෙහම දායකත්වයක් දරන්න ඉන්නා තරුණයන් සම්බන්ධෙයන් තරුණ පතිපත්තියක්, තරුණ පඥප්තියක් එළි දක්වා තිෙබනවා, 2007දී. ෙම් ෙමෙහවර පකාශනෙය්ත් ''ජාතික තරුණ පතිපත්තියට අනුගත ෙවමින් ශාරීරික සුවතාවෙයන්.....'' කියලායි කියන්ෙන්. අමාතɕාංශෙය් මූලික අධිෂ්ඨානයත්, අරමුණත් ජාතික තරුණ පතිපත්තියට අනුව කියා කිරීමයි. ඒ නිසා අපට පශ්න කරන්න ඕනෑකම තිෙබනවා ෙම් තිෙබන ජාතික තරුණ පතිපත්තිය කියලා කියන්ෙන් 2007 දී එළි දක්වපු තරුණ පතිපත්තිය ෙන්ද කියලා. ෙමොකද, ඒ සම්බන්ධෙයනුත් අපට ගැටලු කිහිපයක් තිෙබනවා.
+
+2007 ජූලි 01 වැනි දා "රාවය" පුවත් පෙත් පළ වුණු ලිපියක් මා ළඟ ති ෙබනවා. පත්තරය කුමක් වුණත් එම ලිපිය රටටම වටිනා වැදගත් ලිපියක් විධියට සඳහන් කළ යුතුව තිෙබනවා. ෙමම ලිපිෙය් සඳහන් වන විධියට, 2007 ඉදිරිපත් කරපු, එළි දක්වපු ලංකාෙව් ජාතික තරුණ පතිපත්තිය කියලා කියන්ෙන්, හරියටම ඊට අවුරුදු 10කට කලින්, ඒ කියන්ෙන් 1997 ෙදසැම්බර් මාසෙය්දී දකුණු අපිකාෙව් ජාතික තරුණ ෙකොමිෂන් සභාව මඟින් දකුණු අපිකානු රජයට ඉදිරිපත් කරන ලද, ''දකුණු අපිකානු ජාතික තරුණ පතිපත්තිය'' කියන පතිපත්ති මාලාෙව්ම ෙෆොෙටෝ ෙකොපියක්. රෙට් විද්වතුන්, ආචාර්ය මහාචාර්යවරුන් මැදිහත් ෙවලායි ෙම් පතිපත්තිය ඉදිරිපත් ෙකෙරන්ෙන්. ගරු සභාපතිතුමනි, මම ඔබතුමාෙගන් ඉල්ලා සිටිනවා, ෙමහි ලකුණු කර තිෙබන ෙකොටස් හැන්සාඩ් වාර්තාවට ඇතුළත් කරන්නය කියා. මා ඒවා හැන්සාඩ් වාර්තාවට ඇතුළත් කිරීම කිරීම සඳහා සභාගත* කරනවා.
+
+* කථාව අවසානෙය් පළ කර ඇත. உைரயினிᾠதியில் தரப்பட்ᾌள்ளᾐ. Produced at end of speech.
+
+පාර්ලිෙම්න්තුව 3253 3254
+
+2007 දී අෙප් රෙට් ඉදිරිපත් කර තිෙබන්ෙන් එදා දකුණු අපිකාෙව් තරුණයන් නඟා සිටු වීම සඳහා ඉදිරිපත් කර තිෙබන ජාතික තරුණ පතිපත්ති පකාශනයයි. රටවලට අනනɕ වුණු ජාතික, තරුණ ෙහෝ අනික් ඕනෑම පතිපත්තීන් තිෙබන්න ඕනෑකම තිෙබනවා. ඒ නිසා එෙහම පතිපත්තියක් හදද්දී අපි කියන්ෙන් නැහැ, ෙවනත් රටවල්වල ෙද්වල් ආදර්ශයට ගන්න එපාය කියා. පළමු වන වතාවට හදන විට ෙවනත් රටවල්වල පතිපත්ති පකාශන බලා ඒ ෙද්වල් ආදර්ශයට අරෙගන ෙහොඳ ෙද්වල් ඇතුළත් කරලා අපටම අනනɕ වන පතිපත්තියක් හදන එක ෙවනම කාරණාවක්. කාට ෙහෝ කියන්න පුළුවන්, ඒක එෙහමයි කියා. නැහැ. එෙහම ෙනොෙවයි. දකුණු අපිකාෙව් පතිපත්ති පකාශනෙය් තිෙබන පිටු ඒ විධියටම අරෙගන, පිටු පිටින් අරෙගන, ෙඡ්ද පිටින් අරෙගනයි ෙම්ක හදලා තිෙබන්ෙන්. අෙප් ඇමතිතුමිය ඉන්නවා. මම ෙකොටස් කිහිපයක් උපුටා දක්වන්නම්. විෙශේෂෙයන්ම ෙම්ක පටන් ගන්න විටම ෙකොපි කිරීම ආරම්භ ෙවලා තිෙබනවා. ෙකටුම්පත් ෙදෙකහි හැඳින්වීෙම් පළමු ෙඡ්ද ෙමෙසේයි. ලංකාෙව් ජාතික තරුණ පතිපත්තිෙය් ෙම් විධියට තිෙබනවා. “Young people aged between 15-29 years, clearly comprise a substantial proportion of (nearly 30%) the Sri Lankan population. However, due to the previous policies, a significant number of young women and men have not been afforded the opportunities to develop and make use of their full potentials. They have experienced limited and ethnically biased access to education and training, poor housing conditions, limited employment opportunities, high rates of crime and violence and a general disintegration of social networks and communities. In addition, there were no specifically focused programmes to address the needs of young men and women.” ගරු සභාපතිතුමනි, මම උපුටා දක්වන්නම් දකුණු අපිකාෙව් ජාතික තරුණ පතිපත්ති පකාශනෙය් ෙකොෙහොමද පටන් ගන්ෙන් කියලා. “With some 39% of South African society aged between 14 and 35 years, young people clearly comprise a substantial part of South African society. However, due to the policies of past governments, a significant number of young women and men have not been afforded the opportunity to develop their full potential. They have experienced poor housing conditions; limited and racially-biased access to education and training; limited employment opportunities; high levels of crime and violence and a general disintegration of social networks and communities. In addition, the previous government did not develop and specific policies or programmes to address the needs of young men and women.” සභාපතිතුමා (தவிசாளர் அவர்கள்) (The Chairman) ගරු මන්තීතුමා, විනාඩියක් නිශ්ශබ්ද වන්න. ෙම් අවස්ථාෙව්දී ගරු (පූජɕ) උඩවත්ෙත් නන්ද ස්වාමීන් වහන්ෙසේ මූලාසනයට පැමිෙණනවා ඇති.
+
+අනතුරුව නිෙයෝජɕ කථානායකතුමා මූලාසනෙයන් ඉවත් වුෙයන්, ගරු (පූජɕ) උඩවත්ෙත් නන්ද හිමි මූලාසනාරූඪ විය.
+
+அதன்பிறகு, பிரதிச் சபாநாயகர் அவர்கள் அக்கிராசனத்தினின்ᾠ அகலேவ, மாண்ᾗமிகு (வண.) உடவத்ேத நந்த ேதரர் அவர்கள் தைலைம வகித்தார்கள்.
+
+Whereupon MR. DEPUTY SPEAKER left the Chair, and THE HON. (VEN.) UDAWATTE NANDA THERO took the Chair.
+
+ගරු දිමුතු බණ්ඩාර අබයෙකෝන් මහතා (மாண்ᾗமிகு திᾙத்ᾐ பண்டார அபயேகான்) (The Hon. Dimuthu Bandara Abayakoon) ඔබවහන්ෙසේ මූලාසනයට පැමිණීම ගැන අපි වඩාත් සතුටු ෙවනවා. මා කථා කරමින් සිටිෙය් ලංකාෙව් "ජාතික තරුණ පතිපත්තිය" සම්බන්ධෙයනුයි. ලංකාෙව් සහ දකුණු අපිකාෙව් තරුණ පතිපත්ති පකාශනවල ආරම්භක පිටුවල සටහන් වන පළමු වන ෙඡ්ද එක හා සමානයි, වචනයක් ෙදකක් පමණයි ෙවනස් ෙවලා තිෙබන්ෙන්. ඒවාෙය් පළමු ෙඡ්ද ආරම්භ වන්ෙන්
+
+එෙහමයි. එතෙකොට ෙම් ෙපොත පුරාම - පතිපත්ති පකාශනය පුරාම - ෙමවැනි උපුටා දැක්වීම් තමයි තිෙබන්ෙන්. ලංකාෙව් ජාතික තරුණ පතිපත්ති පකාශනය සම්පාදනය කිරීම සඳහා දායක වුණු ආචාර්ය, මහාචාර්යවරුන්ෙගන් “රාවය” පතෙය් පශ්න කර තිෙබනවා, ඇයි ෙම්ක ෙමෙහම වුෙණ් කියලා. ඔවුන් අනියම් විධියට පිළිෙගන තිෙබනවා, “වැරදීමක් සිද්ධ වුණා, අපට එකතු ෙවන්න හම්බ වුෙණ් නැහැ, ෙම්ක ෙමෙහම වුණා නම් වැරදියි” කියලා. ඒ නිසා ලංකාව ෙගොඩ ගැනීම සඳහා සිටින තරුණයන්ෙග් අනාගතය තීරණය කිරීම සඳහා තිෙබන පධාන අමාතɕාංශෙය් මූලික ෙමෙහවර සටහෙන් සඳහන් ෙවලා තිෙබන පතිපත්ති අනුව කියා කරනවා නම් ඒ අයට කටයුතු කරන්න සිද්ධ ෙවලා තිෙබන්ෙන් දකුණු අපිකාෙව් පතිපත්තීන්වලට අනුකූලවයි. ෙම්ක ෙමෙහම ෙවන්න බැහැ. ඒ නිසා රටට -ලංකාවට- ඕනෑකම තිෙබනවා, ලංකාවට අනනɕ වුණු ජාතික තරුණ පතිපත්තියක්. ඒ නිසා නැවතත් ලංකාවට අනනɕ වුණු ජාතික තරුණ පතිපත්තියක් හදන්න. ඇමතිතුමිය අමාතɕ ධුරය දැරූ කාලෙය් ෙනොෙවයි ෙම්ක එළි දැක්ෙවන්ෙන්. හැබැයි ඒක ෙවනස් කරන්න ඕනෑකම තිෙබනවා. සම්පූර්ණෙයන්ම දකුණු අපිකාෙව් ෙකොපියක්. ඔබතුමියෙග්ම අමාතɕාංශය රෙට් ජීවත් වන තරුණයන් විධියට හඳුන් වන්ෙන් අවුරුදු 15 සිට 29 දක්වා අයයි. ඇමතිතුමියත් තවම තරුණ වයෙසේ. අවුරුදු 29ට වඩා ඇමතිතුමියට අවුරුද්දක් ෙදකක් වැඩි ඇති. [බාධා කිරීමක්] ඒ ෙකෙසේ ෙවතත් තරුණ ෙපනුෙමන් යුතු ඇමතිවරියක් නිසාම,- [බාධා කිරීමක්] තරුණයන්ෙග් අභිවෘද්ධිය සඳහා ලංකාවට අනනɕ වුණු තරුණ පතිපත්තියක් තිෙබන්න ඕනෑකම තිෙබනවා. ඇමතිතුමියෙග් එකඟතාව ඒ සඳහා තිෙබනවා. ෙම්කට ඇමතිතුමිය සම්බන්ධ වු ෙණ් නැහැ. හැබැයි දැන් තිෙබන තරුණ පතිපත්තිය ඕක. ඒ නිසා ගරු ඇමතිතුමියනි, ෙමන්න ෙම්ක ෙවනස් කරන්න ඕනෑ. ඒ ෙපොෙත් තිෙබනවා, "ජාතික තරුණ පතිපත්තියට අනුගත ෙවමින්" කියා. ඒක එෙහම ෙවන්න බැහැ. ජාතික පතිපත්තියක් අපි තවම හදලා නැහැ. "දකුණු අපිකාෙව් තරුණ පතිපත්තියට අනුගත ෙවමින්" කියා කිව්වා නම් අපිට ඒකට එකඟ වන්න පුළුවන්. ෙමොකද, ඇමතිතුමියලා ලියා තිෙබන්ෙන් දකුණු අපිකාෙව් එෙක් විධියට. අමාතɕතුමිය ඔළුව ෙහොල්ලමින් ඒක අනුමත කරනවා. ෙබොෙහොම ස්තුතියි. ඒක ෙවනස් ෙවන්න ඕනෑකම තිෙබනවා. එම නිසා ෙම් ෙපොත නිර්මාණය ෙවලා තිෙබන්ෙන් ඔබතුමියෙග් අනුදැනුම ඇතිවයි කියන එක මම විශ්වාස කරන්ෙන් නැහැ. ඒ කියන්ෙන් ෙම් ෙපොත වැඩක් නැහැ. ෙම් අමාතɕාංශෙය් කාර්ය භාරය, වැඩසටහන්, 2009 සැලසුම් ෙම් ෙපොෙත් තිෙබනවා. හැබැයි මූලිකව පටන් අරෙගන තිෙබන්ෙන්ම වරද්දා ෙගන. ඒ මත තමයි සියල්ලක්ම කරන්ෙන් කියලායි තිෙබන්ෙන්. ඒ නිසා අකැමැත්ෙතන් වුවත් අපට කියන්නට සිදු වන්ෙන් ෙම් ෙපොත පැත්තකට දමන්න ඕනෑ ෙපොතක් කියලායි. ඒ නිසා ගරු ඇමතිතුමියනි, ඒක නිවැරදි කරන්න. ඔබතුමිය ෙම් අමාතɕ ධුරෙය් ඉන්න කාලය තුළ තරුණ පතිපත්තියක් හදන්න.
+
+ඒ වාෙග්ම අපි පක්ෂයක් විධියට ෙයෝජනා කරනවා, තරුණයා නඟා සිටු වීම -
+
+ගරු පවිතාෙද්වි වන්නිආරච්චි මහත්මිය (තරුණ කටයුතු අමාතɕතුමිය)
+
+(மாண்ᾗமிகு (திᾞமதி)பவித்திராேதவி வன்னிஆரச்சி - இைளஞர் அᾤவல்கள் அைமச்சர்)
+
+(The Hon. (Mrs.) Pavithra Devi Wanniarachchi - Minister of Youth Affairs)
+
+ඔබතුමන්ලාෙග් සහෙයෝගෙයන් හවුල් ෙවලා හදමු. ගරු දිමුතු බණ්ඩාර අබයෙකෝන් මහතා (மாண்ᾗமிகு திᾙத்ᾐ பண்டார அபயேகான்) (The Hon. Dimuthu Bandara Abayakoon) අනිවාර්යෙයන්ම. ගරු බිමල් රත්නායක මහතා (மாண்ᾗமிகு பிமல் ரத்நாயக்க) (The Hon. Bimal Ratnayake) ඇමතිතුමිය ට එකඟතාවක් අෙප් තිෙබනවා.
+
+[ගරු දිමුතු බණ්ඩාර අබයෙකෝන් මහතා]
+
+2008 ෙදසැම්බර් 05 3255 3256
+
+ගරු පවිතාෙද්වි වන්නිආරච්චි මහත්මිය (மாண்ᾗமிகு (திᾞமதி) பவித்திராேதவி வன்னிஆரச்சி) (The Hon. (Mrs.) Pavithra Devi Wanniarachchi) අෙප් පාර්ථනය තිබුෙණ් හැම දාම ඒක තමයි. ඒ නිසා එකතු ෙවලා හදමු.
+
+ගරු දිමුතු බණ්ඩාර අබයෙකෝන් මහතා (மாண்ᾗமிகு திᾙத்ᾐ பண்டார அபயேகான்) (The Hon. Dimuthu Bandara Abayakoon) අපි ඔබතුමියට පැහැදිලිවම සහෙයෝගය ෙදනවා. තරුණයන් නඟා සිටු වීම සඳහා අමාතɕාංශ ගණනාවක් තිෙබනවා. එක කාල යකදී තරුණ කටයුතු හා කීඩා කියන ෙකොටස් ෙදක එකට තිබුණා. දැන් කීඩා කියන එක ෙම්ෙකන් හැලිලා තිෙබන නිසා තරුණයන් නඟා සිටු වීම සඳහා කරන්න තිෙබන අෙනකුත් වැඩසටහන් අතෙර් ෙම් කීඩාව කියන එකත් පවත්වා ෙගන යන්න සිදුව තිෙබනවා. ඒ කියන්ෙන් ඔබතුමියෙග් අමාතɕාංශෙයන් විතරක් ෙනොෙවයි, ෙතොණ්ඩමන් ඇමතිතුමාෙග් -එතුමා ඇවිත් ඉඳලා සභා ගර්භෙයන් ඉවත්ව ගියා.- තරුණ අභිවෘද්ධි හා සමාජ ආර්ථික සංවර්ධන අමාතɕාංශය තිෙබනවා. දැන් තරුණ අභිවෘද්ධි කියලා කෑල්ලක් දමා තිෙබනවා. ඒකට සමාජ ආර්ථික සංවර්ධන අමාතɕාංශය අමුණලා තිෙබනවා. තරුණයන් නඟා සිටුවීම සඳහා ආයතන කීපයක් එතුමාට සම්බන්ධ කරලා තිෙබනවා. හැබැයි පසු ගිය කාලෙය් එතුමා වැඩ කටයුතු කරපු විධිය දිහා බැලුවාම වතු ආශිතව එතුමාෙග් ෙද්ශපාලන මැදිහත් වීම ඉලක්ක කර ෙගන ඉදිරියට යෑම සඳහා යම් මැදිහත් වීමක් පමණයි එතුමාෙගන් සිද්ධ වන්ෙන්. තරුණයන් නඟා සිටු වීෙම් වැඩ පිළිෙවෙළේ ෙකොටසක් එතැන. තරුණයන් නඟා සිටු වීෙම් වැඩ පිළිෙවෙළේ ෙකොටසක් ඔබතුමිය ළඟ. තරුණයන්ට අනිවාර්යෙයන් අතɕවශɕ කීඩාව, ගාමිණී ෙලොකුෙග් අමාතɕතුමා ළඟ. ෙම් ෙකොටස් තුනම එකතු වුණා නම් පමණයි තරුණයන්ෙග් අනාගතය සාර්ථකව නිවැරදි දිසාවට අරන් යන්න පුළුවන්කම තිෙබන්ෙන්. ඒ නිසා එවැනි විදɕාත්මක ෙපළ ගැස්මකට ෙම් අමාතɕාංශය පත් කරන්නත් ඕනෑකම තිෙබනවා. අප විශ්වාස කරනවා, ඒ ඇමතිවරු ෙදෙදනා සහ ඔබතුමිය අතරින් ඒක ෙමෙහයවන්න වඩා සුදුසුකම තිෙබන්ෙන් ඔබතුමියටයි කියලා. ඒ නිසා ඔබතුමියෙග් අමාතɕ ධුරය ඒ වාෙග්ම ෙද්ශපාලන ඉතිහාසය හා ඔබතුමියට තිෙබන ශක්තිය පාවිච්චි කරලා ෙම් ෙකොටස් තුන එක තැනකට ගන්න අදාළ බලපෑම කරන්නය කියන එකත් අපි මතක් කර සිටිනවා. ඒ සඳහා අෙප් පැත්ෙතන් ඔබතුමියට යමක් කරන්න පුළුවන්කම තිෙබනවා නම් අපි ඒ සඳහාත් සහෙයෝගය ෙදනවා. නැත්නම් ෙම්ක හදන්න බැහැ, වැඩක් නැහැ, ඇමතිතුමියනි. ෙමොකද, පසු ගිය අවුරුද්දට වඩා යම් කිසි මුදල් පමාණයක් ඔබතුමියට ෙවන් ෙවලා තිෙබනවා. ඒක අපි පිළිගන්නවා. හැබැයි එෙහම කිව්වාට, කරන්න පුළුවන් කියලා හිතුවත්, එෙහම කරන්න පුළුවන්කමක් නැති බවත් ෙපෙනනවා.
+
+විෙශේෂෙයන්ම අපි ජාතික තරුණ ෙසේවා සභාව ගනිමුෙකෝ. අමාතɕතුමිය පිළිගන්නවා, ජාතික තරුණ ෙසේවා සභාව හරහා රට සම්බන්ධ ෙවලා තිෙබන ආයතනවලින් අපි දන්න, රට දන්න, ෙලෝකය දන්න විශාල පිරිසක් එළියට ආවා; ගායක ෙයෝ එළියට ආවා; නළු නිළිෙයෝ එළියට ආවා කියලා. ඒ ෙබල්වුඩ් ගම්මානය හරහායි. දැන් එෙහම ෙකෙනක්-
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු මන්තීතුමා, ඔබතුමාට තව විනාඩියක් තිෙබනවා.
+
+ගරු දිමුතු බණ්ඩාර අබයෙකෝන් මහතා (மாண்ᾗமிகு திᾙத்ᾐ பண்டார அபயேகான்) (The Hon. Dimuthu Bandara Abayakoon) අෙප් හාමුදුරුවෙන් මට විනාඩි පහෙළොවක් තිබුණා. හැබැයි ඒ තරම් ෙව්ලාවක් ගත වුෙණ් නම් නැහැ.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ඒ විනාඩි පහෙළොෙවන් දහහතරක් දැන් ඉවරයි. ගරු දිමුතු බණ්ඩාර අබයෙකෝන් මහතා (மாண்ᾗமிகு திᾙத்ᾐ பண்டார அபயேகான்) (The Hon. Dimuthu Bandara Abayakoon) තව විනාඩි ෙදක තුනක් කරුණාකර ඉල්ලලා ෙදන්න. මම කියා ෙගන යන්නම්. ෙම් රෙට් ෂර්ලි ෛවජයන්තලා, රූකාන්ත ගුණතිලකලා, චන්දෙසේන ෙහට්ටිආරච්චිලා වාෙග් අපි දන්නා අය විශාල පමාණයක් ෙබල්වුඩ් ගම්මානය තුළින් එළියට ආවා. එෙහම තැනකට දැන් යැෙවන්ෙන් නැහැ. ඒකට ෙහේතුව ගත්ෙතොත් එෙහම ඒ අමාතɕාංශවලට ඒ ආයතනවලට ලබා දීලා තිෙබන පතිපාදන මුදල ඉතාම ෙසොච්චමක් ෙවලා තිබීම නිසායි.
+
+අෙනක් අතට ජාතික තරුණ ෙසේවා සභාව හරහා ෙමෙහයවන ෙයෞවන සමාජවල සංවර්ධනය ගැන ඒ වාෙග්ම ෙයෞවන සමාජ නිලධාරින් කරන කාර්ය භාරයට ඔවුන්ෙග් උසස් වීම් නිසි විධියට ලැෙබනවාද, ඒ උසස් වීම් ලබා දීම සඳහා අද ෙද්ශපාලනය සම්බන්ධ ෙවලා තිෙබනවාද කියා ෙසොයා බලන්න ඕනෑ. එෙසේ වැරදි සිදු ෙවලා තිෙබනවා නම් ෙම් වැරදි නිවැරදි කරන්න ඕනෑකම තිෙබනවා.
+
+2006 වර්ෂෙය් මහනුවර දිස්තික්කෙය් පැවැත් වුණු ජාතික ෙයොවුන් ෙකොඩි දිනෙය් ලබා ගත් මුදල් ෙම් වන තුරුත් තරුණ තරුණියන්ට ලබා දීලා නැහැ. ඒ මුදල් සම්බන්ධෙයන් ෙවච්ච ෙදයක් නැහැ. ෙම් සම්බන්ධෙයන් ඔබතුමියෙග් අවධානය ෙයොමු කරවනවා. අවුරුදු 20ක් තිස්ෙසේ සහකාර අධɕක්ෂවරියක් මහනුවර දිස්තික්කෙය් අධɕක්ෂවරිය විධියට කටයුතු කරනවා. එතුමියෙග් අකමිකතා රාශියක් තිෙබනවාය කියලා කියනවා. ෙම් සම්බන්ධෙයන් ෙසොයා බලන්න. ෙසේවක නිලධාරි මහත්වරුන් ඉන්ෙන් දැඩි කනස්සල්ෙලන්. ඒ නිසා ඒ වැරදි නිවැරදි කරන්න අමාතɕතුමිය උත්සාහ කරන්න. වහාම ෙම් මුදල් ලබා ෙදන්නය කියා සභාපතිතුමා නිර්ෙද්ශ කර තිෙබනවා. ඒ තත්ත්වය තුළත් ෙමය නිවැරදි ෙවලා නැහැ. ඒ වාෙග්ම ගරු ඇමතිතුමියනි, අෙප් රෙට් ලක්ෂ 53ක් පමණ තරුණ අය සිටිනවා. ඒ වාෙග්ම ශම බලකායට වර්ෂයකට 1,50,000ක් විතර අලුෙතන් එකතු ෙවනවා. හැබැයි ෙම් ශම බලකායට එකතු වන තරුණයන්ෙගන් නැත්නම් සමස්ත තරුණයන්ෙගන් සියයට 20ක් විතර විරැකියාෙවන් ෙපෙළන පිරිසක් බවට පත් ෙවලා සිටිනවා. උසස් අධɕාපනය ලැබූ විශාල පිරිසක්, සාමානɕ ෙපළ සමතුන්ෙගන් සියයට 6.4ක් පමණ විරැකියාෙවන් ෙපෙළනවා. ඒ වාෙග්ම උසස් ෙපළ සහ විශ්වවිදɕාල සුදුසුකම් ලැබූ උපාධිය තිෙබන උදවියෙගන් සියයට 11ක් විරැකියාෙවන් ෙපෙළන තත්ත්වයට පත් වී තිෙබනවා.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු මන්තීතුමනි, ඔබතුමා වැඩිපුර විනාඩියක් අරෙගන තිෙබනවා.
+
+ගරු දිමුතු බණ්ඩාර අබයෙකෝන් මහතා (மாண்ᾗமிகு திᾙத்ᾐ பண்டார அபயேகான்) (The Hon. Dimuthu Bandara Abayakoon) මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, මට විනාඩියක් ලබා ෙදන්න. ලංකාෙව් සංවර්ධනය සඳහා ෙම් උපාධිධාරින්, හැකියාවන් තිෙබන පුද්ගලයන් දායක කර ෙගන අමාතɕතුමියෙග් අමාතɕාංශෙයන් තරුණයන් සංවර්ධනය කිරීම සඳහා නිශ්චිත පතිපත්තියක් හදලා රට සංවර්ධනය කිරීෙම් දිසාවට ඔවුන් ෙමෙහයවන්නය කියන ඉල්ලීමත් කරනවා.
+
+ගරු අමරසිරි ෙදොඩන්ෙගොඩ ඇමතිතුමා ෙම් ගරු සභාවට ආවා වාෙග් දැක්කා. බන්ධනාගාර ෙහද නිලධාරි සංගමය ඉදිරිපත් කරපු කරුණු කාරණා රාශියක් ඇමතිතුමාෙග් අවධානයට ෙයොමු කරනවා. විෙශේෂෙයන්ම ෙසෞඛɕ ෙදපාර්තෙම්න්තුව සඳහා ඔවුන්
+
+පාර්ලිෙම්න්තුව 3257 3258
+
+අනුයුක්ත කරන්න කියන ඉල්ලීම සෑෙහන කාලයක් තිස්ෙසේ සිදු ෙකරුණත්, ෙම් වන ෙතක් ඔවුන් බන්ධනාගාරයට අනුයුක්ත ෙවලා කටයුතු කරන නිසා ඔවුන්ට පැන නැඟුණ ගැටලු ගණනාවක් ඉදිරිපත් ෙවලා තිෙබනවා. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, ඔබවහන්ෙසේෙග් අවසරය පරිදි මම ෙම් ලිපි ෙදක හැන්සාඩ් වාර්තාවට ඇතුළත් කිරීම සඳහා සභාගත* කරනවා.
+
+මූලාසනාරූඪ ෙගෞරවණීය ස්වාමීන් වහන්ස, අවසාන වශෙයන් සංස්කෘතික කටයුතු අමාතɕාංශය සම්බන්ධෙයන් වචනයක් කිව යුතුයි. ෙම් මෑතකදී ෙකොළඹ ෙකෞතුකාගාරෙය් තරප්පු ෙප්ළියට අලුෙතන් carpet එකක් දැම්මා. ෙම් carpet එක තරප්පුවට වඩා කුඩා නිසා ෙමොකක්ද කෙළේ? මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, අපි නම් කරන්ෙන් ෙලොකු carpet එකක් ෙගනැල්ලා දමන එකයි. තරප්පුව ෙලොකු නම් carpet එක ෙපොඩි නම් carpet එක ෙලොකු කරනවා. ෙලොකු carpet එකක් ෙගනැල්ලා දමනවා. නමුත් සිද්ධ කෙළේ ෙමොකක්ද? එතැන ඉන්න නිලධාරින් කෙළේ ෙමොකක්ද? මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, carpet එෙක් පමාණයට තරප්පු ෙප්ළිය කැපුවා.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) මහදැනමුත්තාෙග් වැඩක් වාෙගයි. ගරු දිමුතු බණ්ඩාර අබයෙකෝන් මහතා (மாண்ᾗமிகு திᾙத்ᾐ பண்டார அபயேகான்) (The Hon. Dimuthu Bandara Abayakoon) ෙකොළඹ ෙකෞතුකාගාරෙය් තරප්පු ෙප්ළිෙය් ඓතිහාසික වටිනාකම ගැන ෙහොඳට දන්නා මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, කල්පනා කර බලන්න. ඒක ඓතිහාසික තරප්පුවක්. ඒක විනාශ වුණා. පසු ගිය දවස්වල -ඔබ වහන්ෙසේත් දන්නවා- ෙකෞතුකාගාරෙය් වහලය කැඩිලා කාමර ෙතමිලා එහි වටිනා කියන වස්තූන් විනාශ වුණා. ෙමවැනි නිලධාරින් කටයුතු කරන ෙකෞතුකාගාරයක ඒ වටිනා කියන සම්පත්වලට ෙමොනවාද වන්ෙන් කියන එක ගැන අපිට කථා කරන්න සිද්ධ ෙවනවා. කථා කරන්න ෙගොඩක් කරුණු කාරණා තිබුණත් කාල ෙව්ලාව නැහැ. ෙම් සියලුම කාරණා සම්බන්ධෙයන් ඇමතිවරුන්ෙග්, රෙට් අවධානය ෙයොමු ෙවලා ෙම් අමාතɕාංශ හරහා නිවැරදි දිශාවකට රටම ගමන් කරවන්න අමාතɕාංශවලින් ඔබට ලැබුණ ෙම් අඩු මුදල් පමාණය ෙහෝ පාවිච්චි කර යමක් කරන්න මැදිහත් වන්නය කියන ඉල්ලීම කරමින් මම නිහඬ ෙවනවා. ෙබොෙහොම ස්තුතියි.
+
+*සභාෙම්සය මත තබන ලද ලිපි: சபாபீடத்தில் ைவக்கப்பட்ட கᾊதங்கள் : Letters tabled : ෙකොපි කිරීම ඇරෙඹන්ෙන් හැඳින්වීෙම් සිටමය. ෙකටුම්පත් ෙදෙකහි හැඳින්වීෙම් පළමු ෙජ්ද ෙමෙසේය;
+
+“Young people aged between 15-29 years, clearly comprise a substantial proportion of (nearly 30%) the Sri Lankan population. However, due to the previous policies, a significant number of young women and men have not been afforded the opportunities to develop and make use of their full potentials. They have experienced limited and ethnically biased access to education and training, poor housing conditions, limited employment opportunities, high rates of crime and violence and a general disintegration of social networks and communities. In addition, there were no specifically focused programmes to address the needs of young men and women.”
+
+ජාතික තරුණ පතිපත්තිය (ලංකාව) 7.8 පිටු “With some 39% of South African society aged between 14 and 35 years, young people clearly comprise a substantial part of South African society. However, due to the policies of past Governments, a significant
+
+number of young women and men have not been afforded the opportunity to develop their full potential. They have experienced poor housing conditions; limited and racially-biased access to education and training; limited employment opportunities; high levels of crime and violence and a general disintegration of social networks and communities. In addition, the previous Government did not develop and specific policies or programmes to address the needs of young men and women.”
+
+ජාතික තරුණ පතිපත්තිය (ද. අපිකාව 1997) යන්න ෙයදීම හැර ෙම් ෙජ්ද ෙදෙකහි කිසිදු සංයුක්ත ෙවනස්කමක් දක්න ට නැත.
+
+ලංකාෙව් ෙකටුම්පතින් 11 වැනි පිටුෙව් (ලංකාෙව්) තරණ තරුණියන්ට බලපාන ඓතිහාසික හා සමකාලීන ගැටලු ෙමොනවාද යන්න පැහැදිලි කරයි. ඒවා නම්,
+
+1. ජනසංඛɕාත්මක පැතිකඩ. 2. අසමාන අධɕාපනය හා පුහුණුව 3. රැකියා වියුක්තිය හා ඌන රැකියා වියුක්තිය 4. ෙසෞඛɕ හා ෙරෝගී තත්ත්වයන් 5. ෙපොදු තීරණ ගැනීෙම් කියාවලියට සහභාගිවීමට ඇති පමාණවත්
+
+ෙනොවන අවස්ථා 6. අපරාධ හා පචණ්ඩත්වය 7. විෙනෝදාංශ හා නිර්මාණාත්මක කාර්යයන් සඳහා පමාණවත් ෙනොවන
+
+පහසුකම් 8. මදɕසාර හා මත්දවɕ ගැනීම යනාදියයි. පුදුමයකට ෙමන් අෙප් තරුණ පතිපත්තියට 2007 දී එකතු වන ෙමම ඓතිහාසික හා සමකාලීන ගැටලුවලින් 1, 2, 3, 4 හා 6 යන ඒවා. 1997 දී සකස් කළ ද. අපිකානු ෙකටුම්පෙත් සඳහන් ඓතිහාසික හා සමකාලීන ගැටලු මය.
+
+ලංකාෙව් ෙකටුම්පෙත්, 28 වැනි පිටුෙව් තරුණ තරුණියන්ෙග් අවශɕතා, අභිෙයෝග හා ඔවුන්ට ඇති අවස්ථා සලකා බැලීමට බලාත්මක උපාය මාර්ග සකස් කිරීෙම් වැදගත්කම ජාතික තරුණ පතිපත්තිය විසින් පිළිගැෙනන බව කියයි. එම පධාන උපාය මාර්ග ක්ෙෂේත පිළිබඳව ලංකාෙව් ෙකටුම්පෙත් සඳහන් වන්ෙන් ෙමෙසේය;
+
+“The NYP recognizes the importance of formulating effective strategies to address the needs, challenges and opportunities facing young men and women. The key strategic areas are as follows;
+
+a. Education and training b. Health c. Welfare and community development d. Economic participation e. Safety, security and justice f. Sports and recreation g. Environment and tourism and h. Arts and culture i. Science and technology” ජාතික තරුණ පතිපත්තිය (ලංකාව) 28 පිටුව ආශ්චර්යයකට ෙමන්, ද. අපිකානු ෙකටුම්පෙත් උපාය මාර්ග ක්ෙෂේත ද සකල විධ අයුරින්ම ඊට සමානය. ෙම් බලන්න:
+
+“The National Youth Policy recognizes the need for substantial. Informed and practical strategies which address the major needs. Challenges and opportunities facing young women and men. To this end. The following sectoral strategies are described.
+
+a. Education and training b. Health c. Economic participation d. Safety, security and justice e. Welfare and community development f. Sports and recreation g. Arts and culture h. Environment and tourism and i. Science and technology”
+
+ජාතික තරුණ පතිපත්තිය (ද. අපිකාව)
+
+[ගරු දිමුතු බණ්ඩාර අබයෙකෝන් මහතා]
+
+* කථාව අවසානෙය් පළ කර ඇත. உைரயினிᾠதியில் தரப்பட்ᾌள்ளᾐ. Produced at end of speech.
+
+2008 ෙදසැම්බර් 05 3259 3260
+
+ලංකාෙව් ෙකටුම්පෙත් 45 පිටුෙව් සඳහන් ජාතික තරුණ රැකියා උපාය මාර්ග පිළිබඳ පරිච්ෙඡ්දය ද, 48 පිටුෙව් සඳහන් ජාතික තරුණ වɕවසාය සංවර්ධන පුෙරෝගාමීත්වය පිළිබඳ පරිච්ෙජ්දය ද, 52 පිටුෙව් සඳහන් ලංකා ෙපොලිස් ෙසේවෙය් කාන්තා හා තරුණ කවුළුව ශක්තිමත් කිරීම පිළිබඳ පරිච්ෙජ්දය ද ද. අපිකානු ෙකටුම්පෙතහි වචනෙයන් වචනය උපුටා ගැනීමකි. මෙග් අංකය : ෙහද/වැව/ෙපොලිස්/01-08 දිනය : 2008.11.20 ෙපොලිස් ස්ථානාධිපතිතුමා, ෙපොලිස් ස්ථානය, ෙබොරැල්ල. ෙබොරැල්ල ෙපොලිස් ස්ථානාධිපතිතුමනි,
+
+වැලිකඩ බන්ධනාගාර ෙරෝහෙල් ෙසේවය කරන ෙහද නිළධාරින්ෙග්
+
+ජිවිතාරක්ෂාව සහ පහත සඳහන් දූෂණ පිළිබඳව පැමිණිලි කිරීම 1. බන්ධනාගාර ෙරෝහෙල් කාර්යයභාර ෛවදɕ නිළධාරීතුමියෙග්
+
+කාර්යාලෙයන් ෙසේවයට ෙයොදවා සිටින ෙප්-25652 වසන්ත දිසානායක නම් සිරකරු 2008.11.16 වන දින රහෙසේ ජංගම දුරකථනයක් සගවා තබාෙගන එයින් කතා කරමින් සිටියදී එදින රාති ෙසේවෙය් ෙයදිසිටි ෙහද නිළධාරීන්ෙග් දැනුම්දීම අනුව රාතී ෙසේවා ෙජ්ලර්-ෛමතීපාල මහතා විසින් ප.ව. 9.45ට පමණ අල්ලාෙගන ෙරෝහල් ෙදොරටු ෙපොෙත් අදාළ සටහන් ෙයොදා පැමිණිලි කරන ලදි. භාවිතා කරන ලද සිම් අංකය සහ අන්තිමට ලබාගත් සහ ලැබුණු දුරකථන පණිවුඩ අංක අප සතුව ඇත. 2. ඉහත ෙහද නිළධාරීන් විසින් ෙමම විෙශේෂ සිදුවීම එම ෙව්ලාෙව්ම
+
+සංගමෙය් ෙල්කම්වරයා වන මාහට දන්වා සිටිෙමන් අනතුරුව සුදුසු කටයුතු සඳහා වහාම ජංගම දුරකථන පණිවුඩයක් මගින් බන්ධනාගාර ෙකොමසාරිස් ෙජනරාල්තුමාට දන්වා සිටිෙය් ෙමම තත්වය ෙහද නිළධාරීන් වන අපෙග් ආරක්ෂාව පිළිබඳව බරපතල බලපෑමක් ඇති කරවන බැවිනි. 3. විෙශේෂත්වය වනුෙය් ඉහත සිරකරු ෙරෝගි සිරකරුවකු ෙලස හඟවා
+
+සම්පූර්න දඩුවම් කාලයම එනම් වසර ගණනාවක්ම ෙරෝහල් වාට්ටුවක රඳවාෙගන සිටීමයි. ෙමොහු මධුෙම්හය සඳහා ඉන්සියුලින් පතිකාර ගන්නා නමුත් කිසිදු ෙරෝග තත්වයක් තිෙබන්නකු ෙනොෙව්. 4. බන්ධනාගාර ෙරෝහෙල් ෙජ්ලර් වරයාෙග්ද අනුදැනුම සහිතව ඇඳ-
+
+ඉහපතක් ද සහිතව ෙරෝගිෙයකු ෙලස හඟවා රඳවාෙගන සිටින ෙමම සිරකරු කාර්යභාර ෛවදɕ නිළධාරී කාර්යා ලෙය් කාර්යාල-සහායක කටයුතු සඳහා ෙයොදාෙගන සිටිනුෙය් ආයතනෙය් පරිපාලන කටයුතු වලට පබල බලපෑමක්ද ඇතිකරවමින්ය. ආයතනෙය් රජෙය් පත්වීමක් සහිත කාර්යාල-සහායක නිළධාරිෙයකු සිටියදී ෙමම සිරකරුද ෙයොදෙගන සිටීම ගැටලු සහගතය. 5. ෙමම තත්වය සියලුම බන්ධනාගාර නීතිරීති උල්ලංඝණය කිරිමකි. 6. විෙශේෂත්වය වනුෙය් ෙමොහුට ඕනෑම ෙව්ලාවක ෙහද නිළධාරීන්ෙග්
+
+අනුදැනුමක් ෙහෝ අවසරයක් ෙනොමැතිව වාට්ටුෙවන් පිටත ෙරෝහෙල් ඕනෑම තැනක යාමටත් සියලුම ලියකියවිලි සමග කටයුතු කිරීමටත් වාට්ටුවල වැඩ කරන ෙවනත් සිරකරුවනට අනියම් ආකාරෙයන් නිෙයෝග හා උපෙදස් දීමට පවා ඉඩ හැර තිබීමත්ය. 7. 2008.04.16 වන දින ෙකොළඹ බන්ධානාගාරවල පරිපාලන නිළධාරීන්, අප සංගමය හා බන්ධානාගාර ෙකොමසාරිස්-පාලන ධනසිංහ මහතාද සමග පැවැති සාක්ච්ඡාෙව්දී ෙමෙසේ ඉන්සියුලින් පතිකාර සඳහා පමණක් සම්පූර්න සිරදඩුවම් කාලයම ෙරෝහල් ගතකරෙගන සිටින සිරකරුවන් සාමානɕ සිරකරුවන් ෙලස රඳවාෙගන අදාල පතිකාර ලබාදීම පිටත බන්ධානාගාරවල සිදුකළහැකි බැවින් අප සංගමය විසින් ඉදිරිපත් කරනු ලැබූ ෙයෝජනාව පිළිෙගන ෙවනත් සිරකරුවන් මාරු කරනු ලැබුවද ෙමම සිරකරු විෙශේෂ අනුගහය මත රඳවාගනු ලැබීය. 8. බන්ධානාගාර නීති රීති අනුව එහි ඕනෑම තනතුරක් දරන නිළධාරියකු
+
+විසින් ෙවනත් නිළයක් අෙගෞරවයට, අපකීර්තියට ෙහෝ අපහසුතාවයට පත්වන ෙලස සිරකරුවන් ෙයොදෙගන තම නිළෙය් අණසක භාවිතා කිරීම අ පෙග් දැනුම අනුම බරපතළ වරදකි. 9. බන්ධානාගාර ෙරෝහෙල් කාර්යභාර ෛවදɕ නිළධාරි ෛවදɕ වීරසිංහ
+
+මහත්මියද තමා යටෙත් සිටින සිරකරුවන්ට ෙහද නිළධාරි තනතුර පිළිබඳව වැරදි වැටහීම් ඇතිවන ආකාරෙයන් පමණක් ෙනොව නිසි අවසරයක් ෙනොමැතිව ෙහද නිළධාරීන් භාරෙය් තිෙබන රාජකාරි ෙපොත්පත් ෙහෝ ෙල්ඛණ පිළිබඳව කටයුතු කළ හැකි බවට ෙත්රුම් යන ආකාරෙයන් සිරකරුවන් ෙයොදාගන්නා බව ෙම් වන විට තහවුරු වී තිෙබ්.
+
+10. ෙම් වන විටත් ෙහද නිළධාරීන්ෙග් වෘත්තීය කටයුතු හා සම්බන්ධව
+
+ෙහද නිළධාරීන් විසින් භාවිතා කරනු ලබන: * අනියම් නිවාඩු ඉල්ලුම් කිරීෙම් ෙපොත * විෙව්ක නිවාඩු ඉල්ලුම් කිරීෙම් ෙපොත ෙමම ෙපොත්වල වසර 3-4ක්
+
+පුරා ෙහද නිළධාරීන් ලබාගත් නිවාඩු විස්තර අඩංගුය. * ෙහද නිළධාරීන් දිනපතා ෙසේවෙය් ෙයදීම සඳහා පධාන ෙහද
+
+නිළධාරියා විසින් පවත්වා ගනු ලබන ෙපොත් * ෙහද නිළධාරීන් විසින් පධාන ෙහද නිළධාරියා මගින් කාර්යභාර
+
+ෛවදɕ නිළධාරිතුමිය ෙවත ඉදිරිපත් ෙකෙරන බරපතල සිදුවීම් පිළිබඳ කරුණු සටහන්ව ඇති පැමිණිලි ෙපොත ආදි සියලුම ඉතා වැදගත් කරුණු අඩංගු ෙපොත් ෛවදɕ වීරසිංහ
+
+මහත්මිය විසින් අත්අඩංගුවට ගත් බව හා සමහර ෙපොත්-පත් ඇය ෙවත ඉදිරිපත් කළ පසු අතුරුදහන් වී යයි පධාන ෙහද නිළධාරී කුරුප්පු මහතා විසින් පැවසීම ඉතාම බරපතල තත්වයකි. 11. ෙමම ආයතනය වසර ගණනාවක් පුරා දූෂිත තත්වෙයන් පවත්වා
+
+ගැනීම නිසාම වෘත්තීය ෙහද නිළධාරීන් ෙලස අපහට මුහුණදීමට සිදුවූ නින්දා සහගත තත්වය ෙහේතුෙකොට ෙගන අප සංගමය ෙමම තත්වය නිවැරදි කිරීම ෙවනුෙවන් ගරු අධිකරණ ෙල්කම්තුමා, බන්ධනාගාර ෙකොමසාරිස් ෙජනරාල්තුමා ෙමන්ම එදිෙනදා සිදුවන දූෂිත තත්වයන් පිළිබඳව බන්ධානාගාර ෙකොමසාරිස්-කියාකාරී ෙකනත් පනාන්දු මහතාහට ද පැමිණිලි ඉදිරිපත් කිරීම ෙහේතු ෙකොටෙගන අප සංගමෙය් කියාකාරීන් හා ෙමම දූෂිත කටයුතු සඳහා අවනතව කටයුතු ෙනොකරන ෙහද නිළධාරීන්ට දිනපතාම අභූත ෙචෝදනා ඉදිරිපත් කිරීමත් ඔවුන් ෙසේවෙය් ෙයදී සිටියදී විවිධ සිදුවීම් උවමනාෙවන්ම ඇතිකරවමින් දුෂ්කරතාවයට පත් කරවීමත් ෙම් සඳහා සිරකරුවන් පවා උපෙයෝගී කරගැනිමත් බරපතල සිදුවීම්ය. 12. බන්ධානාගාරතුළ ෙසේවය කරමින් සිටින විට ෙහද නිළධාරීන්ෙග්
+
+වෘත්තීය සුරක්ෂිතභාවයක් ජීවිතාරක්ෂාවත් පිළිබඳව වගකීම දරන කාර්යභාර ෛවදɕ නිළධාරී ෙබනිටා වීරසිංහ මහත්මිය වැලිකඩ බන්ධනාගාර අධිකාරී විකමසිංහ මහතා වැනි ඉහල නිළයන් දරන නිළධාරීන් සහ ෙරෝහෙල් ආරක්ෂාව පිළිබඳ පාෙයෝගික වගකීම දරන ෙජ්ලර් ඊබට් යන නිළධාරීන් විසින්ම ෙමම කටයුතු ෙමෙහයවීම පබල පරිපාලන ගැටලුවකි. ෙමෙසේ විවිධ දුෂ්කරතාවයන් මධɕෙය් වුවද අනුපෙම්ය ෙසේවාවක්
+
+ලබාෙදන බන්ධනාගාර ෙරෝහෙල් ෙසේවය කරන ෙහද නිළධාරීන්ෙග් ජිවිතාරක්ෂාව සඳහාත් ෙහද නිළධාරීන්ෙග් රාජකාරී ෙපොත්පත් අතුරුදහන් කිරීම සහ විවිධ උපකම මගින් අපහසුතාවයට පත්කරවීම ඇතුලු ඉහත සදහන් කරන ලද නිතිවිෙරෝධී කටයුතු පිළිබඳවත් අදාළ නීතිමය කියාමාර්ග සඳහාත් අප සංගමෙය් තිරණය අනුව ෙමෙසේ පැමිණිලි කරමු. ෙල්කම්.
+
+මෙග් අංකය : දිනය :- 2008.11.19 1. බන්ධනාගාර ෙදපාර්තෙම්න්තුෙව් දිගු කලක් පුරා කියාත්මකව පවතින
+
+අකමවත් පරිපාලනය නිසාම වෘත්තීය ෙහද නිළධාරීන්හට : * නියමිත ෙසේවා තත්ත්වයන් * ෙදපාර්තෙම්න්තුව තුළ නියමිත වෘත්තීය අනනɕතාවය * උසස්වීම් ආදිය කියාත්මක ෙනොකිරීම * ෙහද නිළධාරීන් සඳහා අනුමත දීමනාවන් ලබා ෙනොදීම * මූලික පහසුකම් ලබා ෙනොදීම [මූලික ෙසෞඛɕය පහසුකම්,
+
+පහසුකම් සහිත ෙසේවා කාමර, විෙව්ක කාමර ෙහෝ සිරුර ෙසේදීෙම් පහසුකම් පවා රහිතව ෙමරට ඇති සියලුම වර්ගවල ෙබෝවන ෙරෝගීන් මධɕෙය් ෙසේවය කිරීමට සිදුව ඇත. ඖෂධ සඳහා සංෙව්දී ෙනොවන මාරාන්තික වර්ගෙය් ක්ෂය ෙරෝගීන් ෙම් අතුරින් පධානය] * ෙහද වෘත්තීය පිළිබඳව අප රෙට් පිළිගත් හා විධිමත් පරිපාලන
+
+පිළිෙවත් කියාත්මක ෙනොකරමින් හා * ෙමම කටයුතු පබල දූෂිත අයුරින් කියාත්මක කිරීම මගින්
+
+බහුතරයක් ෙහද නිලධාරීන් අසාධාරණයට ලක් කිරීම * පමාණවත් නිළධාරී සංඛɕාවක් බඳවා ගැනීමට කටයුතු කිරීම
+
+සිතාමතා පැහැර හැරීම මගින් ඉහත දුෂ්කර තතත්වයන් මධɕෙය් දිගින් දිගටම අමතර ෙසේවා මුරයන් පවා ආවරණය කරමින් ෙසේවය කිරීමට සිදුව ඇත.
+
+පාර්ලිෙම්න්තුව 3261 3262
+
+* සියලුම ආයතන ආවරණය කිරීමට පමාණවත් ෙහද නිලධාරීන් සංඛɕාවක් බඳවා ෙනොගැනීම නිසාම, තම දැනුම, සුදුසුකම්. වෘත්තීය සීමාවන් අභිබවා ඖෂධ සංෙයෝජක නිළධාරීන් මගින් ෛවදɕ වරුන්ෙග් හා ෙහද නිලධාරින්ෙග් කටයුතු ආවරණය කරවා ගැනීම අපෙග් වෘත්තිය බලවත් අපහාසයට ලක් කිරීමක් පමණක් ෙනොව ලක්ෂ සංඛɕාත රුඳවියන්ෙග් මූලික මිනිස් අයිතිවාසිකම් කඩකිරීමක් ද වීම අතිශය බරපතල තත්ත්වයකි. ෙමම තත්ත්වයන් යටෙත් ෙම් වන විටත් දශක ගණනාවත් පුරා අත්විඳි සියලුම අකමිකතා, අසාධාරණකම් පමණක් ෙනොව වෘත්තීය අපහාස ආදිය නිසාම ෙමම ෙදපාර්තෙම්න්තුෙව් අපමණ දුෂ්කරතාවයන් මධɕෙය් කිසිදු සාධාරණ අගැයීමක් පවා ෙනොලබමින් එෙහත් ඉමහත් අගනා ෙසේවාවක් ලබා ෙදන වෘත්තීය ෙහද නිළධාරීන් වන අප විසින් දිගු කලක සිටම ඉදිරිපත් කරන ලද පධානම ඉල්ලීම වූ ෙසෞඛɕය අමාතɕාංශයට අනුයුක්ත කිරීම පිළිබඳව ෙම් වන විට ෙසෞඛɕ අමාතɕාංශයද, එහි සියලුම වෘත්තීය සංගම්ද, අධිකරණ අමාතɕාංශයද, බන්ධනාගාර ෙදපාර්තෙම්න්තුවද කැමැත්ත පළෙකොට ඇති බැවින් හා ෙමම අනුමැතීන් ෙම් වන විටත් රාජɕ ෙසේවා ෙකොමිෂන් සභාව ෙවතද ඉදිරිපත් වී ඇති බැවින් ද, පවතින තත්ත්වය යටෙත් තවදුරටත් ෙසේවය කිරීම ඉමහත් මානසික පීඩාවක් බැවින්ද බන්ධනාගාර ෙදපාර්තෙම්න්තුෙව් ෙහද නිළධාරීන් වන අප සැම ෙනොපමාව ෙසෞඛɕ අමාතɕාංශයට අනුයුක්ත කිරීමට කටයුතු කරන ෙමන් ඉල්ලා සිටිමු. 1. බන්ධනාගාර ගතවන ධනවත් හා බලවත් රැඳවියනට අනියම් පහසුකම් ලබාදීම ෙවනුෙවන් බන්ධනාගාර ෙරෝහල් උපෙයෝගී කරගැනීම පමණක් ෙනොව ෙම් කටයුතු හා සබැඳි විවිධ දූෂණ පිළිබඳව අනාවරණය ෙකොට හා ෙමම දුෂිත කටයුතු වලින් මුදවා ෙරෝහල කියාත්මක කරවීම අරමුණුෙකොට අප සංගමය ඉදිරිපත් කරන පැමිණිලි පිළිබඳව ෙදපාර්තෙම්න්තු පධානීන් දක්වන උකටලී පතිචාරයන් බන්ධනාගාර ෙසෞඛɕය ෙසේවාෙව් යහ පැමැත්ම සඳහා ඉමහත් බලපෑමක් ඇතිකරවයි. බන්ධනාගාර ෙසෞඛɕ ෙසේවාව වඩා යහපත් ෙලස පවත්වා ගැනීම ෙවනුෙවන් ඉහත දූෂිත කටයුතු මැඩ පැවැත්වීම සඳහා කියාත්මක වන අප සංගමෙය් සාමාජිකයන් පිළිබඳව ඉහළ නිළධාරීන් තම තනතුෙර් බලය පාවිච්චි කරමින් ද්ෙව්ශ සහගතව කටයුතු කරමින් හා දිනපතාම අභූත ෙචෝදනා එල්ල කරමින් විවිධ දුෂ්කරතාවයන් ඇතිකිරීම රාජɕ ආයතනයක් තුළ සිදුවිය ෙනොහැකි තත්ත්වයන්ය. ෙම් සඳහා සිරකරුවන් පවා ෙයොදා ගැනීම ෙදපාර්තෙම්න්තු ස්ථාවර නිෙයෝග පවා පබල ෙලස උල්ලංඝනය කිරීමකි. ෙමවැනි තත්ත්වයක් ෙම් රෙට් අධිකරණ කියාවලිය හා සබැඳි ආයතනයක් තුළ පවත්වා ගැනීම ෙමරට රාජɕ ෙසේවාෙව් සියලු ආචාර ධර්ම හා සදාචාරයන් උල්ලංඝනය කරවීමක් වන අතරම ෙම් සඳහා බන්ධනාගාර ෙරෝහෙල් කාර්යභාර ෛවදɕ නිළධාරිනිය වන ෛවදɕ ෙබනිටා වීරසිංහ මහත්මියද, වැලිකඩ බන්ධනාගාර අධිකාරී විකමසිංහ මහතාද ෙදපාර්තෙම්න්තු පරිපාලනෙය් ඉහලම වගකීමක් උසුලන බන්ධනාගාර ෙකොමසාරිස් - පාලන එන්. ධනසිංහ මහතාද කියාත්මකව සිටීම ඉතාම බරපතල තත්ත්වයකි. 3. වැලිකඩ බන්ධනාගාර ෙරෝහල පිළිබඳව සතɕය තත්ත්වය වහා ෙහලිදරව් විය යුතු බැවින් ෙනොපමාව අවɕාජ සංවිධානයක් ෙහෝ වගකීමක් සහිත රාජɕ නිෙයෝජිතයින් ෙරෝහෙලහි නිරීක්ෂණ සංචාරයක නිරතවිය යුතු බව අපෙග් විශ්වාසයයි. අතිවිශාල මහජන මුදල් පමාණයක් වැයෙකොට පවත්වාගනු ලබන ෙමම ආයතනයන් වහා නිවැරදි කළ යුතු බව උතුම් වූ වෘත්තියක නියැලී වෘත්තිකයන් ෙලස ෙමන්ම ෙම් රෙට් පුරවැසියන් ෙලස අප පබලව අවධාරණය කරන බැවින් සුදුසු කටයුතු සඳහා දන්වා සිටිමු. පධාන ෙල්කම්
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ෙබොෙහොම ස්තුතියි. ඊළඟට ගරු පී. දයාරත්න ඇමතිතුමා. [අ.භා. 1.45] ගරු පී. දයාරත්න මහතා (සැලසුම් කියාත්මක කිරීෙම් අමාතɕතුමා)
+
+(மாண்ᾗமிகு பீ. தயாரத்ன - திட்டச் ெசயற்பᾌத்ᾐைக அைமச்சர்) (The Hon. P. Dayaratna-Minister of Plan Implementation) මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ෙසේෙගන් අවසරයි. ෙම් අවස්ථාෙව්දී මෙග් අමාතɕාංශය පිළිබඳව, අෙප් කටයුතු පිළිබඳව විනාඩි කිහිපයක් තුළ වචන ස්වල්පයක් සඳහන් කරන්න මම බලාෙපොෙරොත්තු ෙවනවා. මෙග් අමාතɕාංශය මහජනතාවත් එක්ක
+
+නිතර ගැෙටන කටයුතු කරන අමාතɕාංශයක් ෙනොෙවයි. නමුත් "මහින්ද චින්තන" වැඩ පිළිෙවළ යටෙත් ෙයෝජනා 594ක් තිෙබනවා, එම ෙයෝජනා 594 කියාත්මක කරන ආකාරය පිළිබඳව ෙසොයා බැලීමයි අෙප් වගකීම. අමාතɕාංශ 56කට භාර වී තිෙබන කටයුතු ෙදස බලන ෙකොට එය විශාල පමාණයක්. සමහර අමාතɕාංශවලට රුපියල් බිලියන සිය ගණනක් ෙවන් ෙවලා තිෙබනවා. ඒ වාෙග්ම සමහර අමාතɕාංශවලට සුළු මුදලක් ෙවන් ෙවලා තිෙබනවා. ඒ මුදල් පමාණය ෙකෙසේ ෙවතත් හැම අමාතɕාංශයකම කටයුතු සිදු වන ආකාරය පිළිබඳව අධීක්ෂණය කිරීම තමයි අපිට භාර ෙවලා තිෙබන්ෙන්. අෙප් භාණ්ඩාගාරෙය් මුදල්වලින් රුපියල් මිලියන 50කට වැඩිය වියදම් වන වɕාපෘතිවල ඇගැයීම එක ෙකොටසක් හැටියටත්, ඒ වා ෙග්ම විෙද්ශ ආධාර රුපියල් මිලියන 500කට අධික වɕාපෘති කියාත්මක වන ආකාරය පිළිබඳව ෙසොයා බැලීමත් අපි අතින් සිදු වනවා. අපි විෙශේෂෙයන්ම සියලුම ෙදපාර්තෙම්න්තු සම්බන්ධ කර ෙගන ෙකොම්පියුටර් මාර්ගෙයන් ඒ ෙතොරතුරු නිතර රැස් කරනවා. දින පතා රැස් කරන ෙතොරතුරු සියල්ලම මාස තුනකට වරක් එක් රැස් කර කැබිනට් මණ්ඩලයට වාර්තාවක් ඉදිරිපත් කරන්න අපි කටයුතු කර තිෙබනවා. සමහර අමාතɕාංශවලින් එන ෙතොරතුරු පිළිබඳව සියලුම මන්තීතුමන්ලාට අවෙබෝධයක් ලබා ගන්නට හැම විටම අවස්ථාවක් ෙනොලැෙබන බව අපිට පසු ගිය වාරෙය් හැඟී ගිය නිසා අපි ඒ සම්බන්ධෙයන් එක්තරා ෙපොෙරොන්දුවක් දුන්නා. අඩුම වශෙයන් අෙප් උපෙද්ශක කාරක සභාෙව් සාමාජිකයන්ටවත් ඒ වාර්තාවල පිටපත් යවලා ඒ පගතිය පිළිබඳව යම් කිසි අවෙබෝධයක් ලබා ගැනීම සඳහා කටයුතු කරන්න. ෙකෙසේ ෙවතත්, අපි ෙම් ෙතොරතුරු ඉදිරිපත් කිරීෙමන් බලාෙපොෙරොත්තු වන්ෙන් ඒ ලැෙබන විෙද්ශ ආධාර ෙහෝ අෙප් මුදල් පළමු වන කාර්තුව තුළදී, ෙද වැනි කාර්තුෙව් අගදී, අවුරුද්ද අවසානෙය්දී ෙකොයි ආකාරෙයන් වියදම් ෙවනවාද කියලා ඒ ඒ අමාතɕාංශවල ඇමතිතුමන්ලා ඇතුළු සියලුම ඇමතිවරුන්ට, කැබිනට් මණ්ඩලයට දැන ගැනීමට සැලැස්වීමයි. අද උෙද් වරුෙව්දී මන්තීවරුන් කීප ෙදෙනකුෙගන්ම අපට අහන්න ලැබුණා, “ෙම් ෙවන් වන මුදල් ෙබොෙහොමයක් වියදම් වන්ෙන් නැහැ. අවුරුද්ද අවසානෙය් මුදල් විශාල පමාණයක් වියදම් ෙනොවී ඉතිරි වන ආකාරයක් දකින්න ලැෙබනවා”ය කියා. ඇත්ත වශෙයන්ම සමහර අවස්ථාවලදී එවැනි ඉතිරි වීම් තිෙබන්න පුළුවන්. නමුත් පසු ගිය කාලය තුළදී අප දැක්කා ෙදපාර්තෙම්න්තු ගණනාවක පගතිය ඉතාමත්ම ෙහොඳ බව. ඒ ෙවන් වන මුදල්වලින් විශාල ෙකොටසක් වර්ෂෙය් මැද භාගය වන විට ඒ ඒ වɕාපෘතිවලට වියදම් කරලා තිෙබන බව අපට ෙපනී ගියා. යම් අවස්ථාවලදී මුදල් වියදම් කිරී ම පිළිබඳව එතරම් ෙහොඳ පගතියක් ෙනොලැෙබන්ෙන් ලැෙබන්න ඕනෑ මුදල් පමාණය භාණ්ඩාගාරෙයන් ෙනොලැබීම ෙහෝ එෙහම නැත්නම් වɕාපෘති ආරම්භ කරන්න තීරණය කළත් ඒ වɕාපෘතිවලට අවශɕ සැලසුම් යනාදිය සකස් වී නැතිකමයි. එෙහම වුණාම වɕාපෘතියක් ආරම්භ කරන්න පුළුවන්කමක් නැහැ. ඒ වාෙග් අවස්ථාවලදී යම් යම් පමාද ෙදෝෂ ඇති වනවා. ඒ වාෙග්ම ෙම් වැඩ කටයුතු පිළිබඳව අපි කරන අධීක්ෂණය ඇත්ත වශෙයන්ම සියයට සියයක්ම සිදු කරනවාය කියන්න පුළුවන්කමක් නැහැ. මුදල් වියදම් වන ආකාරය පිළිබඳව යම් කිසි අධීක්ෂණයක් තිබුණත්, ඒ ක්ෙෂේතෙය් ෙකොයි ආකාරෙයන් ඒ වැඩ කටයුතු සිදු වනවාද කියන ඒ හැම කියාකාරකමක් පිළිබඳවම ෙසොයා බැලීමට අපට අවස්ථාවක් ලැෙබන්ෙන් නැහැ. ඒ ෙමොකද? එයට අවශɕ තාක්ෂණ දැනුම තිෙබන විෙශේෂඥ පිරිසක් අෙප් ෙදපාර්තෙම්න්තුවට, අෙප් අමාතɕාංශයට නැති නිසා ඒ තත්ත්වය අපට උදා කර ගන්න පුළුවන් ෙවලා නැහැ. එෙහම තිෙබනවා නම් එවැනි තාක්ෂණ විෙශේෂඥයන් ඇතිව අංග සම්පූර්ණ ෙදපාර්තෙම්න්තුවක් හැටියට අපට සෑම වɕාපෘතියක්ම අධීක්ෂණය කරන්නත් හැකියාවක් තිෙබනවා. එවැනි වැඩ පිළිෙවළක් තවම ආරම්භ ෙවලා නැහැ කියන එක මම කියන්න ඕනෑ.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු ඇමතිතුමාට ෙවන් කරපු ෙවලාව අවසානයි. ඔබතුමාට විනාඩි හයයි තිබුෙණ්.
+
+2008 ෙදසැම්බර් 05 3263 3264
+
+ගරු පී. දයාරත්න මහතා (மாண்ᾗமிகு பீ. தயாரத்ன) (The Hon. P. Dayaratna) මට තව ටිකක් කියන්න ඉඩ ෙදන්න.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ඉතිරි ෙකොටස සභාගත කරමු.
+
+ගරු පී. දයාරත්න මහතා (மாண்ᾗமிகு பீ. தயாரத்ன) (The Hon. P. Dayaratna) මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, තව විෙශේෂ කාරණයක් කියන්න තිෙබනවා. අප භාරව සිටින තවත් අංශයක් තමයි විමධɕගත අය වැය පිළිබඳව පතිපත්ති තීරණය කිරීෙම් අංශය. ඒක අෙප් අමාතɕාංශයට භාර ෙවලා තිෙබන කාරණයක්. ෙමතැනදී මට පැහැදිලිව ෙපෙනන ෙදයක් තමයි, ෙම් කාර්යය අමාතɕාංශ ෙදකකට ෙබදී ගිහින් තිෙබන ආකාරය. අපි පතිපත්ති තීරණය කරනවා. නමුත් කියාත්මක වීම පිළිබඳව ෙසොයා බැලීම අපට අයිති වැඩක් ෙනොෙවයි. විෙශේෂෙයන්ම උපෙද්ශක කාරක සභාෙව්දීත් නිතරම වාෙග් අෙපන් පශ්න අහන්ෙන්ත්, උපෙද්ශක කාරක සභාෙව්දී අෙප් කාලය සම්පූර්ණෙයන්ම වාෙග් ෙවන් වන්ෙන්ත් විමධɕගත අය වැය මුදල් වියදම් කිරීෙම්දී ඇති වන පශ්න පිළිබඳව සාකච්ඡා කරන්නයි. එයට විසඳුමක් ළඟදීම ලබා දීමට බලාෙපොෙරොත්තු ෙවනවා.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ෙබොෙහොම ස්තුතියි ගරු ඇමතිතුමා. මීළඟට අකිල විරාජ් කාරියවසම් මන්තීතුමා.
+
+[අ.භා. 1.52] ගරු අකිල විරාජ් කාරියවසම් මහතා (மாண்ᾗமிகு அக்கில விராஜ் காாியவசம்) (The Hon. Akila Viraj Kariyawasam) මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, අමාතɕාංශ කීපයකම වැය ශීර්ෂ විවාදයට ගන්නා ෙම් අවස්ථාෙව්දී ඒ ඒ අමාතɕාංශ යටෙත් කථා කරන්න කලින් ෙම් කාලෙය් ආන්ෙදෝලනයට පත් වුණු කරුණක් පිළිබඳව මතක් කෙළොත් ෙහොඳයි කියා මා විශ්වාස කරනවා. ෙමොකද, hedging ගිවිසුම අනුව අද අගාමාතɕවරයා ෙපටල් මිල රුපියල් 20කින් අඩු කරන්න තීරණය කළ බව ෙම් ස්ථානෙය්දී දැනුම් දුන්නා. ෙමහිදී මට පශ්නයක් මතු ෙවනවා. ෙශේෂ්ඨාධිකරණය රජයට පකාශ කර තිබුණා, ෙම් 15 වැනි දාට කලින් ඉන්ධන සම්බන්ධෙයන් අවම මිල පකාශයට පත් කරන්න කියා. ෙශේෂ්ඨාධිකරණෙයන් එෙහම නිෙයෝගයක් නිකුත් කරලා තිෙයන ෙකොට, ආණ්ඩුව රුපියල් විස්සකින් මිල අඩු කර තිෙබනවා. මිල අඩු කරන්න පුළුවන් රුපියල් විස්සකින් පමණයි කියලා ෙශේෂ්ඨාධිකරණයට කරුණු දක්වන්නද ෙම් හදන්ෙන් කියලා මම අහනවා. ෙම් මිල අඩු කිරීෙම් credit එක එෙහම නැත්නම් පශංසාව ලැෙබන්න ඕනෑ ෙශේෂ්ඨාධිකරණයටයි. ෙම්ක රජය විසින් කළ මිල අඩු කිරීමක් ෙනොෙවයි. ෙමොකද, අපි විශ්වාස කරන හැටියට අද වන ෙකොට ෙබොර ෙතල් බැරලයක මිල ෙඩොලර් 43ට අඩු ෙවලා තිෙබනවා. එෙහම නම් ෙම් මිල සූතයට අනුව ගැළපුෙවොත් ෙපටල් ලීටරයක් ෙදන්න පුළුවන් රුපියල් 80ට. ඩීසල් ලීටරයක් ෙදන්න පුළුවන් රුපියල් 60ට. එෙහම නම් අපි කියනවා, ෙම් හදලා තිෙබන්ෙන් කෘතිම මිලක් කියලා. ෙම් කෘතිම මිෙලන් බැහැර ෙවලා නියම මිල සූතයට අනුව ෙපටල් ලීටරයක් රුපියල් 80ටත් ඩීසල් ලීටරයක් රුපියල් 60ටත් අෙප් රෙට් ජනතාවට ලබා ෙදන්නය කියලා අපි කියනවා. ෙම් පිළිබඳව අවදිෙයන් ඉඳලා අවශɕ කියා මාර්ග ගත්ත එක ගැන මා විෙශේෂෙයන්ම ෙශේෂ්ඨාධිකරණයට ස්තුතිවන්ත ෙවනවා.
+
+ඒත් එක්කම ෙම් කාරණය ගැනත් කියන්නට ඕනෑ. ෙම් ෙහජින් ගිවිසුම නිසා අද අෙප් රටට ෙවච්ච පාඩුව ෙකෝටි 4,000යි. අපට ෙම් පාඩුව සුළු ෙකොට තකන්න බැහැ. ෙකෝටි 4,000ක් පාඩු ෙවනවාය කියන්ෙන්, ඒ පාඩුව පියවන්න එක පුද්ගලෙයක් රුපියල් 10,000ක් ෙගවන්න ඕනෑය කියන එකයි. ෙම්ක කාෙග් වැරැද්දක්ද? ෙම්ක අෙප් වැරැද්දක්ද? නැත්නම් ජනතාවෙග් වැරැද්දක්ද? එෙහම නැත්නම් ආණ්ඩුෙව් කාෙග් ෙහෝ වැරැද්දක්ද? ෙම් ෙකෝටි 4,000ක පාඩුව ෙගවන්න ෙවලා තිෙබන්ෙන් අහිංසක ජනතාවට. අපි සාධාරණව කල්පනා කරලා බැලුෙවොත් ආණ්ඩුව ෙමෙහම පිස්සු ෙකළින ෙකොට, ෙතල් සංස්ථාෙව් සභාපතිවරයා පිස්සු ෙකළින ෙකොට ජනතාවට ෙමොකද ෙවන්ෙන්? ඕනෑම අමාතɕාංශයක කවුරු ෙහෝ ෙකෙනක් පිස්සු වැඩක් කෙළොත් ඒක යන්ෙන් ජනතාව පිටින්. අදාළ කියාපටිපාටි අනුගමනය ෙනොකර ෙම් ගිවිසුම්වලට එළැඹිලා තිෙබනවා. අධිකරණය පැහැදිලිවම කියා තිෙබනවා, ෙම් ගිවිසුම නීති විෙරෝධීයි කියලා. නීතිපතිවරයාෙගන් අවසරයක් අරෙගනත් නැහැ. දැනුවත් විය යුතු අදාළ අංශ හරියට දැනුවත් කරලාත් නැහැ. ෙකොටින්ම කියනවා නම්, යම් පුද්ගලෙයක් යම් ක්ෙෂේතයකට පවීණෙයක් වුණාට ඒ පුද්ගලයා තවත් ක්ෙෂේතයකට අඳබාලෙයක් ෙවන්න පුළුවන්. ඒකයි රජයට වැරදිලා තිෙබන්ෙන්. නියම සුදුස්ෙසෝ ෙනොෙවයි ඒ තනතුරුවලට පත් කරන්ෙන්. ඊට පස්ෙසේ ඒ ෙගොල්ලන් පිස්සු නටපුවාම, ඒ වැරදිත් ෙම් අහිංසක ජනතාවෙග් පිට පටවනවා. ෙම්ෙක් තිෙයන භයානකකම ෙම්කයි. ෙම් ෙහජින් ගිවිසුම නිසා අපට අහිමි වන, අපට පාඩු වන ෙකෝටි 4,000ක මුදල විෙද්ශීය සංචිත වශෙයන් අපට නැති ෙවලා යනවා. ඒ වාෙග්ම විෙද්ශ සංචිත හිඟයක් ඇති ෙවනවා. රුපියෙල් අගය අවපමාණය ෙවනවා. එංගලන්ත නීතියට අනුව තමයි ෙම් ගිවිසුම ඇති කර ෙගන තිෙබන්ෙන්. අපි ෙම් මුදල් ෙගවීම පැහැර හැරිෙයොත් ෙමොකද වන්ෙන්? ණය ෙනොෙගවන රටක් විධියට අෙප් රට පත් ෙවනවා. ෙම්ෙක් භයානකකම ෙබොෙහොම ඉහළයි. නමුත් රජය පසු ගිය කාලය පුරාම උත්සාහ කෙළේ ෙකොෙහොම හරි ෙම් ගැටලුෙවන් මිදිලා ඒ ෙගොල්ලන්ෙග් ෙනොහැකියාව වහ ගන්නයි. චකෙල්ඛ, නීති උල්ලංඝනය කරන ෙම් වාෙග් රජයක් ගැන මීට ෙපර මම අහලා නැහැ. ෙහජින් ගිවිසුම ගත්තත් නීති උල්ලංඝනය කරලා තමයි ඒ ගිවිසුමට එළැඹිලා තිෙබන්ෙන්.
+
+දැන් බලන්න. චකෙල්ඛ යවලා තිෙබනවා, වයස අවුරුදු 60 ඉක්ම වූ නිලධාරින්ට රාජɕ ෙසේවෙය් ඉන්න බැහැ කියලා. නමුත් වයස අවුරුදු 60 ඉක්ම වූ නිලධාරින් රාජɕ ෙසේවෙය් ඉන්නවා. මට නම් වශෙයන් කියන්න පුළුවන්; list එකක් ෙදන්න පුළුවන්. කිසිම වග විභාගයකින් ෙතොරව, අවුරදු 60 ඉක්ම වූ අය ඕනෑ තරම් ෙම් රජෙය් ෙසේවය කරනවා. ෙම් නීති ෙරගුලාසිවල වටිනාකමක් නැති වුණාම, ඒවා කියාත්මක කරන්ෙන් නැති වුණාම ෙම් රට ෙකොෙහේටද ගමන් කරන්ෙන්? දැන් බලන්න ෙකෝ. 2003 දී අෙප් රජය කාලෙය් රාජɕ මූලɕ කළමනාකරණ පනතක් - Fiscal Management Responsibility Act - ෙගනාවා. ෙම් පනත ෙගන ඒෙමන් බලාෙපොෙරොත්තු වුෙණ් ෙමොකක්ද? ඒ පනෙත් සඳහන් කරලා තිෙබනවා, අය වැය හිඟය සියයට පහට වඩා වැඩි ෙනොකළ යුතුයි කියලා. ෙම් පනත පාර්ලිෙම්න්තුෙව් සම්මත කරලා තිබුණාට අද ඒක තුට්ටුවකටවත් මායිම් කරන්ෙන් නැහැ. පසු ගිය වසර තුළත් එෙහමයි. කිසිම වග විභාගයක් නැතිව රාජɕ මූලɕ අය වැය හිඟෙය් විශාල පරතරයක් තියා ගන්නවා. ඊටත් වඩා ෙම්ෙක් පාෙයෝගික තත්ත්වය ෙම්කයි. ඔය ෙයෝජනාවල සඳහන් කරලා තිෙබන පරිදි ඇස්තෙම්න්තුගත කරලා තිෙබන පරිදි බදු මුදල් ලැෙබන්ෙන් නැහැ. ඒවා නිකම් සංඛɕා ෙල්ඛන ෙගොඩක් විතරයි. මීට වඩා තවත් වැඩි ෙවනවා රාජɕ අය වැය හිඟය. ඒ නිසා මා අදාළ ඇමතිවරුන්ට කියන්න කැමැතියි අප මීට වඩා වග කීමකින් වැඩ කරන්න ඕනෑය කියා. ෙම්වා රජෙය් මුදල්. ෙම්වා අපි කාෙග්වත් ෙපෞද්ගලික බූදලයක් ෙනොෙවයි. අපි ෙමහි භාරකරුෙවෝ විතරයි. අපි ෙම්වාෙය් අයිතිකාරෙයෝ ෙනොෙවයි. හැබැයි සමහර ඇමතිවරු, සමහර නායකෙයෝ වැඩ කරන්ෙන් ෙම්වාෙය් අයිතිකාරෙයෝ විධියටයි. අන්න ඒකයි වැරැද්ද. උදාහරණයක් විධියට මිහින් එයාර් ආයතනය ගනිමු. ෙම්කට රුපියල් ෙකෝටි 600ක් ආපසු ෙවන් කළා. ෙම් කාෙග් වුවමනාවට ද? ෙමතරම් ආර්ථික පශ්න තිෙයද්දී, ආණ්ඩුෙව් සියලුම මුදල් කපා හරින්න, නැත්නම් පාග්ධන වියදම්
+
+පාර්ලිෙම්න්තුව 3265 3266
+
+[ගරු අකිල විරාජ් කාරියවසම් මහතා]
+
+සහ වර්තන වියදම් කපා හරින්න කියා චකෙල්ඛන පිට චකෙල්ඛන යවද්දී මිහින් එයාර් ආයතනයට රුපියල් ෙකෝටි 600ක් ෙවන් කරනවා. ෙම්ක සාධාරණද? වැඩිය ඕනෑ නැහැ. පාර්ලිෙම්න්තු මන්තීවරයකුට හිමි අෙප් විමධɕගත මුදල් පවා කපා හැරලා. ෙම් තත්ත්වය ෙම් විධියට ගිෙයොත් අෙප් රට ෙකොයිබට ගමන් කරනවාද කියා තරුණ මන්තීවරුන් වන අපට හිතා ගන්න බැහැ. හැබැයි එෙහම මුදල් කපා හැරියාට, අමාතɕාංශවල අතɕවශɕ ෙද් කපා හැරියාට, අධɕාපනයට ෙවන් කරපු ඒවා කපා හැරියාට, තරුණ කටයුතුවලට ෙවන් කරපු ඒවා කපා හැරියාට, තවත් විවිධ ක්ෙෂේතවලට ෙවන් කරපු ඒවා කපා හැරියාට ජනාධිපතිවරයාෙග් වියදම වැඩි කර ෙගන තිෙබනවා. තවත් සමහර ඇමතිවරුන්ෙග් වියදම් වැඩි කර ෙගන තිෙබනවා. නමුත් ෙම් වැඩි කර ෙගන තිෙබන්ෙන් අවශɕතාව අනුව ෙනොවන බව මා පැහැදිලිව කියන්න ඕනෑ. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, අෙප් ගරු නාවින්න ඇමතිතුමා ඉන්නවා. අප එතුමාට ගරු කරනවා. එතුමා ෙහොඳට වැඩ කරන ඇමතිවරෙයක්. එතුමා මා කියන කාරණයට සාක්ෂි දරයි. ගරු ඇමතිතුමනි, තමුන්නාන්ෙසේ දන්නවා ෙම් දවස්වල මග නැඟුම, ගම නැඟුම යටෙත් පාරවල් හදන බව. අප ෙබොෙහොම සන්ෙතෝෂයි පාරවල් හදන එක ගැන. කිසිම ගැටලුවක් නැහැ. නමුත් ගරු ඇමතිතුමනි, අෙප් පෙද්ශවල හදන පාරවල් පමුඛත්වය දිය යුතු පාරවල්ද කියා බලන්න. ගරු ඇමතිතුමනි, ඔබතුමායි මමයි ඇතුළු අප ඔක්ෙකෝම එන සමහර පධාන පාරවල තවම යන්න බැහැ. ඒවා කැඩිලා බිඳිලා ගිහින්. ඒ පාරවල යන්න බැහැ. උදාහරණයක් විධියට පන්නල-කුලියාපිටිය පාර, කුලියාපිටිය-ෙහට්ටිෙපොළ පාර, ඒ වාෙග්ම නාත්තණ්ඩිය හරහා කුලියාපිටිය-ෙකොළඹ පධාන පාර අර ෙගන බලන්න. ඒවාෙය් යන්න බැහැ. සමහර තැන්වල වාහන ෙදකකට මාරු ෙවන්නත් බැහැ. ෙබොෙහොම කනගාටුයි කියන්න. ෙම් හැම ෙදයක්ම ෙද්ශපාලන නɕාය පතයට අනුව කියාත්මක වනවා. ගම් ඇතුෙළේ සමහර පාරවල් තිෙබනවා. ඉඳලා හිටලායි ඒවාෙය් වාහනයක් ෙදකක් යන්ෙන්. ඒවා අඩි තිහට, හතළිහට කාපට් කරලා. එක දිගට කාපට් කරලා. ෙම්වා දැක්කාම ඇත්තටම අපට හරිම කනගාටුවක් දැෙනනවා, ෙමොකක්ද ෙම් කරන්ෙන් කියලා. ෙම්කද රජෙය් කළමනාකරණය, ෙම්කද රෙට් සංවර්ධනය කියා මා ෙම් ආණ්ඩුෙවන් අහන්න කැමැතියි. ෙම් විධියට කෙළොත් ෙමොකද වන්ෙන්? ෙම් රෙට් පමුඛතාව අනුව ෙනොෙවයි, අවශɕතාව අනුව ෙනොෙවයි මුදල් ෙවන් කරන්ෙන්.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, වියදම් ගැන කථා කරද්දී පධාන වශෙයන් විෙද්ශ කටයුතු අමාතɕාංශය ගැන කථා කරන්න ඕනෑ. ෙරෝහිත ෙබෝෙගොල්ලාගම මැතිතුමා අපිත් එක්කයි ඡන්දයට ඉදිරිපත් වුෙණ්. මට මතකයි මා අසූතුන්දහස් ගණනක් මනාප ගනිද්දී මෙග් මනාපවලින් භාගයක් විතර -හතළිස්තුන් දහසක් විතර- මනාප අර ෙගන තමයි එතුමා පාර්ලිෙම්න්තුවට ආෙව්. විෙද්ශ කටයුතු අමාතɕාංශෙය්, විෙද්ශගත වීම් සඳහා වන වියදම් ෙල්ඛනය ෙපොඩ්ඩක් පරීක්ෂා කර බලන්න. ෙම් සියලුම වියදම් රජෙය් වියදම් ෙනොෙවයි. ෙපෞද්ගලික වියදම් තමයි ආණ්ඩුෙව් ගිණුම්වලට දමන්ෙන්. ෙම්වා පව් වැඩ. ෙම්වා සහ ගහන වැඩ. මා මීට වඩා බරපතළ විධියට කියන්න කැමැති නැහැ. ෙම් විධියට වියදම් කරන ෙකොට ෙම්වා පඩිසන් ෙදනවා. විෙද්ශ ෙසේවා අංශෙය් උපෙද්ශකවරයකු මට කිව්වා, ෙම් ඇමතිතුමා එක රටක ඉඳලා තවත් රටකට යන්න ඊළඟ ගුවන් යානය ගන්න තිබුණු අවස්ථාව දක්වා වූ පැය අට සඳහා රුපියල් පනස්දහසකට වැඩි පමාණයක් වියදම් කරලා පධාන ෙපෙළේ ෙහෝටලයක පධාන කාමරයක් මිල දී ගත්තාය කියා. කාෙග්ද ෙම් වියදම්? ෙම් රජෙය් වියදම් ද? ෙපොඩි "ෙච්න්ජ්" එකක් දමා ගන්නයි ෙම් වියදම කෙළේ. ඉතින් ෙම් වෙග් වියදම් කරමින් රෙට් මුදල් තමන්ෙග් බූදලයක්ය කියා හිතා ෙගන ඇමතිවරු ෙම් විධියට කටයුතු කෙළොත් රටට ෙමොකද වන්ෙන්? මා හිතන්ෙන් බුද්ධාගම අනුව නම් ෙම්වා පඩිසන් ෙදනවා කියායි. ෙම්වා නතර කරන්න රජයක් විධියට කියා කෙළේ නැත්නම්, ෙශේෂ්ඨාධිකරණය මාර්ගෙයන්වත් ෙම්වා නවත්වන්න කටයුතු කෙළේ නැත්නම් අෙප් රට විනාශයට පත් වනවා.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, පධාන වශෙයන්ම ෙශේෂ්ඨාධිකරණයට අෙප් ෙගෞරවය හිමි වන්න ඕනෑ, ෙම් රෙට් විවිධ ෙද් සම්බන්ධෙයන් කරුණු ඉදිරිපත් කළාම ඒවාට නිසි පිළිතුරු ලබා දීම ගැන. ඒත් එක්කම අෙප් පෙද්ශෙය් ෙම් දවස්වල තිෙබන පශ්නයක් ගැන කියන්න ඕනෑ. ගරු සී. බී.රත්නායක ඇමතිතුමා ෙම් ගරු සභාෙව් සිටියා. මා එතුමා ට ස්තුතිවන්ත ෙවනවා. ඇත්තටම එතුමා ෙබොෙහොම වැඩ කරන ඇමතිවරෙයක්. පසු ගිය අය වැ ය ෙල්ඛනෙයන් ෙසස් බද්දක් ඇති කළා. ෙම් ෙසස් බදු අය කර එය සාධාරණීකරණය කෙළේ ෙම් ෙද්ශීය ආර්ථිකය නංවන්නට ෙම් බදු පනවනවාය කියලායි. හැබැයි 2005 සිටම අමතක වී තිබුණු ෙද්ශීය ආර්ථිකය නැංවීම 2008 වනකල් ඉඳලා කරන්න යාම ගැන බලන විට නම් ෙම්ක ෙම් ෙද්ශීය ආර්ථිකය නැංවීම ෙනොෙවයි, වචන මාලාවක් විතරයි කියන එකයි ෙපනී යන්ෙන්. ෙම් ආණ්ඩුවට සල්ලි නැති නිසා බදු මුදල් එකතු කර ගන්නයි ෙම් ෙද්ශීය ආර්ථිකය නංවන්නය කියා ෙයොදා ගනිමින් ෙසස් බදු අය කෙළේ. කිරි පිටි මිල, ඒ හැම එකකටම ෙම් ෙසස් බදු බලපානවා. අෙප් රෙට් කිරි අවශɕතාෙවන් අපි තවම නිෂ්පාදනය කරන්ෙන් සියයට 15 ක් විතරයි. කිරි නිෂ්පාදනය ඉහළ නංවන්න කටයුතු කර තිෙබනවාය කියා ගරු සී.බී. රත්නායක ඇමතිතුමාම කිව්වා. නමුත් මා කියන්න ඕනෑ, ඉතිරි සියයට 85ම, ඒ කියන්ෙන් තවමත් කිරි නිෂ්පාදන පිට රටින් ෙගන්වන්නට සිද්ධ ෙවලා තිෙබනවා ය කියන එක. ෙම් ෙසස් බදු ආදී විවිධ බදු ඇති කළාම, බදු පිට බදු අය කළාම ඒවාෙය් මිල වැඩි වන එක කාටවත් නවත්වන්න බැහැ. එම නිසා ෙම්වාට එක පාරට තීරණ අර ෙගන ෙසස් බදු අය කර, ජනතාවෙග් පාරිෙභෝජන අවස්ථා වන්, නැත්නම් ඒ අයෙග් මූලික ෙපෝෂණය සඳහා වන කිරි ටික අඩු මුදලකට ලබා ගන්න තිෙබන අවස්ථාව නැති කරන්න එපා. මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු මන්තීතුමාට විනාඩි ෙදකක් තිෙබනවා. ගරු අකිල විරාජ් කාරියවසම් මහතා (மாண்ᾗமிகு அக்கில விராஜ் காாியவசம்) (The Hon. Akila Viraj Kariyawasam) මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, නැහැ. මට විනාඩි 15ක් තිබුණා.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) විනාඩි 15න් දැන් තව ඉතිරි ෙවලා තිෙබන්ෙන් විනාඩි 2යි. ගරු අකිල විරාජ් කාරියවසම් මහතා (மாண்ᾗமிகு அக்கில விராஜ் காாியவசம்) (The Hon. Akila Viraj Kariyawasam) මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස මට තව විනාඩි 5ක් ෙදන්න.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ෙවලාව මදි ෙවලාත් තිෙබන්ෙන්. ගරු අකිල විරාජ් කාරියවසම් මහතා (மாண்ᾗமிகு அக்கில விராஜ் காாியவசம்) (The Hon. Akila Viraj Kariyawasam) එම නිසා මා පැහැදිලිව ෙම් කාරණාව කියනවා. මට හුඟක් කරුණු සඳහන් කරන්න තිබුණා. කිරි ගවෙයකුෙග් -අෙප් හරකුන්ෙග් ෙනොෙවයි පිට රටින් එන හරකුන්ෙග්; අර කිරි නිෂ්පාදනය වැඩි කිරි ගවයකුට- දවසක කෑම වියදම මා ළඟ තිෙබනවා. පරිප්පු කුඩු, පුන්නකු, බඩ ඉරිඟු කුඩු, විටමින් වර්ග
+
+2008 ෙදසැම්බර් 05 3267 3268
+
+ඒ ඔක්ෙකොම එක්ක දවසක කෑම වියදම සඳහා සාමානɕෙයන් රුපියල් තුන් සියයක් විතර ඕනෑ. ඊට අමතරව තණ ෙකොළ ෙදන්න ඕනෑ. අෙප් රෙට් තණ වගා බිම් නැහැ. නුවර එළියට ගිහින් තණ ෙකොළ කාලා ආපසු හවසට එන්න කියා හරකුන්ට කියන්න බැහැ ෙන. ඒ වාෙග් පශ්න තිෙබනවා. එම නිසා ෙම් හිතන තරම් සරල විධියට ෙද්ශීය නිෂ්පාදන නංවන්න ගියාට ඒක සිද්ධ වන්ෙන් නැහැ. ඊට අමතරව මට ෙබොෙහෝ ෙද් කියන්නට තිබුණත් කාල ෙව්ලාව නැහැ. නමුත් අෙප් පළාතට පධාන වශෙයන් බලපාන ෙපොල් නිෂ්පාදන ගැන කියන්න ඕනෑ. අද සුළු පරිමාණ ෙපොල් වɕාපාරිකෙයෝ බින්දුවට වැටී තිෙබනවා. ගිය සතිෙය් ෙකොළඹ ෙපොල් auction එෙක් දී ෙපොල් ෙගඩියක් රුපියල් 10ට මිල පහත බැස තිබුණා. ඒ ෙමොකද ෙවලා තිෙබන්ෙන්? Palm oil ෙගන්වීෙම්දී සියයට 28කට "ටැක්ස්" එකක් දමා තිබුණා. Palm oil ෙගන්වීෙම්දී අය කරන ඒ "ටැක්ස්" එක සියයට 28 සිට සියයට 15 දක්වා අඩු කළා. ඒක කෙළේ වɕාපාරිකෙයෝ කිහිප ෙදෙනකුෙග් වුවමනාව මතයි. ඒ නිසා ෙමොකද වුෙණ්, ෙපොල් කර්මාන්තය වැටුණා. ඒ නිසා පණස්දාහකට වැඩි සුළු පරිමාණ ෙපොල් නිෂ්පාදකයින් අද හරිම අමාරු තත්ත්වයට පත් වී තිෙබනවා. ෙපොල් නිෂ්පාදනය කරන අය දන්නවා ඇති. ෙපොල් නිෂ්පාදනෙය් දී ෙපොෙහොර දමා ෙම් සියලු ෙද්වල් කළාම අද කාලෙය් හැ ටියට සාමානɕෙයන් ෙපොල් ෙගඩියක් නිෂ්පාදනෙය් cost එක රුපියල් 16ක් විතර ෙවනවා. ෙම් විධියට ගිෙයොත් තව අවුරුදු පහකින් හයකින් ෙපොල් ෙගඩියක් රුපියල් හැත්තෑවක් අසූවක් වන එක කාටවත් වළක්වන්නට බැහැ. ඒ නිසා අපි ෙම් රජයට කියන්ෙන්, ෙම් පශ්න ගැන මීට වඩා බැරෑරුම්ව කල්පනා කරන්න ඕනෑ කියලායි. එෙහම නැත්නම් ෙම් රට තවත් අගාධයට යන එක කාටවත් වළක්වන්නට බැහැ. තරුණ පශ්න ගැන මා කථා කරන්නට හිතා ෙගන හිටියත් කාල ෙව්ලාව ෙනොමැති නිසා මා කථා කරන්ෙන් නැහැ. තරුණ ෙසේවා සභාෙව් අධɕක්ෂ ජනරාල්වරයාට මා එක අතකින් ස්තුතිවන්ත ෙවනවා. මා එතුමා හඳුනන්ෙන් නැහැ. එතුමා යම් ෙමෙහයක් කරනවා. ගරු ඇමතිතුමියත් යමක් කරන්න උත්සාහ කරනවා. නමුත් අෙප් රෙට් තරුණයන්ට අද තිෙබන එකම රැකියාව යුද්ධයට යාම විතරයි. ෙවන රැකියා අවස්ථා ෙම් රෙට් බිහි කරන වාතාවරණයක් නැහැ. ෙවන රැකියා අවස්ථා බිහි ෙවන්න වාතාවරණයක් ඇති කරලාත් නැහැ. අද හමුදාවට යනවා හැෙරන්නට තරුණයින්ට ෙවන කරන්නට ෙදයක් නැහැ කියා මා කියන්න ඕනෑ.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු මන්තීතුමා කථාව අවසාන කරන්න. ගරු අකිල විරාජ් කාරියවසම් මහතා (மாண்ᾗமிகு அக்கில விராஜ் காாியவசம்) (The Hon. Akila Viraj Kariyawasam) නැ ෙඟනහිර පළා ෙත් වැන්දඹුවන් විතරක් තිස්දාහක් ඉන්නවා. ඔන්න ඕකයි ඇත්ත තත්ත්වය. එෙසේ නම් රෙට් එකම රැකියාව හමුදාවට යන එක විතරක් ෙනොවී ඊට වඩා රැකියා අවස්ථා ඇති වන විධියට ෙම් රෙට් සංවර්ධනය දියත් කළ යුතුය කියා මා අවසාන වශෙයන් පකාශ කරමින් නවතිනවා.
+
+[பி.ப. 2.07] ගරු ඩග්ලස් ෙද්වානන්ද මහතා (සමාජ ෙසේවා හා සමාජ ශුභසාධන අමාතɕතුමා)
+
+(மாண்ᾗமிகு டக்ளஸ் ேதவானந்தா - சᾚக ேசைவகள், சᾚக நலேனாம்ᾗைக அைமச்சர்)
+
+(The Hon. Douglas Devananda - Minister of Social Services and Social Welfare)
+
+ெகளரவ தைலைமதாங்கும் உᾠப்பினர் அவர்கேள, இங்கு எனᾐ அைமச்சு ெதாடர்பாகக் கூறப்பட்ட கᾞத்ᾐக்கᾦக்குப் பதில்கூᾠம் விதமாக நான் இங்கு ஓர் அறிக்ைகையச் சமர்ப்பிக்க விᾞம்ᾗகின்ேறன்.
+
+My Ministry has taken a long stride to protect the rights of persons with disabilities passing necessary legislations, launching a national policy, declaring year 2007 as the Year of Accessibility, signing the UN Convention on Protection of Rights of Persons with Disabilities and passing regulations on accessibility.
+
+Accessibility is an area identified in the “Mahinda Chintana” programme of His Excellency the President. It is mentioned that convenient access facilities for persons with disabilities will be provided as a matter of priority in all public buildings.
+
+Further, on behalf of the Government, I signed the United Nations Convention on the Rights of Persons with Disabilities in March, 2007. As a signatory to the convention, our Government is obliged to take the necessary steps to give effect to the provisions of that convention.
+
+The Article with regard to Accessibility in the convention states, I quote:
+
+“To enable persons with disabilities to live independently and participate fully in all aspects of life, States Parties shall take appropriate measures to ensure to persons with disabilities access, on an equal basis with others, to the physical environment, to transportation, to information and communications, including information and communications technologies and systems, and to other facilities and services open or provided to the public, both in urban and in rural areas. These measures, which shall include the identification and elimination of obstacles and barriers to accessibility, shall apply to, inter alia:”
+
+On the 1st of December, we had invited the ministers, secretaries and relevant officials of eleven ministries for a very important meeting on “Accessibility for Persons with Disabilities.” As you are aware, making all public buildings and public places accessible for persons with disabilities cannot be implemented by one ministry. It is a responsibility of all of us and that is why we invited all of them to discuss this matter and to have a coordinated plan to fulfil this requirement. I take this opportunity to brief this House on actions taken on this area since 1995.
+
+In 1995, the International Day of Persons with Disabilities was observed by my Ministry with the theme, “Accessibility to Built Environment.” A special technical committee was appointed to develop a planning guide for accessibility provisions to built environment.
+
+In the year 2000, the theme for the international day was "Barrier-free environment for persons with disabilities and older persons". By this time, the technical committee had submitted the planning guide for built environment and awareness programmes were conducted along with the Association of Architects, on the provision of accessibility to all concerned. In 2003, the National Policy on Disability was formulated and was approved by the Cabinet. In the policy document, 26 areas were included and two of which were accessible to built environment, tourism and communication and information. The existing Act was amended in 2003 to
+
+පාර්ලිෙම්න්තුව 3269 3270
+
+[ගරු ඩග්ලස් ෙද්වානන්ද මහතා]
+
+make provision to regulations on accessibility. The theme for the International Day of 2006 was "Accessibility Enables Everyone". The year 2007 was declared as ''Accessibility year" and a steering committee consisting of line ministries was established for follow up on provisions of accessibility regulations. I would mention the programmes implemented by my Ministry after 2006. We have provided Rs. 4.6 million to 37 divisional secretariats to make the secretariat buildings accessible for persons with disabilities. Funds have been given even to construct special toilets. We provided funds to make the Kandy District Secretariat accessible to persons with disabilities. We have provided funds for the accessibility facilities at the National Museum, John de Silva Theatre, Elphinstone Hall, Municipal Council, Dehiwala, Railway Stations in Slave Island, Seeduwa, Ragama, Maradana, and Colombo Fort. Under the community based rehabilitation programme, we provided funds for schools religious places, and also to individuals with disabilities. In 2007, we were able to complete 480 projects. We have conducted awareness programmes for provincial, district and local government officials including technical officers on accessibility. Today, you will be able to gather more information from our Ministry’s progress report. We take action to make the buildings and public places coming under the purview of ministries accessible to persons with disabilities and then, to achieve the objective of the theme of the International Day of Persons with Disabilities "Dignity and justice for all of us", which fell on 3rd December 2008. If we can take action to realize this goal, we can create a disabled friendly environment. I would like to mention that we all will become old and the disabled friendly environment will be friendly for all of us. In conclusion, I would like to thank my Deputy Minister Hon. Lionel Premasiri for the co-operation extended to me in implementing programmes and the Secretary of my Ministry, Mrs. Jegarasasingam and all the staff of my ministry for taking the initiative and assisting me to deliver the services to the target groups very effectively and efficiently. Thank you.
+
+[අ.භා. 2.13] ගරු ආර්. එම්. පත්ම උදයශාන්ත ගුණෙසේකර මහතා (மாண்ᾗமிகு ஆர். எம். பத்ம உதயஷாந்த குணேசகர) (The Hon. R.M. Padma Udayashantha Gunasekera) මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ෙසේෙගන් අවසරයි. විෙශේෂෙයන්ම අද දවෙසේ අමාතɕාංශ 21ක වැය ශීර්ෂයන් පිළිබඳව විවාදයට ලක් වන ෙමොෙහොෙත් කරුණු කිහිපයක්, විෙශේෂෙයන්ම සංස්කෘතික කටයුතු හා ජාතික උරුමයන් පිළිබඳ අමාතɕාංශයට අදාළව කරුණු කිහිපයක් ෙගන හැර දක්වන්න මා සූදානම්.
+
+පළමුෙවන්ම මතු කළ යුතු කරුණක් තිෙබනවා. අද මාධɕවලත් වාර්තා ෙවලා තිබුණා, ඊෙය් මාධɕවලත් වාර්තා ෙවලා තිබුණා, ලංකා සිනමාෙව් ෙහළ නිළි රැජින මාලනී ෙෆොන්ෙසේකා මහත්මිය අෙප් මව් බිමට කීර්තියක් ෙගනැවිත් දීලා තිෙබනවාය කියලා. අපි දන්නවා, ෙහළ නිළි රැජින අද ෙලොව නිළි රැජින බවට පත් කරලා තිෙබන බව. පසු ගිය දා ඉන්දියාෙව් ෙගෝෙව් පැවැති අන්තර්ජාතික චිතපට උෙළෙල්දී පසන්න විතානෙග් සිනමාකරුවාෙග් "ආකාස කුසුම්" කියන චිතපටෙය් රංගන දායකත්වය ෙවනුෙවන් අන්තර්ජාතික රටවල් ගණනාවක රංගන ශිල්පීන් අභිභවා ලාංකීය සිනමාවට අලුත් ආෙලෝකයක් ලබා ෙදන්න මාලනී ෙෆොන්ෙසේකා කියන ෙහළ නිළි රැජිනට පුළුවන්කම තිබී තිෙබනවා. ඒ ෙවනුෙවන් විෙශේෂෙයන් අෙප් පාර්ලිෙම්න්තුෙව් අප සියලු ෙදනාෙග්ම ෙගෞරවය, ආශීර්වාදය සහ ශුභාශිංසනය ෙම් ෙමොෙහොෙත් ඇයට පිරිනමන්න ඕනෑ. අපි දන්නවා, මීට කලින් ෙම් අවස්ථාව අෙප් සිනමාවට අරෙගන ආෙව් "මල්ෙදණිෙය් සිමිෙයොන්" චිතපටෙය් රඟ පෑ අෙනෝජා වීරසිංහ මහත්මිය කියලා. ෙද වන වතාවට මාලනී ෙෆොන්ෙසේකා මහත්මිය ඒ අවස්ථාව ලංකාවට අත් කර දී තිෙබනවා. ෙම් ෙවලාෙව් අපි සතුටට පත් ෙවන්න ඕනෑ.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, අප දන්නවා, ලංකාෙව් සිනමාෙව් විෙශේෂ හැරවුම් ලක්ෂɕයක් ෙම් වන විට සිදු ෙවමින් තිෙබන බව. අපි දන්නවා, ෙලස්ටර් ෙජ්ම්ස් පීරිස් මහත්මයා ආරම්භ කළ ස්වෙද්ශ වාත්සලɕ පදනම් කර ෙගන නිර්මාණය කරපු "සන්ෙද්ශය" චිතපටෙය් සිට අද අෙප් රෙට් වර්තමාන පතිභා පූර්ණ සිනමාකරුවා වන ජැක්සන් ඇන්තනි කියන සිනමා ශිල්පියාෙග් "අබා" චිතපටය දක්වා ලාංකීය ජාතිය අවදි කිරීෙම් දිශානතිය සඳහා වුවමනාෙවන්ම දායක වුණු සිනමා කර්මාන්තයක් නිර්මාණය කරන්න, විශිෂ්ට සිනමා නිර්මාණයන් නිර්මාණය කරන්න දායක ෙවලා තිෙබන බව. අද පුවත් පතක තිෙබනවා මා දැක්කා, අෙප් රෙට් විශිෂ්ට සිනමාකරුවකු වූ ජයන්ත චන්දසිරි මහත්මයා එය තවත් අභිභවා ඉදිරියට රැෙගන යන්න කටයුතු කරන්න ලෑස්ති ෙවලා තිෙබන බව. අෙප් රෙට් රාජɕ ඉතිහාසෙය්, අෙප් රාජකීය ඉතිහාසෙය් විශිෂ්ටතම චරිතයක් වුණු දුටුගැමුණු චරිතය ෙලෝක සිනමාවට රැෙගන යන්න ඔහු කටයුතු කරන්න ලැස්ති ෙවලා තිෙබනවා.
+
+මා ෙම් ෙවලාෙව් රජෙයන්, සංස්කෘතික කටයුතු හා ජාතික උරුමයන් පිළිබඳ ඇමතිතුමාෙගන් ඉල්ලා සිටිනවා, ෙම් ෙවලාෙව් මව් බිම, ජාතිය, රට ඉල්ලා සිටිනු ලබන ස්වෙද්ශ වාත්සලɕ, මව් බිමට ෙගෞරවය රැක ෙදන, අෙප් රෙට් පැරණි ඉතිහාසය වීරත්වයකින් රටට රැෙගන යන ඒ විශිෂ්ට සිනමාකරුවන් රැක ගන්න, ඔවුන්ෙග් ඒ සිනමා නිර්මාණයන් ෙලොව ඉදිරියට, ජාතɕන්තර තලයට රැෙගන යන්න පහසු වන ආකාරෙයන් ෙම් රෙට් චිතපට කලාව නැංවීමට, සිනමා කර්මාන්තය නැංවීමට විෙශේෂ අවධානයක් ෙයොමු කරන්නය කියා. ඒ තරමටම අෙප් සිනමාකරුවන් ජාතɕන්තර තලයට රැෙගන යෑම සඳහා විශිෂ්ට සිනමා නිර්මාණයන් බිහි කරලා තිෙබනවා. විෙශේෂෙයන් ලාංකීය සිනමාෙව් යා යුතු ගමන් මාර්ගය පිළිබඳව මඟ හසරක් ෙනොමැතිව තිබුණු පසු ගිය කාල ෙය් එයට මඟක් කියා දී තිෙබනවා, ගමනක් ෙපන්වා දී තිෙබනවා, අෙප් වර්තමාන විශිෂ්ට සිනමාකරුවන් විසින්. අපි දන්නවා, තමන්ට අසු වන ඕනෑම නිර්මාණයක් කරලා සමහර සිනමාකරුවන් ටාසන්ලාෙග් මාර්ගෙය් ගිය බව. ඒ වාෙග්ම බටහිර නɕාය පතයකට අනුව සමහර විෙද්ශීය රාජɕ ෙනොවන සංවිධානවල මුදල් මත තීරණය කර ෙගන සමහරු තමන්ෙග් නිර්මාණකරණෙය් ෙයදුණා. නමුත් ඉතිහාසෙය් වීරත්වයක් කැඳවා ෙගන ආපු "අබා" චිතපටය විසින් වර්තමානෙය් මුළුමහත් ජාතියම, විෙශේෂෙයන් අෙප් රෙට් පාසල් ළමයින් අවදි කළ බව අපි දන්නවා. අභිෙයෝගාත්මක තීරණයක් ඔහු ගත්තා. එක පැත්තකින්, වාණිජ පරමාර්ථය සාර්ථක ෙවයිද කියන අභිෙයෝගය ජැක්සන් ඇන්තනීට තිබුණා. අනික් පැත්ෙතන්, රට ඉදිරිෙය් ෙම් සිනමා කෘතිය දැය අවදි කරයිද කියන අභිෙයෝගය ඔහුට තිබුණා.
+
+ඒ අභිෙයෝගය ජය ගත් ජැක්සන් ඇන්තනි සිනමාකරුවාට අෙප් පාර්ලිෙම්න්තුෙව් ෙගෞරවයත් පිළිගන්වන්න ඕනෑ, ඔහු ඒ දැවැන්ත සිනමා කෘතිය නිර්මාණය කරලා ජාතිය අවදි කිරීෙම් කටයුත්තට දායකත්වය ලබා දීම පිළිබඳව. අ පි දන්නවා ෙම්
+
+2008 ෙදසැම්බර් 05 3271 3272
+
+සිනමා නිර්මාණය තුළින් ජැක්සන් ඇන්තනි අතීතය පිළිබඳව ගෙව්ෂණයකට ගිය බව. ඉතිහාසය කියන මනරම් චිතයක් නිර්මාණය කරන්න ඔහු ෙපලඹුණා. ඉතිහාසය පිළිබඳ කතිකාවත, සංවාදය මාධɕ මගින් පුළුල් තැනකට ෙගන එන්න ඒ සිනමා කෘතිය ඉවහල් වුණා. අෙප් ජාතියට එෙරහිව සිටින දුෂ්ට බලෙව්ගයන්ට අභිෙයෝගාත්මක නිර්මාණයක් හැටියටයි විෙශේෂෙයන්ම ජැක්සන් ඇන්තනි මහතාෙග් ඒ නිර්මාණ දායකත්වය අප දකින්ෙන්. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, ඛලිල් ජිබ්රාන් කවියා පවසා තිෙබනවා, “ජාතියක සැබෑ ෙසෞභාගɕɕ රැඳී පවතින්ෙන් ඒ ජාතියට උරුම රත්රන් ෙහෝ රිදී පමාණය මත ෙනොවන්ෙන්ය. එය රඳා පවතින්ෙන් ඥානය දියුණු කර ගැනීෙමහි ලා එම ජාතිය සතු වන ශකɕතාවත්, පඥාවත් එහි දරුවන්ෙග් සෘජු භාවෙය් පමාණයත් මතය” කියා. ‘අබා’ චිතපටය නිර්මාණය කළ ජැක්සන් ඇන්තනි ඒ ෙසෞභාගɕය ඇති කිරීෙම් කාර්ය භාරයට උර දී තිෙබනවා. ඒ නිසා විෙශේෂෙයන්ම සංස්කෘතික කටයුතු හා ජාතික උරුමයන් පිළිබඳ අමාතɕාංශෙය් අවධානය ෙයොමු කර ෙමවැනි නිර්මාණකරුවන් තව ෙගොන්නක් ෙම් රටට, ෙම් සමාජයට දායක කර ගැනීම සඳහා විෙශේෂෙයන් මැදිහත් වන වැඩ පිළිෙවළක් සකස් කරන්නය කියා අප ඉල්ලා සිටිනවා.
+
+ෙම් ෙමොෙහොෙත්දී දහම් පාසල් අධɕාපනය පිළිබඳවත් මා ගරු ඇමතිතුමාෙග් අවධානය ෙයොමු කරවන්න ඕනෑ. අපි දන්නවා ෙම් රෙට් අධɕාපනය ක්ෙෂේතය තුළින් සැදැහැවත් දැහැමි යහපත් දරුවන් බිහි කිරීෙමහි ලා ස්ෙව්ච්ඡාෙවන් කැප වන ආයතන සමුදායක් තමයි දහම් පාසල් කියන්ෙන්. ස්ෙව්ච්ඡාෙවන් ඒවාෙය් ෙසේවෙය් ෙයදී සිටින ගුරුවරුන් යහපත් දරු පරපුරක් නිර්මාණය කිරීෙමහි ලා, දහම් අධɕාපනය තුළින් දැහැමි සමාජයක් නිර්මාණය කිරීෙම් දිසාවට ඔවුන්ෙග් දැනුම, ඔවුන්ෙග් ශක්තිය, ඔවුන්ෙග් ශමය, ඔවුන්ෙග් කාලය ෙයොදවා තිෙබනවා. වසර 60ක ඉතිහාසයක් පුරා ෙමතරම් යහපත් බවින් යුතුව පවත්වා ෙගන ආ සමාජය දුෂ්ට සමාජයක් බවට පත් කිරීෙමහි ලා කරුණු කාරණා නිර්මාණය වන පැයක එය යහපත් පරිසරයක් බවට පත් කිරීම සඳහා දහම් පාසල් අධɕාපනය ඉතාමත්ම මෙහෝපකාරී වනවා. ෙම් වන ෙකොට අෙප් රෙට් ෙබෞද්ධ දහම් පාසල් 9,021ක් තිෙබනවා. එහි ශිෂɕ සංඛɕාව 17,69,895ක් වනවා. ඒවාෙය් ගුරු භවතුන් සංඛɕාව 1,09,607ක් වනවා. ඒ වාෙග්ම කෙතෝලික දහම් පාසල් පමාණය 975ක්, කිස්තියානි දහම් පාසල් 88ක්, හින්දු දහම් පාසල් 1,459ක් සහ මුස්ලිම් ආගමික දහම් පාසල් 420ක් තිෙබනවා.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු මන්තීතුමනි, තව මිනිත්තුවකින් ඔබතුමාෙග් කතාව අවසන් කරන්න.
+
+ගරු ආර්. එම්. පත්ම උදයශාන්ත ගුණෙසේකර මහතා (மாண்ᾗமிகு ஆர். எம். பத்ம உதயஷாந்த குணேசகர) (The Hon. R.M. Padma Udayashantha Gunasekera) මට තව විනාඩි කිහිපයක් ගන්න පුළුවන් ෙව්වි කියා හිතනවා. අෙප් ගරු ෙමොෙහොමඩ් මුසම්මිල් මන්තීතුමාෙග් කාලයත් මට ලබා ෙදන්නය කියා ඉල්ලා සිටිනවා.
+
+ඒ නිසා ආගමික කටයුතු පිළිබඳ ගරු ඇමතිතුමාෙගන් මා ඉල්ලා සිටිනවා, ෙම් දහම් පාසල් අධɕාපනය සඳහා අද දවෙසේ ෙම් රට ෙමතරම් කාලයක් යහපත් සමාජයක් නිර්මාණය කිරීෙමහි ලා හින්දු, මුස්ලිම්, කෙතෝලික, ෙබෞද්ධ, දහම් පාසල් විසින් කරපු ඒ මහා කටයුත්ත තවදුරටත් විචිතවත් කරන්න, ඒ ගුරුවරුන් ෛධර්යවත් කරන්න රජෙය් විෙශේෂ අවධානය ෙයොමු කරන්නය කියා. ඒ වාෙග්ම අද සමහර පෙද්ශවල දහම් පාසල් ඉතා දුෂ්කර තත්ත්වයකයි තිෙබන්ෙන්. ඒ නිසා ඒ සම්බන්ධ විෙශේෂ අවධානය ෙයොමු කිරීෙම් වැඩ පිළිෙවළක් නිර්මාණය කරන්නය කියාත් අප ඉල්ලා සිටිනවා.
+
+අද පාර්ලිෙම්න්තුෙව්දී කිසියම් විෙරෝධතාවක් මතු වුණා. ඒ නිසා ඒ පිළිබඳව විෙශේෂ සැලකිල්ලක් දක්වන්නය කියා අපි ගරු කථානායකතුමාෙගන් ඉල්ලා සිටිනවා. පාර්ලිෙම්න්තුෙව් තිෙබන සමහර අකටයුතුකම් පිළිබඳව, පාර්ලිෙම්න්තු ෙසේවකයන්ෙග් හද ගැෙහන ඒ විෙරෝධය ගැන විෙශේෂ සැලකිල්ලක් දක්වා ඒ ෙසේවකයන්ෙග් ගැටලුව විසඳන්න අවශɕ මැදිහත් වීම කරන්නය කියාත් අප ඉල්ලා සිටිනවා.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, ඒ වාෙග්ම ගරු කර්මාන්ත ඇමතිතුමාෙග් අවධානය ෙයොමු කිරීම සඳහා ෙම් අවස්ථාෙව්දී කර්මාන්ත අමාතɕාංශය පිළිබඳව යම් කාරණයක් මතු කරන්න ඕනෑ. ලංකාෙව් ගිනි ෙකළි භාණ්ඩ නිෂ්පාදනය ගැන ෙම් වන ෙකොට මට යම් ෙතොරතුරු වගයක් ලැබී තිෙබනවා. ලංකාෙව් ගිනි ෙකළි භාණ්ඩ නිෂ්පාදනය කිරීෙම් කර්මාන්තය කියන්ෙන් අෙප් රෙට් ෙද්ශීය කර්මාන්ත අංශෙය් විශාල පංගුවක් ඉටු කරන කර්මාන්තයක්. වර්තමානෙය් ඒ ෙද්ශීය කර්මාන්තකරුවන් මුහුණ ෙදන ගැටලුවක් තිෙබනවා. විෙශේෂෙයන්ම ෙද්ශීය කර්මාන්තකරුවන්ට තර්ජනයක් වන ආකාරෙයන් ගිනි ෙකළි භාණ්ඩ පිට රටින් ලංකාවට ෙගන්වීම සඳහා ෙම් වන විට අෙප් රෙට් පුද්ගලයන් කිහිප ෙදනකු අතට අවසරයක් ලැබී තිෙබනවා. විෙද්ශෙයන් අසීමාන්තිකව ගිනි ෙකළි භාණ්ඩ ෙගන්වීම හරහා ඇති විය හැකි හානි තිෙබනවා. එක පැත්තකින් අෙප් රෙට් ගිනි ෙකළි භාණ්ඩ නිෂ්පාදනය කිරීෙම් කර්මාන්තෙය් ෙයදී සිටින කර්මාන්තකරුවන් ෙද්ශීය වශෙයන් ඉතාමත් විශාල විපතකට පත් ෙවන්නට පුළුවන්කම තිෙබනවා. ඒ නිසා ෙම් ෙද්ශීය කර්මාන්තය රැක ගැනීම සඳහා, ෙද්ශීය කර්මාන්තකරුවන් දිරි ගැන්වීම සඳහා විෙශේෂ වැඩ පිළිෙවළකින් ෙතොරව කටයුතු කිරීෙමන් අෙප් ෙද්ශීය කර්මාන්ත කඩා වැටීමට ෙහේතු වන එවැනි තීරණයක් අර ෙගන තිෙබනවා නම් ඒ ගැන විමසීමක් කරලා, ඒ සම්බන්ධෙයන් සැලකිල්ලක් දක්වලා වැඩි අවධානය ෙයොමු කරන්නය කියා ඉල්ලා සිටිනවා. ඒ වාෙග්ම එවැනි ආකාරයට ෙද්ශීය මට්ටමින් නිෂ්පාදනය කළ හැකි ගිනි ෙකළි භාණ්ඩ වි ෙද්ශ රටවලින් ෙගන්වීෙම් තවත් අනතුරක් තිෙබනවා. ඒ හරහා සමහර ගිනි ෙකළි භාණ්ඩ අතර, නීති විෙරෝධී ෙලස අෙප් රටට අහිතකර විය හැකි භාණ්ඩ ෙගන්වීමට ඉඩ කඩක් ලැෙබ්වි. ඒ නිසා ඒ ගැන ගරු ඇමතිතුමාෙග් විෙශේෂ අවධානය ෙයොමු කරන්නය කියා අපි ඉල්ලා සිටිනවා.
+
+කර්මාන්ත අමාතɕාංශය යටෙත් ෙද්ශීය කර්මාන්ත සංවර්ධනෙය්දී අෙප් රෙට් දුෂ්කර පෙද්ශවල ගාමීය කර්මාන්ත ඉදිරියට ෙගන යාම සම්බන්ධව තිෙබන බරපතළ කරුණක් තමයි ෙවෙළඳ ෙපොළ සම්බන්ධ පශ්නය. ෙම් කාරණය මම පසු ගිය කාලය තුළ විටින් විට ෙමම ගරු සභාෙව්දී මතු කර තිෙබනවා. නිෂ්පාදනය සඳහා පාග්ධනය සපයා ගැනීෙම් අංශ විවර වී තිෙබනවා. බැංකු ණය පහසුකම් ආදී ෙවනත් පහසුකම් ලැෙබනවා. නමුත් ෙද්ශීය කර්මාන්තකරණය තුළ ඔවුන්ට දිගු කාලයක් තිස්ෙසේ පවතින්නට නම් දුෂ්කර පෙද්ශවල සිටින ඒ කර්මාන්තකරුවන් හඳුනා ෙගන, ඒ කර්මාන්ත හරහා ඔවුන් නිෂ්පාදනය කරන භාණ්ඩ ෙවෙළඳ ෙපොළක් කරා අර ෙගන ඇවිල්ලා යහපත් ආර්ථික වටපිටාවක් ඇති කර ගැනීම සඳහා විධිමත් වැඩ පිළිෙවළක් ඇති කළ යුතුයි. දැනටමත් ඒ සඳහා යම් යම් පියවර අර ෙගන තිෙබනවාය කියා මම දන්නවා. ඒ ගැන ඔබතුමා කරුණු කිහිපයක් මතු කළා. නමුත් ඒ ගැන මීට වඩා විෙශේෂ අවධානය ෙයොමු කරන්නය කියා ඉල්ලා සිටිනවා. ෙමොකද? ෙමොණරාගල දිස්තික්කෙය්, බුත්තල පෙද්ශෙය් හැම දාම ජනාධිපති සම්මාන ලබන හස්ත කර්මාන්තකරුෙවක් -උණ ලී ආශිත නිෂ්පාදන කරන කර්මාන්තකරුෙවක්- ඉන්නවා. ඔහු ඉතාම දුෙකන් තමයි ඉන්ෙන්. කාලයක සිට ඔහු ඉතා අභාගɕ සම්පන්න ඉරණමකට ලක් වී සිටිනවා. එවැනි නිර්මාණකරුවන් කියන්ෙන් රටක් තුළ ඉතා කලාතුරකින් බිහි වන අයයි. එවැනි නිර්මාණකරුවන් ඉදිරියට ෙගනැවිත්, ඔවුන්ෙග් නිර්මාණ රටට, රෙට් මිනිසුන්ට දායක කරන්නට වැඩි අවස්ථාවක් ලබා ෙදන්නය කියා මා ඉල්ලා සිටිනවා. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, ඒ සමඟම තැපැල් හා විදුලි සංෙද්ශ අමාතɕාංශය පිළිබඳවත් කරුණක් මතු කරන්නට ඕනෑ. ෙම් ෙවලාෙව් ගරු මහින්ද විෙජ්ෙසේකර ඇමතිතුමා ෙම් ගරු
+
+6 - PL 003633 - (2009/01)
+
+පාර්ලිෙම්න්තුව 3273 3274
+
+සභාෙව් නැහැ. එතුමාට ඉතාමත් වැදගත් කරුණක් කියන්න ඕනෑ. 2005 සහ 2007 වසරවල ඒකාබද්ධ තැපැල් ෙසේවෙය් "අ'' ඛණ්ඩෙය් 1 ''ආ'' ෙශේණිෙය් තැපැල් ෙසේවා නිලධාරි තනතුරුවලට කනිෂ්ඨ ෙසේවකයන් හා උප තැපැල් ස්ථානාධිපතිවරුන් බඳවා ගැනීෙම් විභාගයක් තිබුණ බව අපි දන්නවා. ඒ විභාගෙය් පතිඵල අනුව කුසලතාව මත අනුපිළිෙවළට පුරප්පාඩු 171ක් පුරවන්න තිබුණා. ඒ සඳහා උසස්වීම් ලබා දුන්නත් ඔවුන් තැපැල් අභɕාස ආයතනයට අනුයුක්ත කරලා පුහුණුව ලබා දීෙම් කියාවලිය ගරු මහින්ද විෙජ්ෙසේකර ඇමතිතුමාෙග් මැදිහත් වීම හරහා එතුමාෙග් උපෙදස් පරිදි නතර කර තිෙබනවාය කියා අපට ෙතොරතුරු තිෙබනවා. ෙම් සම්බන්ධව වැඩි අවධානයක් ෙයොමු කරන්නට ඕනෑ ෙවලා තිෙබනවා. ඒ විතරක් ෙනොෙවයි. ඒ ඒ නිලධාරින් ඒකාබද්ධ තැපැල් ෙසේවයට ඇතුළත් කර ගැනීම සඳහා ගරු ඇමතිතුමාෙග් කාර්ය මණ්ඩලෙය් ෙල්කම්වරෙයකුෙග් මැදිහත් වීෙමන් වන්නට පුළුවන්, ගරු ඇමතිතුමා විසින් නිර්ෙද්ශ කරන ලද ෙවනත් නාම ෙල්ඛනයක් ඒ අමාතɕාංශෙය් ෙල්කම්තුමාට ෙයොමු කර තිෙබනවා. මා ළඟ ෙතොරතුරු තිෙබනවා. ඒවා සියල්ලම මා හැන්සාඩ් වාර්තාවට ඇතුළත් කරන ෙලස ඉල්ලමින් සභාගත* කරනවා. ෙමය සම්පූර්ණෙයන් චකෙල්ඛන උල්ලංඝනය කිරීමක්. ෙමය ඒකාබද්ධ තැපැල් ෙසේවයට බඳවා ගැනීෙම් කියා පටිපාටිය උල්ලංඝනය කිරීමක් කියලා මා අවධාරණය කරනවා.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, ඊටත් වඩා බරපතළ කාරණයක් සිදු ෙවනවා. ෙජɕෂ්ඨතා, පමුඛතා මත පුරප්පාඩු පිරවීම කාලයක් තිස්ෙසේ තැපැල් ෙසේවෙය් සිදු වුෙණ් නැහැ. දිගු කාලයක් තිස්ෙසේ එනම්, 1998, 2001, 2002 වර්ෂවල බඳවා ගත් පිරිස විෙශේෂෙයන් 683ක් වාෙග් පමාණයක් උසස් වීම් බලාෙපොෙරොත්තුෙවන් සිටියා. ඒ අයට උසස් වීම් ලබා දීෙම් අවස්ථාව ෙම් මඟින් අහිමි ෙවලා තිෙබනවා. ඒ නිසා ඒ ෙවනුවට අලුත් තනතුරකුත් ගරු ඇමතිවරයා හඳුන්වා දී තිෙබනවා. අනියම් කනිෂ්ඨ ෙසේවකයන් වශෙයන් තනතුරු ඇති කර, ෙපෞද්ගලිකව ඇමතිතුමාෙග් ෙහෝ ෙවනත් කාෙග් ෙහෝ වුවමනාවක් පරිදි විෙශේෂෙයන්ම මාතර දිස්තික්කෙය් යම් පිරිසකට තනතුරු ලබා දීෙම් කටයුත්තක් ආරම්භ කර තිෙබනවා. ඒ නිසා අවිධිමත් කියාවලියක් හරහා ෙම් තනතුරු ලබා ෙදන්නට උත්සාහ කරනවා නම්, විෙශේෂෙයන් කාලයක් තිස්ෙසේ පවතින ෙම් තැපැල් ෙසේවා අංශය විධිමත් කිරීෙම් කාර්යෙය්දී එය බරපතළ කාරණාවක් ෙවනවා. ඒ විතරක් ෙනොෙවයි. අසාධාරණයට ලක් වන ඒ සියලු පිරිස් අධිකරණයට යන්නට සූදානම් ෙවලා සිටිනවා. ඒ නිසා එය නිවැරදි කිරීම සම්බන්ධව ඉදිරි කාලය තුළ යම් කාර්ය භාරයක් සිදු කරනවාද, නැද්ද කියන එක සම්බන්ධව අද දවෙසේ ෙහෝ උත්තරයක් පාර්ලිෙම්න්තුවට ලබා ෙදන ෙලස ගරු අමාතɕතුමාෙගන් ඉල්ලා සිටිනවා. ඒ කාරණය අවධාරණය කරමින් මා නවතිනවා. ෙබොෙහොම ස්තුතියි. මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ෙබොෙහොම ස්තුතියි. ගරු මහාචාර්ය තිස්ස විතාරණ ඇමතිතුමා.
+
+[අ.භා. 2.30] ගරු මහාචාර්ය තිස්ස විතාරණ මහතා (විදɕා හා තාක්ෂණ අමාතɕතුමා)
+
+(மாண்ᾗமிகு ேபராசிாியர் திஸ்ஸ விதாரண - விஞ்ஞான, ெதாழில்ᾒட்பவியல் அைமச்சர்)
+
+(The Hon. (Prof.) Tissa Vitharana - Minister of Science and Technology)
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ෙසේෙගන් අවසරයි. ෙලොව තුළත්, අප රටටත් බලපාන ආර්ථික අර්බුදයක් අප ඉදිරිෙය් තිෙබනවා. එය පදනම් කර ෙගන රටක් හැටියට, ජාතියක්
+
+හැටියට අපට විශාල අභිෙයෝගවලට මුහුණ ෙදන්නට සිදු ෙවනවා. ෙම් තත්ත්වයට මුහුණ ෙදන්නට විදɕාවටයි, තාක්ෂණයටයි වැදගත් කර්තවɕයක් ඉෂ්ට කරන්නට තිෙබනවා. විෙශේෂෙයන් පිට රට ෙවෙළඳ ෙපොළ බහිනවාත් එක්කම අෙප් අපනයනයන් බැහැ ෙගන යනවා. නව තාක්ෂණය ඇතුළු කරමින් ඒවා නැවත ශක්තිමත් කර, දියුණු කිරීමට අපට කටයුතු කරන්නට තිෙබනවා. ඒ පැත්ෙතන් මා කියන්නට සතුටුයි, ෙලෝකෙය් මතු වී ෙගන එන නව තාක්ෂණ රැල්ල වන නිනිති තාක්ෂණය නැත්නම් නැෙනෝ තාක්ෂණය අප රට තුළ දියුණු කිරීමට ෙමවර අය වැෙයන් ගරු ජනාධිපතිතුමාත්, භාණ්ඩාගාරයත් විෙශේෂ සහායයක් ලබා දීලා තිෙබන බව. එය පදනම් කර ෙගන අපි ඒ තාක්ෂණය දියුණු කිරීෙම් මුල් පියවර වශෙයන් ස්ලින්ෙටක් ආයතනය පිහිටු වීම ෙම් අවුරුද්ද තුළ කියාත්මක කර තිෙබනවා. ෙම් තාක්ෂණය හරහා අෙප් කර්මාන්තවලට, විෙශේෂෙයන් ඇඟලුම් කර්මාන්තයට නව පණක් ලබා දීමට බලාෙපොෙරොත්තු ෙවනවා. එෙමන්ම අෙනකුත් තාක්ෂණ, අෙප් රබර් ටයර් තාක්ෂණය වැනි තාක්ෂණවලටත් නව ශක්තියක් ලබා දීමට අප බලාෙපොෙරොත්තු ෙවනවා.
+
+ඒ එක්කම, විෂබීජවලින් ෙතොරව ෙම්වා අපනයනය කිරීම සඳහා දැන් විශාල මුදලක් වැය ෙවනවා. ඒක නතර කරලා අෙප් රෙට් කර්මාන්ත දියුණු කිරීමට රුකුලක් වන විකිරණ තාක්ෂණ යන්තය - gamma irradiator එක- ලබන අවුරුද්ද තුළ සවි කිරීමට අප බලාෙපොෙරොත්තු ෙවනවා. නවීන තාක්ෂණය දියුණු කිරීම සඳහා විශ්වවිදɕාල හරහා අෙප් පර්ෙය්ෂණ ආයතනවලින් යම් වැඩ පිළිෙවළක් ඉදිරිෙය්දී ඇති කිරීමටත් අප බලාෙපොෙරොත්තු ෙවනවා. අෙනක් පැත්ෙතන්, අෙප් විෙද්ශ විනිමය ෙබ්රා ගැනීමට නම් ආනයනයන් සඳහා යන වියදම අඩු කළ යුතුව තිෙබනවා. පිට රටින් ෙගන්වන ෙද් අප රට තුළ වගා කරන්නට පුළුවන් නම්, නිෂ්පාදනය කරන්නට පුළුවන් නම් ඒක උපරිම ෙලස කළ යුතුව තිෙබනවා. ඒ සඳහා අය වැෙයන් යම් රුකුලක් ලැබිලා තිෙබනවා. කුඩා, සුළු හා මධɕම පරිමාණ වɕාපාර, වɕාපෘති විෙශේෂෙයන් ගම් මට්ටෙමන් දියුණු කරපු තරමට තමයි අපට ඒ තත්ත්වය ෙවනස් කර ෙගන, අෙප් ෙම් විෙද්ශ විනිමය වියදම අඩු කරලා, අෙප් ආර්ථිකය නංවන්නට පුළුවන් වන්ෙන්. ඉතින් ෙමය කිරීමට අෙප් අමාතɕාංශයට සම්බන්ධ පර්ෙය්ෂණ ආයතන වන අයිටීඅයි, නර්ඩ්, ආතර් සී. ක්ලාක් වැනි ආයතනත්, අෙනක් පැත්ෙතන් විශ්වවිදɕාල සම්බන්ධ කර ෙගන ඒ විදɕාඥයන්ට පර්ෙය්ෂණ කිරීමට අවශɕ සහායත් ලබා දී ලබන වර්ෂය තුළ කටයුතු කරන්නට අප බලාෙපොෙරොත්තු ෙවනවා. දැන් විශාල නාස්තියක් සිදු ෙවනවා. ෙම් ඇති කරන තාක්ෂණය හරහා ගම් මට්ටෙමන් ඒ නාස්තිය අඩු කරන කර්මාන්තකරණයක් ඇති කරන්නට අප බලාෙපොෙරොත්තු ෙවනවා. ඒ වාෙග්ම විදාතා වැඩ පිළිෙවළ හරහා ගම් මට්ටමට ෙම් තාක්ෂණය ලබා ෙදනවාත් එක්කම ෙතොරතුරු තාක්ෂණය පිළිබඳ පුහුණුවත් ලබා දීලා ඒ අංශෙය් රැකියා අවස්ථාවලට අෙප් තරුණ තරුණියන්ට පිවිෙසන්න මාර්ගයක් ඇති කරන්නත් අපි බලාෙපොෙරොත්තු ෙවනවා.
+
+ෙම් එක්කම බලශක්ති අර්බුදයකුත් තිෙබනවා. එයට මුහුණ දීම සඳහා දැනටම ග්ලිරිසීඩියා වගාව දියුණු කරන වැඩ පිළිෙවළක් අෙප් විකල්ප බලශක්ති ඒකකය හරහා කියාත්මක කර ෙගන යනවා. ඒ එක්කම මම බලශක්ති අමාතɕාංශෙයන් ඒකට ලැබිලා තිෙබන සහාය අගය කරනවා. ඒ හරහා අපි බලාෙපොෙරොත්තු ෙවනවා, අෙප් විදුලි බලෙයන් සියයට 20ක්වත් අප රට තුළ වගා කරන ග්ලිරිසීඩියා හරහා ලබා ෙදන තැනකට කමානුකූලව නංවන්න. ෙම් එක්කම ජීව ඉන්ධන හා ජීව වායු නිෂ්පාදනය කිරීම වැඩි කළ තරමට පිට රටින් ඉන්ධන ෙගන්වීම අපට සීමා කරන්න පුළුවන් ෙවයි. ඒ පැත්ත ගැනත් දැනටම අපි පත් කළ ෙකොමිටිෙයන් ඉදිරිපත් කර තිෙබන ෙයෝජනා එන අවුරුද්ද තුළ කියාත්මක කිරීම ආරම්භ කරන්නත් අපි බලාෙපොෙරොත්තු ෙවනවා. ෙම්වා සියල්ලම කරන අතෙර් අෙප් විදɕාඥයින්, තාක්ෂණෙව්දීන් අප රට අත් හැර යන තත්ත්වය ට ඉඩ ෙනොදී පුළුවන් තරම් අප රට තුළම රඳවා ෙගන අවශɕ පහසුකම් දියුණු කරමින් අෙප් පර්ෙය්ෂණ කටයුතු වැඩිදියුණු කරන්නත් අපි බලාෙපොෙරොත්තු ෙවනවා.
+
+[ගරු ආර්. එම්. පත්ම උදයශාන්ත ගුණෙසේකර මහතා]
+
+* ලියවිලි ඉදිරිපත් ෙනොකරන ලදී. ஆவணம் சமர்ப்பிக்கப்படவில்ைல. Documents not tendered.
+
+2008 ෙදසැම්බර් 05 3275 3276
+
+මෙග් කාලය අවසාන ෙව්ෙගන යනවා. අෙප් අමාතɕාංශෙය් කාර්යයන් සඳහා සහාය දී කටයුතු කරන සියලු නිලධාරි මහත්ම මහත්මීන්ට මෙග් අවංකාදර ස්තුතිය පළ කරනවා. ඒ අයට අපහසුතා තිබියදීත්, මුදල් හිඟයක් තිබියදීත් ඒ අයෙග් සහාය ඇතිව ෙම් කටයුත්ත ඉදිරියට ෙගන යන්න අපට පුළුවන් වුෙණොත් අප රට මුහුණ ෙදන ෙම් අභිෙයෝග හරහා තරමක්වත් අපට ෙගොඩ එන්න පුළුවන් ෙවයි. විෙශේෂෙයන් අර නව තාක්ෂණය අපි දියුණු කෙළොත් ෙලෝකෙය් අනිකුත් තරගකාරි රටවල්වල ආර්ථිකය වැෙටනවාත් එක්කම අපට ඉස්මතු වන්නත් අවස්ථාවක් බිහි ෙවන්න පුළුවන්. ෙම් අමාරු තත්ත්වය පදනම් කර ෙගන අප රට ෙගොඩ නංවා ගන්නත් අවස්ථාවක් මතු ෙවන්න ඉඩ තිෙබනවාය කියන එක මතක් කරමින් මම මෙග් වචන ස්වල්පය අවසන් කරනවා. [අ.භා. 2.36] ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) Thank you, Venerable Presiding Member, for giving me this opportunity to speak on the Special Committee Report, which deals with the Votes of multiple Ministries. I think this is a new phenomenon and I am made to understand that it was a success; so we are moving forward. I, being a Member of that Committee, appreciate the hard work that has been put in by all the officials. Venerable Presiding Member, at this particular moment, before I start speaking on that, I would like to make reference to the statement made by the Hon. Prime Minister in this House. As you know, with the unbearable cost of living and the economy in a derelict situation, we, the Venerable Thiniyawala Palitha Thero, the Corruption Watch and myself, went to court. There was a timely, creditable judgment obtained; thanks to the Supreme Court and the Chief Justice, through which redress was sought to be given to the people. But, today there was a statement made by the Hon. Prime Minister that there will be a Rs. 20 reduction in the price of petrol and a Rs. 10 reduction in the price of furnace oil, which we appreciate. Reduction of prices, which helps the betterment of the people of this country, we appreciate at all times. But, the ad hoc actions that are being advocated by the Government are sinister and puerile. Yesterday, the same Government increased diesel taxes by Rs. 15. So, the benefit that should go down to the consumer was not allowed to go down. Venerable Presiding Member, I will take this opportunity to reflect on something else as I am restrained because we are having a case pending in court.
+
+Any reduction, as I said, is appreciated. Special thanks need to be extended to the Supreme Court and the Chief Justice for the timely intervention. In the process, what was directed by the Supreme Court or the Judges was to ensure a non-political, bipartisan approach to have a national policy, not an ad hoc policy brought in today, changed tomorrow, which would not be for the healthiness of the economy of the country. So, Venerable Presiding Member, I take this opportunity to say, in the financial meltdown that is taking place, let us bring about an element of predictability; let there be sustainability; let
+
+it be rational; let it be practical and let us come up with the national policy that is expected. When I bind myself to ensure that we work non-politically, I do so. But, the Prime Minister made a statement and the Government is playing politics. Now, on this particular score, it is absolutely essential to say that, when the cost of production of a litre of petrol today is Rs. 28, reducing the price of petrol by Rs. 20, bringing it down from Rs. 142 to Rs. 122 would not solve the problem. Earlier when we went to court, it was five times the cost of production; now it is four times the cost of production. That is 400 per cent. That is not what we expect. I see some very attentive as well as experienced Ministers, the Hon. (Dr.) Rajitha Senaratne, the Hon. Dharmadasa Banda, The Hon. Kumara Welgama, the Hon. Dew Gunasekara, The Hon. (Prof.) Tissa Vitharana, in this House. I am sure you would have requested in the Cabinet to ensure that there is an element of reasonableness. You do not need a Government to give petrol at 400 per cent its cost of production. You would not allow the private sector to make a 25 per cent profit if you go to the Consumer Affairs Authority. So, where is the rationale? I am sure you would take this and go forward. The Hon. (Dr.) Rajitha Senaratne is eagerly waiting to intervene at this particular moment. Yes, my dear Friend.
+
+ගරු ෛවදɕ රාජිත ෙසේනාරත්න මහතා (மாண்ᾗமிகு ைவத்திய கலாநிதி ராஜித ேசனாரத்ன) (The Hon (Dr.) Rajitha Senaratne) Hon. Member, now we are subsidizing the Ceylon Electricity Board. We have not increased the electricity fare even by one cent. Developed countries like the UK and so on have increased it when the fuel prices went up. Also, we are subsidizing the CTB. We have got down 600 more buses and we are also subsidizing the Railway Department. We are paying for all that.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) Mihin Air? ගරු ෛවදɕ රාජිත ෙසේනාරත්න මහතා (மாண்ᾗமிகு ைவத்திய கலாநிதி ராஜித ேசனாரத்ன) (The Hon (Dr.) Rajitha Senaratne) We have not reduced a single welfare measure introduced by this Government and also, we have not privatized a single institution to reduce the Budget deficit. We have been carrying on with all that.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) Okay. Now that my Friend intervened, I will respond in due course. But, who told you to subsidize the CTB?
+
+ගරු ෛවදɕ රාජිත ෙසේනාරත්න මහතා (மாண்ᾗமிகு ைவத்திய கலாநிதி ராஜித ேசனாரத்ன) (The Hon (Dr.) Rajitha Senaratne) The people of this country.
+
+පාර්ලිෙම්න්තුව 3277 3278
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) My dear Friend – ගරු ෛවදɕ රාජිත ෙසේනාරත්න මහතා (மாண்ᾗமிகு ைவத்திய கலாநிதி ராஜித ேசனாரத்ன) (The Hon (Dr.) Rajitha Senaratne) That is why the “Api Wawamu-Rata Nagamu” programme is there.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) රට හදනවා ෙනොෙවයි, රට කඩනවා ෙන්? රට නැති කරනවා ෙන්? රට නාස්ති කරනවා ෙන්? ඔබතුමා රට හදන්න හැදුවාට ඔබතුමාෙග් අමාතɕාංශයට දීලා තිෙබන්ෙන් මිලියන 200යි. ''ෙම් අහස අෙප්'' කියලා ෙකොයි ෙලෝෙකටද යන මිහින් එයාර් එකට මිලියන 6,000ක් දීලා. ෙමොන අපරාධයක් කරනවා ද? ලංකාෙව් දරුවන්ට කිරි වීදුරුවක් ෙදනවාය කියලා ෙන්ද, ගරුතර ස්වාමීන් වහන්ෙසේලා ගිහිල්ලා ඡන්දය ඉල්ලුෙව්. මුළු රෙට්ම සමස්ත පාසල් පද්ධතිය තුළ ඉන්නවා, ළමයින් ලක්ෂ 39ක්. 34,000ට විතරයි කිරි වීදුරුවක් ෙදන්ෙන්. නමුත් මිහින් එයාර් එකට ෙමච්චර මුදලක් ෙවන් කරනවා. මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස, මිලියන 6,000ක් ''මිහින් එයාර්'' එකට ෙදනවා. අනුශාසනා කරලාවත් ෙම්ක හරි ගස්සන්න ෙකෝ.
+
+The direction of the Supreme Court - I must say especially the Chief Justice was commendable - was to do it in a completely different way. So, let us come up with a national policy. You are in Government today; we will be in Government tomorrow. Let that be a bipartisan policy. That should be the agreement. I least expected the Hon. Prime Minister to reduce the price of petrol by only Rs. 20 when it can be reduced by Rs. 60 or Rs. 70. This would not do. When you give -
+
+ගරු ෛවදɕ රාජිත ෙසේනාරත්න මහතා (மாண்ᾗமிகு ைவத்திய கலாநிதி ராஜித ேசனாரத்ன) (The Hon (Dr.) Rajitha Senaratne) Yes, we can cut down all other subsidies and reduce fuel prices like our Government, the Hon. Ranil Wickremasinghe’s Government, did between 2002 and 2004.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) Hon. Minister, tell me one area - ගරු ෛවදɕ රාජිත ෙසේනාරත්න මහතා (மாண்ᾗமிகு ைவத்திய கலாநிதி ராஜித ேசனாரத்ன) (The Hon (Dr.) Rajitha Senaratne) Then, all welfare measures were cut down, Hon. Member, and they showed that the -
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) Venerable Presiding Member, I have been generous to my Friend. But, Hon. Minister, you take time from the Government. Hon. Minister, I am asking you, why should
+
+a person who does not have electricity but goes to work by bus pay for these electricity subsidies? You basically give that directive to him. We will take up a hypothetical case. Somawathie who lives in Nawala does not have electricity and she goes to work - we will say she goes to work in the “Maga Neguma”. දැන් බංෙකොෙලොත් ෙවලා - by bus. Why should Somawathie, who does not have electricity, pay an additional amount to go by bus?
+
+ගරු ෛවදɕ රාජිත ෙසේනාරත්න මහතා (மாண்ᾗமிகு ைவத்திய கலாநிதி ராஜித ேசனாரத்ன) (The Hon (Dr.) Rajitha Senaratne) That is why we subsidize - ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) Why should you subsidize it? - [Interruption.] No, you are getting everybody to pay for the sins of others. Do not let that be done. ෙම්ක හරි වැඩක් ෙන්.
+
+බලන්න, අද ජාති වැඩක් ෙන් ෙවලා තිෙබන්ෙන්. ෙම් රෙට් ඕනෑ තරම් මිනිස්සු මරනවා. නමුත් ස්වාමීන් වහන්ෙසේලා ෙගෙනනවා සතුන් ආරක්ෂා කරන්න පනතක්. ෙකොයි ෙදවියන්ට කියන්නද, මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස. ෙම්ක ෙන් අප අහන්ෙන්. සතුන් මැෙරන එක ගැන හරිම අමාරුයි, මිනිස්සු මැරුණාට කමක් නැහැ. ඒ මිනිස්සු ෙන්. ෙම් වාෙග් පව්කාර වැඩක් තිෙබනවා ද? ෙමන්න ෙම් වාෙග් ෙද්වලුයි ෙවන්ෙන්. ෙතල් මිල වැඩි වනවා නම් පාවිච්චි කරන අයට ෙගවන්න දීලා පාවිච්චි ෙනොකරන අයට ෙතල්වලින් සහනාධාරයක් ෙදන්න එපා යැ? වම් අත දන්ෙන් නැහැ, දකුණු අත කරන්ෙන් ෙමොනවාද කියා. ෙම්කයි ෙම් ආණ්ඩුවට ෙවලා තිෙබන්ෙන්. බලන්න, ඔබතුමා ඉදිරිෙය් ඉන්න ගරු ඩිව් ගුණෙසේකර ඇමතිතුමා සාමය තකා වැඩ කරනවා. ඉස්ෙසල්ලා ෙමොනවා ද කිව්ෙව්? ඉස්ෙසල්ලා කිව්වා, මාස තුෙනන් ෙගෞරවණීය සාමය ෙගෙනනවාය කියලා. ඊට පස්ෙසේ මාවිල් ආරු ගැන කියලා කිව්වා, ෙම් අවුරුද්ෙද් පභාකරන්ට උපන් දිනය සමරන්න ෙදන්ෙන් නැහැයි කියලා. දැන් ෙමොකක් ද වුෙණ්? ස්ථාන 22ක, ෙතොප්පිගල, සාම්පූර් හැම තැනම කරලා,- [බාධා කිරීමක්] ඔන්න බලන්න. කළුතරින්මයි මට,-
+
+ගරු කුමාර ෙවල්ගම මහතා (කර්මාන්ත සංවර්ධන අමාතɕතුමා)
+
+(மாண்ᾗமிகு குமார ெவல்கம - ைகத்ெதாழில் அபிவிᾞத்தி அைமச்சர்)
+
+(The Hon. Kumara Welgama - Minister of Industrial Development)
+
+දැන් අෙප් හමුදාව කිලිෙනොච්චිය දක්වා ගිහිල්ලා තිෙබනවා. ඔබතුමා ඒකට සන්ෙතෝෂ වනවා ද, නැද්ද?
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) අෙන්, කිලිෙනොච්චිය විතරක් ෙනොෙවයි. මුලතිව් අල්ලලා ඔක්ෙකොම ඉවර කරන්න පුළුවන් නම් මම තමයි වැඩිෙයන්ම සතුටු වන්ෙන්. ෙමොකද, මෙග් ෙද්ශපාලන ගුරු ලලිත් ඇතුලත්මුදලි මැතිතුමාෙග් කාලෙය් වඩමාරච්චි ඇල්ලුවාමත් මම ඒක කිව්වා.
+
+ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) ඒක තමයි කියන්ෙන්. ඉතින් ෙපොඩ්ඩක් ඉන්න. ෙම් කාල සීමාව- [බාධා කිරීමක්]
+
+2008 ෙදසැම්බර් 05 3279 3280
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඔබතුමන්ලා පළාත් සභා ඡන්ෙදට ඉස්ෙසල්ලා කිලිෙනොච්චියට ගියා. කළුතර දිස්තික්කය නිෙයෝජනය කරන, අප ගරු කරන අගමැතිතුමා කිව්වා, හූවක් දුර තිෙබනවාය කියා. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, හූවක් දුර කියන්ෙන් ඉන්දියාවට තිෙබන දුර ද?
+
+ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) නැහැ, නැහැ. අපි ගම්බද භාෂාෙවන් කියන්ෙන් එෙහම තමයි. අපි ගෙම් මිනිස්සු ෙන්. අපි ෙකොළඹ මිනිස්සු ෙනොෙවයි.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඉතින් හූවක් දුර කියන්ෙන්,-[බාධා කිරීමක්] ෙචන්නායිවලටත් ගිහිල්ලා හූවක් දුර කියලා කියනවා ද?
+
+ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) අපි ෙකොළඹ මිනිස්සු ෙනොෙවයි. අපි ගෙම් මිනිස්සු. අපි භාර්යාවට කියන්ෙන් ''පවුල'' කියලායි.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස, ෙමතුමන්ලා සරම් ඇඳ ෙගන කරන වැඩ අප ටයි ෙකෝට් ඇඳ ෙගන කරනවා. ලජ්ජා නැහැ, ඒක කියන්න. ධීවරයින්ෙග් පශ්නයක් වුණාම පාර්ලිෙම්න්තුෙව් කථා කෙළේ ෙම් ටයි ෙකෝට් ගහන එක් ෙකනායි. නිර්ධන පන්තිය නිෙයෝජනය කරනවා නම් කරන්න එෙහම නම් ෙමයා එපායැ. ෙම් රෙට් ෙත් කර්මාන්තය ගැන කථා කරන්ෙන් අපියි. ෙම් රෙට් ෙතල් පශ්නය ගැන කිව්වා නම් කිව්ෙව් ෙම් ටයි ෙකෝටි ඇඳපු එක් ෙකනායි. ෙමොකක්ද, ඒෙක් තිෙබන වරද? සරමක් ඇඳ ෙගන, ෙබොරුවට ජාතිකත්වය ගැන කථා කරනවා. ෙබොරු කරන්න එන්න එපා. මම ඔබතුමාට ගරු කරනවා. නමුත් ඔය වාෙග් ෙබොරු වැඩ කරන්න එපා. [බාධා කිරීමක්] ඔබතුමාෙග් ජනාධිපතිතුමා ඉතාලි යන ෙකොට ෙමොකක් ද ඇන්ෙද්? ටයි ෙකෝට් ඇඳ ෙගන ගිෙය්. නිකම් ෙබොරුවට ෙමෙහේ විතරක් ෙම්වා කරනවා. ස්වාමීන් වහන්ෙසේලා ළඟට ගියාම එකක් කරනවා. හම්බන්ෙතොට ගියාම,- [බාධා කිරීමක්] ඉඳ ගන්න, නිකම් ෙබොරුවට කෙඩ් යන්ෙන් නැතිව. [බාධා කිරීමක්] 2005 නිදහස් උත්සවය සමරන ෙකොට මහින්ද රාජපක්ෂ ජනාධිපතිතුමා කිව්ෙව් ෙමොකක් ද? ''කරුණාකර, මට පශස්ති ගී කියන්න එපා, මාව සංවර්ධනාත්මක විධියට විෙව්චනය කරන්න'' කියායි කිව්ෙව්. ඒවා කරන්න. ෙම් වාෙග් කෙඩ් ගිහිල්ලා ඇමතිකම් ගන්න ඕනෑ නැහැ. ඔබතුමාට ඕනෑ නැහැ, රාජිතට ඕනෑ නැහැ. ඔබතුමන්ලා ජනාධිපතිතුමා ෙහොඳට දන්නවා. අහිංසක ජනතාවට අද ෙතල් මිල රුපියල් 20කින් විතරයි අඩු කෙළේ. කරුණාකර,- [බාධා කිරීමක්] ඉතින් ඊට ඉස්සර ෙමොකද ෙම් කරන්ෙන්? ඊෙය් ඩීසල්වලට බද්ද රුපියල් 15කින් වැඩි කළා. අද බද්ද 20කින් අඩු කරනවා. ෙමොකක්ද ෙම්ෙක් ෙත්රුම?
+
+ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) ඔබතුමා ෙතල් මිල අඩු කරන ෙකොටත් කෑ ගහනවා.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) අෙන් ඇමතිතුමනි, රුපියල් 60කින් අඩු කරන්න තිෙබන එක රුපියල් 20කින් අඩු කළාට හරි යන්ෙන් නැහැ. අප නිර්ෙද්ශපාලනය - [බාධා කිරීමක්] ඔය සම්බන්ධෙයන් කථා කෙළේ නැත්ෙත්,- [බාධා කිරීමක්] මෙග් මිත ගරු රාජිත ෙසේනාරත්න ඇමතිතුමාත් කථා කරපු නිසා, මම ෙම්ක ෙම් අවස්ථාෙව්දී කියවන්නම්. ෙම්කයි judgment එක.
+
+I quote from the Supreme Court judgment dated 28th, November, 2008:
+
+“The Petitioners in application No. 536/08 have included a specific prayer that the price of petroleum products be reduced. It is clear from the averments in the petition that as much as Rs. 72/- is now levied cumulatively by way of taxes on each litre of petrol. The case of the Petitioners is that this levy is being made to meet the payments that are due on the “Hedging instrument.” Whatever be the merits of that assertion, we are of the view ….” It says, "we”, that is the Supreme Court including the Chief Justice.
+
+“…. that taxes imposed on petroleum products affects the people directly. In the circumstances Secretary to the Treasury is directed to review the taxes that are now imposed on petroleum products ...”
+
+I am happy because at least there is a sensible secretary in the Treasury, Mr. Sumith Abeysinghe. Again I quote:
+
+"....and submit a Report to this Court on the next date ….” That being the 15th of December. “ ….in order to rationalize the amount levied as taxes and the current cost of petroleum products without the “Hedging instrument”. Thereupon the Court would consider whether a formula could be laid down as to the pricing of petroleum products.
+
+The 2nd Petitioner in the application ….”
+
+That happened to me. The petitioners were the Ven. Thiniyawala Palitha Thero - අපි දන්න, නාලන්දාරාමෙය් වැඩ වසන අෙප් තිනියාවල පාලිත ස්වාමීන් වහන්ෙසේත් - Corruption Watch එකත්, මමත් එය ඉදිරිපත් කරන අවස්ථාෙව්දී,-
+
+It further states, I quote:
+
+“…. 536/2008 who is present in Court has agreed to cooperate in the matter of rationalizing taxes in respect of petroleum which he says could be viewed as a national issue above party politics. He may submit suggestions to the Secretary to the Treasury.”
+
+This is the reason why even when we had a seminar, my Colleague, the Hon. Dayasiri Jayasekera and myself did not even refer to a formula. We did not expect the Government to come and play politics here.
+
+I am also tabling* the letter I wrote after the direction of the Supreme Court to thank them on behalf of the people once again. I wrote that on the 2nd of December. On the 3rd of December, I get a letter from the Secretary to the Treasury. It states, I quote:
+
+* කථාව අවසානෙය් පළ කර ඇත. உைரயினிᾠதியில் தரப்பட்ᾌள்ளᾐ. Produced at end of speech.
+
+පාර්ලිෙම්න්තුව 3281 3282
+
+“Ravi Karunanayake……. Your letter dated 02nd December 2008 on the above subject refers. I thank you for the concerns indicated in the above regard. As per the direction of the Supreme Court made on 28th November 2008, I appreciate very much if you could please forward your written suggestions in relation to the matter of rationalizing taxes levied, and for formulating the pricing formula on petroleum products at your earliest.” I called him and told him. “Let us meet. I do not want to politicize this matter. I do not mind coming and discussing - [Interruption.] I mean, without talking you must try to reduce the price. Today, the cost of petrol is Rs. 29 and the selling price is Rs. 122. You have a spread of about Rs. 109 and out of that, Rs. 52 is taxes. I do not mind that; you have to impose taxes, but you do not need to impose taxes amounting to four times of the cost of production. That is 400 times. That is what - [Interruption.] ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama)
+
+Hon. Member, we cannot sell it Rs. 29. I am asking you, which country is selling at Rs. 29 in this world? You just tell me.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+The problem that you all have is, you always catch the tail without catching the head. That is the problem. Wait till I speak. You listen to what I am saying. After the horse has bolted, they decide to close the stable doors. But, the horse has bolted. That is what you do.
+
+මිහින් එයාර් එකට රුපියල් මිලියන 3,000ක් ෙදන්න එපාය කියලා අපි පසු ගිය අවුරුද්ෙද් කිව්වාම කිව්වා, "ෙම් ද්ෙව්ෂ සහගතවයි කථා කරන්ෙන්" කියලා. "ඇයි, දඹදිව යන්න ඉඩ ෙදන්ෙන් නැද්ද?" කියලා ඇහැව්වා. මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස, දඹදිව ගියා නම් ෙකොෙහොමද ගිෙය්? Trishaw එෙකන්ද ගිෙය්? ෙමොකද, මිහින් එයාර් වහලා තිබුණා ෙන්? ඉතින් ෙම් අසතɕ පකාශ කරන්ෙන් නැතුව හරියට කථා කරන්න.
+
+All I am saying is, tell me one place which has 400 per cent taxation. Tell me one country. I am not suggesting Rs. 29. We can basically try to politicize by saying, “Okay, sell it at Rs. 35” or “Sell it at Rs. 45”. No. You, the Government has to have duties. We accept that. That is why we thought that we will have a closed door talk and come into a decision. You all are in the Government today, we will be in Government tomorrow, so that you can depoliticize this issue. When the fluctuations of world prices - ඇයි, ෙමතැන හිටිෙය්, රජ බඩු ටිකක්; ෙලෝක ෙවෙළඳ ෙපොෙළේ මිල වැඩි වන ෙකොට ෙමෙහත් වැඩි ෙවනවා නම් ෙමොකටද ආණ්ඩුවක් කියපු අය. අද, ෙකෝ ඒ අය? අද පන්දම් අල්ලන්නවත් නැහැ. අද ඉන්ෙන්, අද වැඩ කරන්ෙන් රාජිත ෙසේනාරත්නලා, ධර්මදාස බණ්ඩලා වාෙග් කට්ටිය. [බාධා කිරීමක්] ඔටුන්න දමා ෙගන ඉන්ෙන්. අද ප්ලග් එක ගහන්න ෙහොයනවා. ප්ලග් එක ගහන්න ෙකොෙහේද තිෙබන්ෙන් කියලා ෙහොයනවා. අද ප්ලග් ගහන්ෙන් නැහැ, අද පන්දම් ගහනවා.
+
+ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) ඒකටත් formula එකක් හදන්න. [බාධා කිරීමක්] ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඒ formula තිබුෙණොත් අෙත් පත්තු ෙවයි. [බාධා කිරීමක්] ෙම් වාෙග් අවස්ථා ලබා දීම සම්බන්ධව අපි ෙශේෂ්ඨාධිකරණයට ගරු කරනවා. අපි නිර්ෙද්ශපාලනීකරණයක් කළා. කරුණාකරලා කථා කරන්න. ෙහට වුණත් කමක් නැහැ. ෙහට ෙනොෙවයි, අනිද්දා. අපි මුදල් අමාතɕංශෙය් ෙල්කම් සමඟ කථා කරලා, අඩු ගණෙන් සියයට සියයක් අපි ආණ්ඩුවට බදු ෙදන්නම්. ෙම්වා කරන්න. කිසි පශ්නයක් නැහැ. -[Interruption.] That is bipartisan. But, this was not bipartisan. -[Interruption.] We are willing, so give us the opportunity. When we go on the 15th, we can say, “Yes”. Today it is one Government and tomorrow it is another. Never mind. Let the people benefit. That is all what we are saying. But, ensure that you do it. If Mr. Sumith Abeysinghe, the Secretary to the Treasury does not allow, then what happens? We have very eminent people here. At least we have also got the President’s brother who is there. I greatly respect him. I do not believe that he plays politics. Fix a time. Even at 8 o’ clock tonight I will go and do that on behalf of the country. That is the commitment that we from the Opposition have. We had a seminar, but we never mentioned the pricings that day. That is the advantage. Otherwise, we can go around putting up posters like some other people do. ෙම් ගරු සභා ගර්භෙය් ඉන්නවා, පන්දම් අල්ලන අය. කිලිෙනොච්චියට යන්න ඉස්සර ෙපෝස්ටර්ස් ගහන්න හදනවා. තවම කිලිෙනොච්චිය ගැන හිතලාවත් නැහැ. ෙම් වාෙග්
+
+[මූලාසනෙය් අණ පරිදි ඉවත් කරන ලදී.] [அக்கிராசனக் கட்டைளப்பᾊ அகற்றப்பட்ᾌள்ளᾐ.] [Expunged on the order of the Chair.] ෙම් පන්දම් අල්ලන කට්ටිය ගැන තමයි තිෙබන ෙලොකුම පශ්නය. ෙම් සියල්ලක්ම දැන් වහන්න තමයි යන්ෙන්. දැන් අපට ආරංචියි පාර්ලිෙම්න්තුව විසුරුවා හරින්න යනවාය කියලා. හරි, කරන්න. අපි ලැහැස්තියි. ඇයි, ෙමොකද? ෙම් දූෂණය නවත්වන්න.
+
+ගරු හුෙසේන් අහමඩ් බයිලා මහතා (විෙද්ශ කටයුතු නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு ஹுெசயின் அஹமட் ைபலா - ெவளிநாட்டᾤ வல்கள் பிரதி அைமச்சர்)
+
+(The Hon. Hussain Ahamed Bhaila - Deputy Minister of Foreign Affairs)
+
+භය ෙවලා. ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) භය ෙවලා ඉන්ෙන් ඔය ෙගොල්ෙලෝයි. මූණවල් ඇඹරිලා. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) භය ෙවලා. අපි ෙනොෙවයි. මෙග් මිතයාට මම ෙබොෙහොම ගරු කරනවා. අපි සමඟ COPE එෙක් හුඟක් වැඩ කළා. එදා වැඩ කරන ෙකොට මීට වැඩිය ඔළුෙව් ෙකස් තිබුණා. නමුත් දැන් ඒකත්
+
+2008 ෙදසැම්බර් 05 3283 3284
+
+වැටිලා. ඉතින් ෙමෙහම භය ෙවලා හරි යන්ෙන් නැහැ. [බාධා කිරීම්] මම ඔබතුමන්ලාට අභිෙයෝග කරනවා. Hedging කියලා ෙම් පශ්නය ෆවුසි ඇමතිතුමාෙග් ඔළුවට දමලා වැඩක් නැහැ. එතුමාෙග් අදහස එතුමා පකාශ කළා. කවුද එතුමාව ෙබ්රා ගන්න ඉදිරිපත් වුෙණ්? අපිම තමයි. අපට අවශɕ නිර්ෙද්ශපාලනීකරණය කිරීමකුයි. ෙම් ෙද්ශපාලනීකරණය තමයි රටට තිෙබන ෙලොකුම ෙහණය. අපි ෙවනසක් කරමු. මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස, ඔබ වහන්ෙසේ මා ෙදස බලන්ෙන් තව මිනිත්තු පහෙළොවක් විතර ෙදන්න ඕනෑ කියන මතෙයන් තමයි. මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ෙසේට මම ස්තුතිවන්ත ෙවනවා. ඉන්ධන හා විදුලිය සම්බන්ධෙයන් කථා කළා ඇති, මම අෙනක් කටයුතු ගැන කථා කරන්නම්. මම ඔබවහන්ෙසේට නැවත එක් කරුණක් කියනවා. The cost of petrol is Rs. 29 as of today; landed and duty not paid. The selling price is Rs. 122 after reducing. There is a spread of Rs. 109. You have to have taxation. I believe it and accept it. On that basis, let us have a formula. So, I would appreciate and ensure that you direct the Secretary to the Treasury to meet us. We will not discuss until the Supreme Court gives that approval. That is the commitment we have. But, if you do not, then we will have to write and say that the Treasury did not meet and that this is the intention of the Opposition. So, nothing more fair that can we be. That is the intention. So, do not ever - දැන් බලන්න, මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස, හැම අවස්ථාෙව්දීම කියනවා, ෙකොටියාත් එක්ක අපි දඟලනවාය කියලා. ඒත් ෙකොටියා තමයි අපිව මරන්න එන්ෙන්. ජානක ෙපෙර්රා, අෙප් ගාමිණී දිසානායක, අෙප් රණසිංහ ෙපේමදාස වාෙග් අය මැරුවා. ෙකොටිත් එක්ක ගිවිසුම් ගහනවාය කියලා කියනවා. අපව පරාජය කරන්ෙනත් උන්මයි. ෙමෙහම කරලා දැන් ෙබොරුව ෙහළිදරවු ෙවලා තිෙබනවා. ඒක තමයි දැන් තිෙබන යුද්ධය. හැම දාම කිලිෙනොච්චි කිලිෙනොච්චි කියනවා. වටිනාකමක් නැහැ. මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස, ෙම් ෙගොල්ෙලෝ කිලිෙනොච්චිය කියලා යන්ෙන් මැදවච්චියට. ෙම් ෙගොල්ෙලෝ අලි මංකඩ කියලා යන්ෙන් පාමංකඩට. ෙමන්න ෙම්වා තමයි කරන්ෙන්. මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ෙසේටත් ෙපෙනනවා ෙන් ෙබොරුව කියලා. [බාධා කිරීම්] දැන් මට යුද්ධය ගැන කථා කරන්න ඕනෑ නැහැ. දැන් මට කථා කරන්න ඕනෑ, ආර්ථික යුද්ධය ගැනයි. [බාධා කිරීම්] ගරු සරත් කුමාර ගුණරත්න මහතා (ගුවන් ෙසේවා නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு சரத் குமார குணரத்ன - விமான ேசைவகள் பிரதி அைமச்சர்)
+
+(The Hon. Sarath Kumara Gunaratne - Deputy Minister of Aviation)
+
+මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස,- [බාධා කිරීම්] ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) මට ඔය මීගමුෙව් ෙබෝක්කු උඩ ඉන්න කට්ටිය එක්ක කථා කරන්න අවශɕතාවක් නැහැ. [බාධා කිරීම්] මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස, ෙම් අවස්ථාෙව්දී මම කථා කරන්ෙන් ඊට වැඩිය ෙදයක් ගැන. [බාධා කිරීම්]
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ඔබතුමාට තව විනාඩි ෙදකයි තිෙබන්ෙන්.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) මට විනාඩි 25ක් තිෙබනවා. SLMC එෙක් ෙව්ලාවත් සම්පූර්ණෙයන් මට තිෙබනවා. මට පස්වරු 3.08 වන ෙතක් කථා කරන්න පුළුවන්, මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) නැහැ, නැහැ. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ෙසේත් කියන්ෙන් හරියට අර ෙතල් මිල අඩු කරනවා වාෙග් ෙන්. [බාධා කිරීම්] සියයට 20ක discount එකක් දීලායි කථා කරන්න හදන්ෙන්. මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ස, මා ගැන අනුකම්පාෙවන් හිතලා කරුණාකරලා මට ෙව්ලාව ලබා ෙදන්න. මම ෙම් රට ෙවනුෙවනුයි කථා කරන්ෙන්. මූලාසනාරූඪ ගරුතර ස්වාමීන් වහන්ෙසේට ඒවා සම්බන්ධෙයන් කථා කරන්න බැහැ. ඔබවහන්ෙසේ රජයත් එක්ක ෙන් ඉන්ෙන්. ඉතින් ඔබවහන්ෙසේලා ෙවනුෙවනුත් මම කථා කරන්නම්.
+
+ඒ කාලෙය් දී කිව්වා, "ෙද්ශපාලන පක්ෂ විශ්වාස කරන්න එපා, ජාතික ෙහළ උරුමෙය් බුදු පුතුන්ෙග් පක්ෂය විශ්වාස කරන්න"යි කියලා. අද ෙමොනවාද ෙවලා තිෙබන්ෙන්? චම්පික රණවක ඇමතිතුමා වාෙග් උදවිය ෙම් ස්වාමීන් වහන්ෙසේ අහක් කර එතැනට ගිහින් තිෙබනවා. ෙම් ස්වාමීන් වහන්ෙසේ ඇමතිකම ගත්තා නම් වැඩය හරි. අනිවාර්යෙයන්ම ෙතල් මිල රුපියල් 70කින් විතර අඩු කරනවා. එෙහම ෙන්ද ස්වාමීන් වහන්ස? මුහුෙණන් ෙපෙනන විධියට නම් ඒ වාෙග් ස්වාමින් වහන්ෙසේ ෙකෙනක්ය කියා හිෙතනවා.
+
+ෙමතැන මන්තීවරු 225ක් ඉන්නවා. වැඩ කරන්න පුළුවන්. වැඩ කරන්න ඕනෑකම තිෙයන කට්ටිය. ඒ 225 ෙදනාට මූලාසනාරූඪ ගරු ස්වාමින් වහන්ස, විමධɕගත මුදල් වශෙයන් දීලා තිෙබන්ෙන් කීයද? රුපියල් ෙකෝටි 100යි. ෙම් ආණ්ඩුව ෙමවර අය වැෙයන් මිහින් එයාර් එකට රුපියල් ෙකෝටි 600ක් ෙවන් කර තිෙබනවා. ෙමොන අපරාධයක්ද? ෙමොකක්ද මිහින්වලින් කරන්න පුළුවන් වන්ෙන්? ෙම් රෙට් ගමනාගමනයට බස් ඕනෑ ෙවලා තිෙබන ෙවලාවක airbus දමන්න හදනවා. ෙම් වාෙග් අපරාධ නවත්වන්න.
+
+කිරි ෙබොන දරුෙවෝ 34,000කට විතරයි සල්ලි ෙවන් කර තිෙබන්ෙන්. ඒක වැඩි කරන්න. මිහින් එයාර් එකට ෙවන් කර තිෙබන මුදල් ඒ සඳහා පාවිච්චි කරන්න. ඒ මුදල අද මන්ද ෙපෝෂණෙයන් ෙපෙළන දරුවන්ට ලබා ෙදන්න. ඒ වාෙග්ම ජනාධිපති ෙම් පාර්ලිෙම්න්තුවට ඇවිල්ලා අය වැය කථාව කරන ෙවලාෙව් කිව්ෙව්, "මම පවාහන ගාස්තු සියයට 25කින් අඩු කරනවා"යි කියායි. ෙබොෙහොම ෙහොඳයි. නමුත් අඩු කර තිෙබන්ෙන් කීයකින්ද? සියයට 9.6යි. ජනාධිපතිම කියන ෙද් කරන්ෙන් නැත්නම්, - [බාධා කිරීමක්] පවාහන ගාස්තු අඩු කර තිෙබන්ෙන් සියයට 9.6කිනුයි. [බාධා කිරීමක්] ඇමතිතුමා බස් එෙක් යන්ෙන් නැහැ ෙන්. මම යනවා. ඒකයි ෙවනස. දැන් බලන්න ඔබතුමාම කියනවා - [බාධා කිරීමක්] සරම අඳින ඇමතිතුමා යන්ෙන් නැහැ. මම දන්නවා, ලස්සන ෙබන්ස් එකක් එයාම එලවා ෙගන යනවා. ඒක ෙහොඳයි. අපි බස් එෙක් යනවා. ෙමොනවාද තිෙබන කරදර කියා අපි දන්නවා.
+
+ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) ඒකට ඊර්ෂɕා ඇති.
+
+පාර්ලිෙම්න්තුව 3285 3286
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ෙකොෙහේද හදවත තිෙබන්ෙන්? ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) ෙබන්ස් එෙක් ගියාට ඔබතුමා ඊර්ෂɕා නැහැ ෙන්ද? ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) අයිෙයෝ ඒෙක් ෙනොෙවයි,- [බාධා කිරීමක්] කුමාර ෙවල්ගම මැතිතුමා ෙබොෙහොම ෙහොඳ මනුෂɕයා. වග කීමක් දුන්නා නම් වැෙඩ් හරි.
+
+ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) රවි කරුණානායක මන්තීතුමා, මම ඉපදුෙණ් ෙහොඳ, ටිකක් සල්ලි තිෙබන පවුලක. ඉතින් ෙබන්ස් එකක ගියාම ෙමොකද වන්ෙන්?
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) මම දන්නවා ඒක. [බාධා කිරීම්] හරි, පශ්නයක් නැහැ. ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) ධනවත් පවුලක මම ඉපදුෙණ්. මෙග් තාත්තා සරමයි ෂර්ට් එකයි ඇන්දාට,- [බාධා කිරීම්]
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඇමතිතුමනි, ඔබතුමා ෙන් කිව්ෙව්, මම ගෙමන් එන - ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) මම ෙබන්ස් එකක යනවා. ෙහට මම එනවා BMW, - [බාධා කිරීම්]
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඉල්ලා ෙගන කන්න එපා. ඒකයි කියන්ෙන්. මම දන්නවා. මම කිව්ෙව් ෙම්කයි. පවාහන ගාස්තු සියයට 9.6කිනුයි අඩු කර තිෙබන්ෙන්. දුම්රිෙය් යන එක් ෙකනාට සියයට 7ත්, සියයට 15ත් අතර පමාණයක් තමයි අඩු කර තිෙබන්ෙන්. [බාධා කිරීමක්]
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) අවසාන කරන්න. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) මූලාසනාරූඪ ගරු ස්වාමින් වහන්ස, තව මිනිත්තු 4ක් තිෙබනවා.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) නැහැ. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) විපක්ෂෙයන් තව කවුරුවත් කථා කරන්ෙන් නැහැ. විපක්ෂෙයන් අන්තිමට කථා කරන්ෙන් මමයි. අඩු ගණෙන් මට තව මිනිත්තු 5ක් තිෙබනවා, මූලාසනාරූඪ ගරු ස්වාමින් වහන්ස. කරුණාකර, ෙම් අවස්ථාෙව්දී මට ෙවලාව ෙදන්න. මම අසතɕ ෙනොෙවයි පකාශ කරන්ෙන්. මම ස්වාමීන් වහන්ෙන් ෙවනුෙවන්, ජනතාව ෙවනුෙවන් ඇත්ත කියනවා.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) විනාඩි 2කින් අවසාන කරන්න. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) අද පාර්ලිෙම්න්තුව වුණත් පඩි වැඩි කරන එකටත් බාධාවක් ඇති කර තිෙබනවා. ඒවාට ඉඩ ෙදන්න ෙහොඳ නැහැ.
+
+තරුණ කටයුතු අමාතɕාංශය ගනිමු. ෙම් රෙට් තරුණ කටයුතු අමාතɕාංශය ෙවනුෙවන් රැකීරක්ෂා ඇති කිරීමට ෙවන් කර තිෙබන මුදල් පමාණය ෙකොපමණද? රුපියල් මිලියන 300යි. රුපියල් මිලියන 300 ෙමොකක්ද? උද්ධමනය සියයට 30ක් තිෙයන ෙකොට ෙවල්ගම ඇමතිතුමනි, රුපියල් මිලියන 300ක් දීලා කරන්න පුළුවන් ෙමොනවාද? තරුණයන් සඳහා ෙමයින් රක්ෂා 500ක් ඇති කරන්න පුළුවන් ෙවයි. ඒක තමයි ඒ අය ෙබෝඩ් ලෑලි අල්ලා ෙගන දඟලන්ෙන්. තරුණ කටයුතු ගත්තාම ඒ අය පුහුණු කරන්න ඕනෑ. රැකීරක්ෂා ලබා ෙදන්න ඕනෑ. ඒ මුදල මීට වැඩිය වැ ඩි කරන්න. ෙම් වාෙග් ෙනොමඟ යවන, එක් ෙකනකුෙග් ෙදෙදනකුෙග් තෘප්තියට, සජින් ද වාස් ගුණවර්ධනලා වාෙග් උදවියෙග් තෘප්තියට දීලා වැඩක් නැහැ. එතැන ඇමතිතුමා ඉන්නවා. දැන් යුද්ධයක් පකාශ කර තිෙබන බව මම දන්නවා. හැබැයි එක කාරණයක් කියන්න තිෙබනවා. ලාභයක් හදන්න මාස තුනක් ෙදනවා කියලා තිෙබනවා. මාස තුනක් ෙනොෙවයි ෙම් වාෙග් උදවියට තව අවුරුද්දක් දුන්නත් හරි යන්ෙන් නැහැ. කරුණාකර ඉතුරු කරන්න. තරුණයන්ට රැකිරක්ෂා ඇති කිරීමට ඒ මුදල් ෙවන් කරන්න. ඇමතිතුමාට ඊට වැඩිය ගරුත්වයක් ලැෙබයි. අෙප් විපක්ෂෙයන් ඔය අදහස් ටික ෙදනවා. ඒ වාෙග්ම ෙම් අවස්ථාෙව්දී තවත් කාරණයක් මතක් කරනවා.
+
+The total Central Bank reserves in this country have reduced from US Dollars 3,200 million to US Dollars 1,618 million as of this moment. ඒ කියන්ෙන් සුමාන හයක සංචිතයක් තමයි තිෙබන්ෙන්. ඒවා අපි ෙනොෙවයි පාවිච්චි කරන්ෙන්. ඔබතුමන්ලා තමයි ආණ්ඩුෙව් ඉන්ෙන්. ෙම්ක භයානක තත්ත්වයක්. ෙම්ක ෙද්ශපාලනෙයන් කරන ෙදයක් ෙනොෙවයි. මෙග් මිත රාජිත ෙසේනාරත්න ඇමතිතුමා, ධර්මදාස බණ්ඩා ඇමතිතුමා, ඩිව් ගුණෙසේකර ඇමතිතුමා, චමල් රාජපක්ෂ ඇමතිතුමා, ඒ වාෙග්ම කුමාර ෙවල්ගම ඇමතිතුමා ෙම් ගැන දන්නවා ඇති. ආර්ථිකයට ආදරයක් තිෙබන නිසා ෙම් රෙට් කටයුතු නිර්ෙද්ශපාලනීකරණය තුළින් කරමු. සුමාන 5කට 6කට ආනයනය කරන්නට අවශɕ සංචිතයක් පමණයි තිෙබනවාය කියා කියන්ෙන් භයානක තත්ත්වයක්. ෙම්ක ෙවනස් කරන්න. අද ඇඟලුම් කර්මාන්තය ෙකොට උඩ. අද ෙත් කර්මාන්තය ෙකොට උඩ.
+
+ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) ඒ හයහමාර තවම නැහැ.
+
+2008 ෙදසැම්බර් 05 3287 3288
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) එෙහම කියන්න එපා. අපිට පුළුවන් නම් ඒක අවුරුදු 3කට ලබා ෙදන්න. මාස 6ක තෘප්තියක් ලබා ගන්ෙන් ෙමොකටද?
+
+ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) මාස හෙයන් පස්ෙසේ,- ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ෙමොන මාස හයක්ද? ඔය වැරදි පීලිවල යන්න එපා. ඔබතුමන්ලා hedging ගිහිල්ලා අනා ගත්තා ෙන්ද?
+
+ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) ඔය ඔක්ෙකොම කරන්න පුළුවන්. අපිත් එක්ක එකතු ෙවන්ෙන් නැහැ ෙන්.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) අපිත් එක්ක එකතු ෙවන්න. ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) ඔය ඔක්ෙකොම කරලා ෙදන්නම්. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) අපිට ගරුත්වයක් තිෙබනවා. ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) ෙම් රට ගැන හිතලා අපිත් එක්ක එකතු ෙවන්න. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) මම ඒ වාෙග් පැති මාරු කරන පුද්ගලෙයක් ෙනොෙවයි. ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) අපිත් එක්ක එන්න ෙකෝ. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) එක්සත් ජාතික පක්ෂය, මම ගරු කරන පක්ෂය. ඒෙකන් තමයි රට හදන්න පුළුවන් වන්ෙන්. රෙට් නිදහස ලබා දුන්න පක්ෂය. ඇමතිතුමා එන්න ෙම් පැත්තට.
+
+ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) ඔබතුමායි මමයි යාළුෙවෝ වශෙයන් -
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) අපි යාළුයි. [බාධා කිරීමක්] යාළුකම නැති කරන්න හදනවා ෙන්.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු මන්තීතුමා, අවසාන කරන්න. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) තව මිනිත්තු 4ක් තිෙබනවා ෙන් මූලාසනාරූඪ ගරු ස්වාමින් වහන්ස. ෙම් වාෙග් අවස්ථාවක අපට තිෙබන්ෙන් ෙම් ආර්ථිකය කඩා වැෙටන්ෙන් නැති විධියට වැඩ කරන්නයි. අපි එෙහම වැඩ කරන්න එකතු ෙවමු.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ෙබොෙහොම ස්තුතියි. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) මට තව මිනිත්තු තුනක් තිෙබනවා ගරු ස්වාමීන් වහන්ස. මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) නැහැ, නැහැ. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ෙම් අවස්ථාෙව්දී මම තව ෙදයක් කියනවා. අෙප් චන්දෙසේකරන් ඇමතිතුමා -
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු ඩිව් ගුණෙසේකර ඇමතිතුමා. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) චන්දෙසේකරන් ඇමතිතුමාට දීලා තිෙබන්ෙන් මිලියන 25යි මාසයකට. [බාධා කිරීම්]
+
+*සභා ෙම්සය මත තබන ලද ලිපිය : சபாபீடத்தில் ைவக்கப்பட்ட கᾊதம் : Letter tabled:
+
+URGENT 02nd December, 2008 Mr. Sumith Abeysinghe, Secretary to Ministry of Finance and Planning & The Treasury, The Secretariat, Colombo 01. Dear Sir, Meeting to facilitate relief to the public through reduction in taxes/levies/charges levied in respect of fuel consumption
+
+පාර්ලිෙම්න්තුව 3289 3290
+
+I write pursuant to the direction made by the Supreme Court in SC(FR) 536/2008 on 28th October 2008, filed by me along with two others (Ven. Thiniyawela Palitha Thero and Mr. Ravi Jayawardena of Corruption Watch) in the public interest, seeking relief to the masses through a reduction in the prices of fuel.
+
+I am indeed grateful that thanks to the direction of the Supreme Court made in the public, and national interest. I am now in a position as a Member of the Opposition, to engage in a constructive dialogue with you aimed purely at lessening the very heavy burden heaped on the entirety of the public of the country through fuel prices that are much higher than those prevalent in the world market and in other countries in the region.
+
+As His Lordship the Chief Justice Sarath N. Silva, PC quite rightly observed in court, such high fuel prices in the Sri Lankan market is a matter of great adverse impact, not only on people of every level of society including the poorer segments who find it unbearable, but on every segment of the nation’s economy. Inordinately high fuel prices at at time when the world oil prices have fallen drastically, directly affects the performance abilities in virtually every sphere of economic activity at a time when our local businesses require encouragement, stimules and facilitation to survive and succeed in the face of international competition. In the circumstances, the matter of a reduction in fuel prices is one which should be looked at on a priority basis as a national question, without undue consideration of political differences or petty gain, as His Lordship the Chief Justice was pleased to observe in court.
+
+As you are no doubt aware, the progress made in arriving at a pricing formula needs to be informed to the Supreme Court when the matter is next taken up on 15th December 2008.
+
+In the circumstances. I await intimation of a time to meet with you at your earliest convenience. With a view to a constructive, pro-active discussion as per the direction of the Supreme Court, to work towards an effective, durable and sustainable pricing formula in respect of fuel sold in the local market, that would grant immediate relief to the public, prevent recurrence of avoidable hardship to the masses and assist local enterprise and the national economy in these difficult times. Yours in the service of the public. Ravi Karunanayake, Member of Parliament.
+
+[අ.භා. 3.02] ගරු ඩිව් ගුණෙසේකර මහතා (ආණ්ඩුකම වɕවස්ථා හා ජාතික ඒකාබද්ධතා අමාතɕතුමා)
+
+(மாண்ᾗமிகு ᾊᾝ குணேசகர - அரசியலைமப்ᾗ அᾤவல்கள், ேதசிய ஒᾞைமப்பாட்ᾌ அைமச்சர்)
+
+(The Hon. Dew Gunasekara - Minister of Constitutional Affairs and National Integration)
+
+මන්තීතුමා වාඩි ෙවන්න. [බාධා කිරීමක්] මන්තීතුමා වාඩි ෙවන්න. ෙවලාව නැහැ.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, මෙග් ෙහොඳ මිත රවි කරුණානායක මන්තීතුමාට පිළිතුරු ෙදන අවස්ථාවක් ෙනොෙවයි ෙම්ක. ඒ සඳහා අපි ෙවන අවස්ථාවක් ෙයොදා ගනිමු. මුදල් අමාතɕාංශෙය් වැය ශීර්ෂ විවාදෙය්දී ඒ සමහර පශ්නවලට අපි පිළිතුරු ෙදන්නම්.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, මට ලැබී තිෙබන සීමිත ෙවලාව තුළ ආණ්ඩුකම වɕවස්ථා හා ජාතික ඒකාබද්ධතා අමාතɕාංශය ගැන කථා කිරීෙම්දී කියන්න තිෙබන්ෙන් එක කාරණාවක් ගැන විතරයි. මිනිත්තු පහකදී වැඩිය කථා කරන්න බැහැ. [බාධා කිරීමක්] මට මිනිත්තු පහයි තිෙබන්ෙන්. ෙම් කාලය තුළ පධාන වශෙයන් ආණ්ඩුකම වɕවස්ථාව -
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු ඇමතිතුමාට විනාඩි හයයි තිෙබන්ෙන්. කරුණාකර ඇමතිතුමාට කථා කරන්න ෙදන්න.
+
+ගරු ඩිව් ගුණෙසේකර මහතා (மாண்ᾗமிகு ᾊᾝ குணேசகர) (The Hon. Dew Gunasekara) විෙශේෂෙයන්ම ආණ්ඩුකම වɕවස්ථාෙව් දහතුන්වන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනය, දහහත්වන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනය හා දහසයවන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනය කියාත්මක කිරීමට අප පියවර කීපයක් අරෙගන තිෙබනවා. මම පළමු වන එක කියන්නම්. දහහත්වන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනය ගැන දැනට අධිකරණෙය් සාකච්ඡා වන නිසා ඒ ගැන මම වැඩිය කථා කරන්න යන්ෙන් නැහැ. දහහත්වන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනය යටෙත් පිහිටවපු ෙකොමිෂන් සභා කියා විරහිතව තිෙබනවා. දැන් අවුරුදු ගණනාවක් තිස්ෙසේ ඒක කියාත්මක කිරීමට අදාළ කටයුතු ෙයදීම සඳහා ෙත්රීම් කාරක සභාවක් පැවැත්වූවා. ඒකට අප රැස් ෙවලා අවශɕ සංෙශෝධන සකස් කර තිෙබනවා. නමුත් තවම ඒකට ෙපොදු එකඟත්වයක් ගන්න බැරි වුණා. ඒක තමයි පමාදය. නැත්නම් සංෙශෝධන සියල්ල තිෙබනවා. ඒවාට එකඟත්වය ලැෙබනවා නම් පාර්ලිෙම්න්තුවට ඉදිරිපත් කරලා තුෙනන් ෙදකක ඡන්දෙයන් සම්මත කර ගන්නයි තිෙබන්ෙන්. ෙකොෙහොමත් මට විශ්වාසයක් තිෙබනවා ඉදිරි සති ෙදක තුෙන්දී ඒ පිළිබඳව යම් සමථයකට එන්න පුළුවන් ෙවයි කියා.
+
+ෙද වැනි කාරණාව තමයි, දහතුන්වන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනය. විෙශේෂෙයන්ම රාජɕ භාෂාවට අදාළ වන -
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ගරු ඇමතිතුමා, ෙම් අහන්න. ඔය සම්බන්ධෙයන් - ගරු ඩිව් ගුණෙසේකර මහතා (மாண்ᾗமிகு ᾊᾝ குணேசகர)
+
+(The Hon. Dew Gunasekara) අෙන්, ම ට මිනිත්තු පහයි තිෙබන්ෙන්. ෙවන ෙවලාවක කියන්න.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) දහහත්වන සංෙශෝධනය? [බාධා කිරීමක්] කියාත්මක කරනවාද?
+
+ගරු ඩිව් ගුණෙසේකර මහතා (மாண்ᾗமிகு ᾊᾝ குணேசகர)
+
+(The Hon. Dew Gunasekara) ඔව්, ඔව්. කරනවා. [බාධා කිරීමක්] ඔව්. ඉතින් බලා ෙගන ඉන්න. ලබන අවුරුද්ෙද් පාර්ලිෙම්න්තුව රැස් වන විට ඒක කියාත්මක කරන්නම්. [බාධා කිරීමක්] දහතුන්වන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනයට අනුව විෙශේෂෙයන්ම රාජɕ භාෂාව පිළිබඳව - ඒ ගැන විතරයි- ෙම් තිෙබන මිනිත්තු පෙහේදී මම කථා කරන්න බලාෙපොෙරොත්තු වන්ෙන්.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, 1833 දී තමයි ඉංගීසි භාෂාව රාජɕ භාෂාව හැටියට ෙකෝල්බෲක් ෙකොමිෂන් සභාව මාර්ගෙයන් කියාත්මක කෙළේ. 1833 සිට අවුරුදු එකසිය ගණනක් යනතුරු එය අෙප් රෙට් කියාත්මක වුණා. අවුරුදු 123ක් තිස්ෙසේ ඉංගීසි භාෂාව තමයි රාජɕ භාෂාව ෙවලා තිබුෙණ්. 1956 දී සිංහල භාෂාව රාජɕ භාෂාව වුණා. ඊට පසුව 1987 දී ෙදමළ භාෂාවත්
+
+2008 ෙදසැම්බර් 05 3291 3292
+
+රාජɕ භාෂාවක් වුණා. ෙදමළ භාෂාව රාජɕ භාෂාවක් වුෙණ් අවුරුදු 31ක ට පසුවයි. මම 1987 දී ඒ රාජɕ භාෂා පනතට විපක්ෂෙය් සිට ඡන්දය දීපු මන්තීවරෙයක්. එෙහත් එය කියාත්මක වුෙණ් නැහැ. ඒක ෙපොෙත් තිබුණා. අවුරුදු විස්සකට පසුව අතිගරු මහින්ද රාජපක්ෂ ජනාධිපතිතුමා විසින් රාජɕ භාෂා විෂයය මෙග් අමාතɕාංශයට පැවරුවා. දහතුන්වන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනය කියාත්මක කිරීෙම් ඇති පශ්නයක් නිසා රාජɕ භාෂාව කියාත්මක කිරීම පිළිබඳ කාරණාව අෙප් අමාතɕාංශයට පැවරුවාට පසුව අප ඒක කියාත්මක කිරීෙම් කටයුතු පටන් අරෙගන තිෙබනවා. අවුරුදු විස්සකට පසු පළමු වන වතාවට ෙදමළ භාෂාවත් රාජɕ භාෂාවක් කිරීමට නිශ්චිත පියවර රාශියක් අර ෙගන තිෙබනවා. 2007 ජුලි මාසෙය් පළමු වන දා සිට රජෙය් ෙසේවයට ඇතුළු වන සියලු ෙදනාටම ෙදමළ භාෂාව අනිවාර්ය කර තිෙබනවා. ඒකට කිසිම විෙරෝධයක් ඇත්ෙත් නැහැ. පාර්ලිෙම්න්තුෙව් විපක්ෂය ඇතුළු සියලුම පක්ෂවල මන්තීවරු ෙම්ක ජාතික පශ්නයක් විධියට සලකලා මට සහෙයෝගය ලබා දුන්නා. ඒ ගැන මා ඉතාම සතුටු ෙවනවා. ජාතික සමගිය ෙගොඩ නැඟීම සඳහා ෙදමළ භාෂාවට නිසි තැන දීලා කියාත්මක කිරීෙම් කාර්යභාරය සඳහා දැන් මූලික පියවර ගණනාවක් අප අරෙගන තිෙබනවා. නිදහස ලැබිලා අවුරුදු 60කට පසුව තමයි අපට ෙම් කාර්යයන් කරන්න පුළුවන් වුෙණ්. ඒ අනුව අද හැම අමාතɕාංශයකම, ෙදපාර්තෙම්න්තුවකම රජෙය් ෙසේවකයන් විශාල වශෙයන් ෙදමළ භාෂාව ඉෙගන ගන්නවා; විභාගවලට වාඩි ෙවනවා. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, උතුරු නැ ෙඟනහිර පළාත්වල මුලතිව්වල, කිලිෙනොච්චිවල ෙදමළ රාජɕ ෙසේවකයන් සිංහල මාධɕ විභාගයට වාඩි වුණා. ෙම් යුද්ධයක් යද්දීත් ෙදමළ නිලධාරින් ඒ විධියට විභාගයට වාඩි වුණා. ඒ නිසා අද ෙහොඳ හිතක්, අවෙබෝධයක් තිෙබනවා. අවුරුදු ගණනාවකට පසුව ෙදමළ රජෙය් ෙසේවකයනුත්, සිංහල රජෙය් ෙසේවකයනුත් අතර අෙනɕෝනɕ වශෙයන් ජාතික සමගිය ෙගොඩ නැඟීම සඳහා අවෙබෝධයක් ඇති වී තිෙබනවා. ෙමය අපට මහත් පිටුවහලක් වී තිෙබනවා. රාජɕ භාෂාව කියාත්මක කිරීමට පමණක් ෙනොෙවයි, ජාතික ඒකාබද්ධතාවක් ඇති කිරීමටත් ෙම්ක උදවු ෙවනවා. අෙනɕෝනɕ අවෙබෝධයක් නැතිව සිංහල සමාජය, ෙදමළ සමාජය, මුස්ලිම් සමාජය අතර විශාල පරතරයක් තිෙබනවා. නිදහස ලැබුණාට පසුව පසු ගිය අවුරුදු 60ක කාලය තුළ ෙම් සමාජ තුන වඩවඩාත් ඈත් වුණා මිසක් එක්කාසු වුෙණ් නැහැ. ඒකට භාෂාව විශාල වශෙයන් බලපෑ කාරණාවක්. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, පිරිෙවන් පනස්නවයක හාමුදුරුවන්ට අපි ෙදමළ භාෂාව උගන්වනවා, මල්වතු අස්ගිරි විහාර ඇතුළුව. ඒක නිසා ෙදමළ භාෂාවට තිබුණු අහිතකර තත්ත්වයන්, අහිතකර වාතාවරණයන් ඉවත් කරලා අලුත් පෙබෝධයකින් අද ෙහොඳ සුහදකාරි තත්ත්වයක් ඇති කර තිෙබනවා. එක්දහස් නවසිය පණස් ගණන්වල සිට 2007 දක්වා රජෙය් ෙසේවකයන්ට ෙද වන භාෂාවක් ඉෙගන ගන්න දුන්ෙන් රුපියල් 500යි. මහින්ද රාජපක්ෂ රජය විසින් එය රුපියල් 25,000 දක්වා වැඩි කළා. රුපියල් 25,000යි, 20,000යි, 15,000යි. කාර්යාල කාර්ය සහායකයකු වුණත් ෙදමළ භාෂාව කථා කරන්න ඉෙගන ගත්තා නම් ඇති. විභාග පාස් ෙවන්න ඕනෑ නැහැ. කථා කරන්න ඉෙගන ගත්තා නම් ඇති. රුපියල් 15,000ක් ෙගවනවා. Increment එකක් ෙදනවා. ඒ නිසා අලුත් පෙබෝධයක් ඇති වී තිෙබනවා. දීර්ඝ කාලීන වශෙයන් ෙමය අෙප් රෙට් ජාතික සමගිය ෙගොඩ නැඟීමට මහත් ෙසේ ආධාර වන බව පැහැදිලි වී තිෙබනවා. අය වැය ඉදිරිපත් කරන විට අතිගරු ජනාධිපතිතුමා ඒ ෙවනුෙවන් මිලියන පනහක් ෙදනවාය කියන එක මම අෙප්ක්ෂා ෙනොකළ ආකාරෙයන් පකාශයට පත් කළා. අපි ෙනොඉල්ලූ එකක් ෙදනවාය කියා ජනාධිපතිතුමා විසින්ම පකාශයට පත් කරනු ලැබුවා. ඒක දහතුන්වන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනය කියාත්මක කිරීෙම් එක පැත්තක්. දහතුන්වන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනෙය් කියාත්මක ෙනොවන තවත් පැත්තක් තිෙබනවා. ඒ නිසා අෙප් තිස්ස විතාරණ ඇමතිතුමා යටෙත් තිෙබන සර්ව පාක්ෂික සමුළුෙවන් ඒ පිළිබඳව විෙශේෂෙයන් කටයුතු කර ෙගන යනවා. ජනාධිපතිතුමා ෙපෙර්දා මට දැන්නුවා, ෙම් කටයුතු කියාත්මක කිරීම සඳහා නිලධාරි මට්ටෙමන් අලුත් කමිටුවක් පත් කර තිෙබන බව. ෙම් වන ෙකොට අපි ඒ සඳහා පියවර ගණනාවක්
+
+අරෙගන තිෙබනවා. පළමු වන වතාවට අවුරුදු 60කට පස්ෙසේ මින් ෙපර තිබුණු කිසිම ආණ්ඩුවකට කරන්න බැරි වුණු ෙදයක්, මින් ෙපර තිබුණු ආණ්ඩුවලින් කරන්න අසමත් වුණු ෙදයක් ෙම් අවුරුදු ෙදකක කාලය තුළ ෙම් ආණ්ඩුවට කරන්න හැකි වුණා. අපි ඒ අභිෙයෝගවලට මුහුණ දුන්නා. අපි ඒ ගැන සන්ෙතෝෂ ෙවනවා. ඒක කරන්න පුළුවන් වුණ පළමු වන කාරණය තමයි ෙද්ශපාලන වශෙයන් තීරණ ගන්න පුළුවන් ෙද්ශපාලන නායකත්වයක් තිබුණ එක. ඒ නිසා ඒ අනුව අපට ෙම් පියවර ගන්න පුළුවන් වුණා. ඒ වාෙග්ම මම සියලුම පක්ෂ එක්ක සාකච්ඡා කළා. ෙම් සභා ගර්භෙය් සිටින සියලුම පක්ෂ සමඟ, සියලුම මන්තීවරු සමඟ කථා කළා. එෙහම කථා කරපු නිසා ඔවුන්ෙග් සහෙයෝගය ලැබුණා. එෙහම කථා කරපු නිසා සියලුම පක්ෂවලින් සහෙයෝගය ගන්න පුළුවන් වුණා. මා මීට වඩා කථා කරන්න බලාෙපොෙරොත්තු වන්ෙන් නැහැ. මෙග් අමාතɕාංශෙය් ෙල්කම්තුමිය, ඒ වාෙග්ම අතිෙර්ක ෙල්කම්තුමිය, ආයතන පධානීන් ඇතුළු සියලුම නිලධාරින් ෙම් කාර්යභාරය ඉෂ්ට කරන්න පසු ගිය කාලය තුළ මට මහත්ෙසේ සහෙයෝගය දුන්නා. අවසාන වශෙයන් ඔවුන් සියලු ෙදනාටම ස්තුතිය පළ කරමින් මෙග් වචන ස්වල්පය ෙමයින් අවසන් කරනවා. [අ.භා. 3.10] ගරු ආර්. එම්. ධර්මදාස බණ්ඩා මහතා (අතිෙර්ක වැවිලි ෙභෝග සංවර්ධන අමාතɕතුමා)
+
+(மாண்ᾗமிகு ஆர்.எம். தர்மதாச பண்டா - ᾐைணப்பயிர் அபிவிᾞத்தி அைமச்சர்)
+
+(The Hon. R.M. Dharmadasa Banda - Minister of Supplementary Plantation Crops Development)
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, මට ෙම් අවස්ථාව ලබා දීම ගැන මා ඔබ වහන්ෙසේට ස්තුතිවන්ත ෙවනවා. ෙම් අතිෙර්ක වැවිලි ෙභෝග සංවර්ධන අමාතɕාංශය අලුත් අමාතɕාංශයක් හැටියට 2007 වර්ෂෙය් ඇති කරලා මට බාර දුන්නා. මට බාර දුන් ෙම් අමාතɕාංශය පිළිබඳව මා සන්ෙතෝෂ වනවා. ෙම් ෙකටි කාලය තුළ අපට පතිපත්තිමය වශෙයන් සෑෙහන දුරක් යන්න පුළුවන්කම ලැබුණා. විෙශේෂෙයන්ම ෙම් අමාතɕාංශය බාර ෙදන ෙකොට අතිගරු ජනාධිපතිතුමා දැන්වූවා, ෙද්ශීය වශෙයන් අපට තිෙබන අවශɕතාවන් සම්පූර්ණ කර ගැනීමට ඉක්මනින් කටයුතු කරන්නැයි කියලා. විෙශේෂෙයන්ම මට බාර දීලා තිෙබන ෙම් අමාතɕාංශය ගැන කල්පනා කර බලන ෙකොට ෙම් රෙට් සීනි නිෂ්පාදනය පිළිබඳව විෙශේෂ වග කීමක් දරන්න සිදු ෙවනවා. ඒක ඇත්ත. ෙමොකද, අෙප් නිදහස් ලංකාෙව් ෙමෙතක් කල් අපට සීනි කර්මාන්තශාලා හතරයි යන්තම් ගැට ගහන්න පුළුවන් ෙවලා තිෙබන්ෙන්. ඒ හතෙරනුත්, අපි ෙම් අමාතɕාංශය බාර ගන්න ෙකොට පැල්වත්ත සහ ෙසවනගල සීනි කර්මාන්තශාලා ෙදක විතරයි කියාත්මක තත්ත්වෙය් තිබුෙණ්. හිඟුරාන සහ කන්තෙල් සීනි කර්මාන්තශාලා ෙදක වහලායි තිබුෙණ්. මා සන්ෙතෝෂ ෙවනවා, ෙම් අවුරුදු ෙදක තුළ හිඟුරාන කර්මාන්තශාලාව නැවතත් ආරම්භ කරන්නට අපට පුළුවන්කම ලැබුණු එක ගැන. ලබන අවුරුද්ද අවසාන වන ෙකොට හිඟුරාන කර්මාන්තශාලාෙවන් පළමු වන සීනි කිෙලෝ එක රටට ෙදන්න පුළුවන් ෙවයි කියලා මෙග් විශ්වාසයක් තිෙබනවා. කන්තෙල් සීනි කර්මාන්තශාලාව ගැන ෙපොඩි ෙපොඩි පශ්න කිහිපයක් තිබුණා. ඒ ෙමොන පශ්න තිබුණත් ලබන අවුරුද්ෙද් ජනවාරි මාසය වන ෙකොට අපි කන්තෙල් සීනි කර්මාන්තශාලාවත් වɕවසායයකුට භාර දීලා ආරම්භ කරනවා. ඒක ආරම්භ කළායින් පස්ෙසේ, 2010 වන ෙකොට එහි සීනි නිෂ්පාදනය කරන්න අපට පුළුවන්කම ලැෙබනවා. ඒ කර්මාන්තශාලා හතර කියාත්මකභාවයට පත් කළත් ලංකාෙව් සීනි අවශɕතාව සියයට සියයක්ම සම්පූර්ණ කරන්න ලැෙබන්ෙන් නැහැ. අද ෙද්ශීය සීනි අවශɕතාෙවන් සියයට දහයක් වාෙග් ඉතාමත්ම සුළු පමාණයක් පමණයි නිෂ්පාදනය කරන්ෙන්. අපි සියයට අනූවක්ම සීනි පිට රටින් ෙගන්වනවා. ඒ නිසා අපි පුළුවන් තරම් දුරට පිට රටින් සීනි ෙගන්වීම නවත්වලා ෙම් රෙට් සීනි නිෂ්පාදනය කරන්න කටයුතු කරන්න ඕනෑ. අපට ෙම් රෙට්
+
+පාර්ලිෙම්න්තුව 3293 3294
+
+සීනි නිෂ්පාදනය කරන්න පුළුවන්. ෙමොකද, සීනි නිෂ්පාදනය කරන්න ඕනෑ කරන මූල දවɕ වන උක් ගස් අපට වගා කර ගන්න පුළුවන්. ෙගොවීන් උක් වවන්න සූදානම්. අවුරුදු ගණනාවක් තිස්ෙසේ උක් වවලා ෙගොවීන්ට පුරුද්දක් තිෙබනවා. ඒ වාෙග්ම අෙප් ෙද්ශ ගුණයත් උක් වගාවට ගැළෙපනවා. ඒ නිසා අපි ෙගොවීන් ලවා උක් වවලා ෙද්ශීය වශෙයන් සීනි නිෂ්පාදනය කරන්න බලාෙපොෙරොත්තු ෙවනවා. එහි පළමු වන පියවර හැටියට ෙද්ශීය සීනි අවශɕතාෙවන් සියයට පනහකින්වත් ස්වයංෙපෝෂිත ෙවන්නයි අප බලාෙපොෙරොත්තු වන්ෙන්. අතිගරු ජනාධිපතිතුමා පසු ගිය අය වැය කථාෙව්දී එය පතිපත්තියක් හැටියට ෙම් පාර්ලිෙම්න්තුෙව්දී පකාශයට පත් කළා. එය කියාත්මක කිරීම මෙග් අමාතɕාංශයට බාර කරලා තිෙබනවා. දැන් සීනි කර්මාන්තශාලා ෙදකක් කියාත්මක තත්ත්වෙය් තිෙබනවා. වසා තිෙබන සීනි කර්මාන්තශාලා ෙදක ආපසු ඇරියත්, අෙප් ධාරිතාෙවන් සියයට පනහක් සම්පූර්ණ කර ගන්න බැරි ෙවනවා. ඒ නිසා අලුෙතන් සීනි කර්මාන්තශාලා ඇති කරන්න අපට සිදු ෙවනවා. අපි අමාතɕාංශෙයන් තීරණයක් අරෙගන තිෙබනවා, තවත් සීනි කර්මාන්තශාලා පහක් අලුෙතන් ආරම්භ කරන්න. ඒ පෙහන් තුනක මූලික කටයුතු දැනට අවසන් කර තිෙබනවා. ඒ තුෙන්ම වැඩ කටයුතු 2009 වර්ෂෙය්දී ආරම්භ කරන්න පුළුවන් ෙවනවා. මා ෙමතැනදී කියන්න ඕනෑ, ෙම්ක ආරම්භ කරන්න පුළුවන් වුණාට අපට ෙලොකු කරදරයක් තිෙබන බව. ඒ තමයි අපට තිෙබන ආර්ථික අමාරුකම්. කවුරුත් ෙම් සභා ගර්භෙය්දී ඒ ගැන කථා වුණා. සීනි කර්මාන්තශාලාවක් ආරම්භ කරන්න විශාල ධනස්කන්ධයක් අවශɕ ෙවනවා. නමුත් ඒ මුදල අෙප් භාණ්ඩාගාරෙයන් සම්පාදනය කරන්න අමාරුයි. අපි ඒක වටහා ගන්න ඕනෑ. ඒ නිසා ආෙයෝජකයන් ලවා ෙම්වා හරි ගස්වාගන්න නම් අපි ආෙයෝජකයන් කැමැති කරවා ගන්න ඕනෑ. අෙප් රෙට් තිෙබන ෙද්ශපාලන තත්ත්වය අනුව, ඒ වාෙග්ම ෙවනත් ෙවනත් කරදර අනුව ආෙයෝජකයන් කැමැති කරවා ගන්න එක සෑෙහන බැරෑරුම් කටයුත්තක්. ෙකෙසේ නමුත් දැනට ආෙයෝජකයන් කැමැති කරවා ෙගන, අලුතින් කර්මාන්තශාලා පහක් ආරම්භ කිරීෙම් වɕාපාරෙය් එයින් තුනක මූලික වැඩ කටයුතු අවසානයි. තුෙනන් එකක මූලික වැඩ කටයුතු පමණක් ෙනොෙවයි, ඔක්ෙකෝම වාර්තාත් අර ෙගන ඉවරයි. අපට ඒක ආරම්භ කරන්න පුළුවන් ෙවනවා, තවත් මාස ෙදක තුනක් ඇතුළතදී. අලුතින් ආරම්භ කරන කර්මාන්තශාලා පෙහන් තුනක වැඩ ලබන අවුරුද්ෙද්දී ආරම්භ කරන්න පුළුවන් ෙව්විය කියන විශ්වාසයක් මා තුළ තිෙබනවා. ඒ කර්මාන්තශාලා පහ 2009 වර්ෂෙය්ත්, 2010 වර්ෂෙය්ත් ආරම්භ වුෙණොත් අපට ඕනෑ කරන සීනි නිෂ්පාදනෙයන් සියයට පනහ අභිභවා යනවාය කියන විශ්වාසය මා තුළ තිෙබනවා. එයින් ඇති වන පතිඵලය ෙමොකක්ද? ෙමරටට අවශɕ සීනි විතරක් නිෂ්පාදනය කරලා, එතැනින් නතර වන්ෙන් නැහැ මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස. විශාල මුදලක් පිට රටට ඇදී යන එක නතර ෙවනවා. 2006 වර්ෂෙය් සීනි ෙගන්වන්න රුපියල් මිලියන 23,000කට වඩා පිට රටට ඇදී ෙගොස් තිෙබනවා. අපට ඒ මුදල් ෙමෙහේ නතර කර ගන්න පුළුවන්. ඒ වාෙග්ම ඒ මුදල් ෙමෙහ ෙගොවියාෙග් අතට යවන්න පුළුවන්. එපමණක් ෙනොෙවයි. ඒ උක් ගෙසන්ම ගන්නා පැණිවලින් සීනි නිෂ්පාදනය කරලා අතුරු නිෂ්පාදනයක් හැටියට එතෙනෝල් නිෂ්පාදනය කරන්න පුළුවන්. එතෙනෝල් කියන්ෙන් රථ වාහනවලට ෙයොදා ගැනීම සඳහා අද මුළු ෙලෝකයටම ඕනෑ කරන දවɕයක්. එතෙනෝල් නිෂ්පාදනය කරලා දැනට කරන වියදමින් භාගයක පමණ අඩු වියදමින් රථ වාහන ධාවනය කරවන්න පුළුවන් තත්ත්වයක් උදා කර ගන්නවා. එතෙනෝල් නිෂ්පාදනය කර ගන්න උක් ගෙසේ යුෂවලින් පුළුවන් ෙවනවා. ඒ නිසා අපි සීනි කර්මාන්තශාලා කරන්න එන අයට අනිවාර්යය කරනවා, එතෙනෝල් නිෂ්පාදනය කළ යුතුය කියා. එතෙනෝල් නිෂ්පාදනය කරන්න කරන්න අෙප් රටට ෙපටල් ෙගන්වන්නට යන මුදලින් ෙකොටසකුත් ඉතිරි ෙවනවා. ඒ වාෙග්ම විදුලි බලයත් නිෂ්පාදනය කරන්න පුළුවන් මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස. විදුලිය නිෂ්පාදනය කරලා ලංකා විදුලිබල මණ්ඩලයට විකුණන්න අපට පුළුවන්. ඒ වාෙග්ම ෙපොෙහොර නිෂ්පාදනය කරන්න පුළුවන්. ෙම් ඔක්ෙකෝම අතුරු නිෂ්පාදනත් එක්ක තමයි ජාතික වɕාපාරයක් හැටියට අප ෙම් වɕාපාරය ආරම්භ කර තිෙබන්ෙන්. සියලු ෙදනාම, විෙශේෂෙයන්ම ආණ්ඩු පක්ෂෙය්
+
+සියලු ෙදනාම ෙමයට ආශීර්වාද කර තිෙබනවා. මා ඒ ගැන සන්ෙතෝෂ ෙවනවා. එතුමන්ලා ආශීර්වාද කරනවා පමණක් ෙනොෙවයි, සම්පූර්ණ සහාය ෙදනවා. මා ඒ අයට ස්තුතිවන්ත ෙවනවා.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, මට ඉතිරි වී ඇති කාලය සීමිත නිසා ඊළඟට මා කජු සංස්ථාව ගැන කියන්නම්. කජු සංස්ථාව දැනට නිෂ්පාදනය කරන්ෙන් අවුරුද්දකට කජු ෙටොන් 10,000යි. තවත් අවුරුදු තුනක් ගිය කළ කජු නිෂ්පාදනය ෙටොන් 50,000 දක්වා වැඩි කරන්න අප දැනට වැඩ කර ෙගන යනවා. ඒක ඉතාම සාර්ථකව කරනවා. මා සමෘද්ධි වɕාපාරයත් එක්ක කජු සංස්ථාවත් ඒකාබද්ධ කර තිෙබනවා. දුප්පත් අය ලවා වියළි කලාපෙය් කජු වගා කරවලා කජු නිෂ්පාදනය වැඩි කරන්න කටයුතු කර තිෙබනවා. තල් නිෂ්පාදනය සම්බන්ධෙයන් මට තිෙබන එකම අවහිරතාව තමයි උතුෙර් යුද්ධය. එය අවසාන වූ හැටිෙය් උතුරත්, නැ ෙඟනහිරත් එක්ක ෙම් රෙට් වියළි කලාපෙය් සෑම තැනම තල් නිෂ්පාදනයත් වැඩිදියුණු කරන්න අප කටයුතු කරනවා.
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, අලුත් අමාතɕාංශයක් පිහිටුවා ෙගන ෙම් වැඩ කටයුතු කිරීෙම්දී, ඒවා ෙහොඳින් සකස් කර ෙගන සංවිධානය කර ගන්න උදවු කරපු හිටපු ෙල්කම්තුමාටත්, දැනට ඉන්න වැඩ බලන ෙල්කම්තුමියටත්, සහකාර ෙල්කම්තුමියටත්, අතිෙර්ක ෙල්කම්තුමිය ඇතුළු කාර්ය මණ්ඩලෙය් සියලු ෙදනාටත්, ඒ වාෙග්ම මා භාරෙය් පවතින සංස්ථාවල ඉන්න සභාපති මහත්වරුන්, අධɕක්ෂ මහත්වරුන් ඇතුළු කාර්ය මණ්ඩලවල සියලු ෙදනාටත් මෙග් කෘතඥතාව පළ කරනවා. මා මෙග් විශ්වාසය ඒ අය ෙකෙරහි පළ කර තිෙබනවා. ඒ අය මට ෙපොෙරොන්දු ෙවලා තිෙබනවා, ඒ අයෙග් සම්පූර්ණ ශක්තිය ෙයොදලා ෙම් ක්ෙෂේතය දියුණු කරනවාය කියා. ඒ සඳහා ඒ අය ඉදිරිපත් ෙවලා ඉන්නවා. මා ඒ අයට ෙම් ජාතිය ෙවනුෙවන් කෘතෙව්දීත්වය පළ කරන අතර, 2009 වර්ෂෙය්දී අෙප් ඉදිරි ගමන ඉතාම සාර්ථකව යෑමට අධිෂ්ඨාන කර තිෙබන බව පවසමින් මා නවතිනවා.
+
+[பி.ப. 3.18] ගරු එස්. විෙනෝ මහතා (மாண்ᾗமிகு எஸ். விேனா) (The Hon. S. Vino) சைபக்குத் தைலைமதாங்கும் சங்ைகக்குாிய ேதரர் அவர்கேள, இந்த விவாதத்திேல கலந்ᾐெகாள்வதற்கு எனக்குச் சந்தர்ப்பம் தந்தைமக்கு ᾙதᾢேல உங்கᾦக்கு நன்றிையக் கூறிக் ெகாள்கின்ேறன். மன்னார் மற்ᾠம் வᾫனியாவிேல ெதாைலேபசி இைணப்ᾗக்கள் ᾐண்ᾊக்கப்பட்டைம பற்றி நான் இந்தப் பாராᾦமன்றத்திேல ᾙன்னᾞம் ᾚன்ᾠ தடைவகள் கூறியிᾞக் கின்ேறன். அதாவᾐ, அங்ேக சுமார் பத்தாயிரத்ᾐக்கும் ேமற்பட்ட ைகத்ெதாைலேபசி மற்ᾠம் CDMA ெதாைலேபசி இைணப்ᾗக்கள் ᾐண்ᾊக்கப்பட்ᾌ, அந்த மக்கᾦைடய ெதாைலத்ெதாடர்ᾗ வசதிகள் ᾙடக்கப்பட்ᾊᾞக்கின்றன. கடந்த ஆᾠ மாதங்களாக இந்த நிைல நீᾊக்கின்றᾐ. ஆனால், இன்ᾠ இராᾎவக் கட்ᾌப்பாட்ᾊᾤள்ள யாழ்ப்பாணம் என்றாᾤம் சாி, மட்டக்களப்ᾗ என்றாᾤம் சாி, ெகாᾨம்ᾗ என்றாᾤம் சாி, அᾔராதᾗரம் மற்ᾠம் மதவாச்சி என்றாᾤம் சாி, அங்ெகல்லாம் இந்த வசதிகள் அைனத்ᾐம் இᾞக்கின்ற அேதேவைள, அரசாங்கக் கட்ᾌப்பாட்ᾊᾤள்ள மன்னாாிᾤம் வᾫனியாவிᾤம் மாத்திரம்தான் இவற்றின் பாவைனக்குத் தைட விதிக்கப்பட்ᾊᾞக்கின்றᾐ. ஆகேவ சம்பந்தப்பட்ட அைமச்சர் அவர்கள் இந்த விடயத்திேல தைலயிட்ᾌ மீண்ᾌம் அந்த மக்கᾦக்குக் ைகத்ெதாைலேபசி மற்ᾠம் CDMA ெதாைலேபசி இைணப்ᾗ வசதிகைளச் சீரான ᾙைறயில் ெபற்ᾠக்ெகாᾌக்க ஆவன ெசய்யேவண்ᾌம் என்ᾠ நான் நான்காவᾐ தடைவயாகᾫம் இச்சைபயிேல ேகட்ᾌக் ெகாள்ள விᾞம்ᾗகின்ேறன்.
+
+நாங்கள் இங்ேக சில விடயங்கைள மீண்ᾌம் மீண்ᾌம் உரத்ᾐக் கூறினாᾤம் அைவ 'ெசவிடன் காதில் ஊதிய சங்குேபால' இந்தப் பாராᾦமன்றத்திᾤள்ள அைமச்சர்கᾦக்ேகா அல்லᾐ இந்த
+
+[ගරු ආර්. එම්. ධර්මදාස බණ්ඩා මහතා]
+
+2008 ෙදසැම්බර් 05 3295 3296
+
+அரசாங்கத்திற்ேகா ேகட்பதில்ைல என்பைத நிைனக்கின்றேபாᾐ உண்ைமயிேல நாங்கள் ேவதைனப்பᾌகின்ேறாம். ேநற்ᾠ மன்னார் ைவத்தியசாைலயிேல ஒன்பᾐ மனித எᾤம்ᾗக் கூᾌகள் ஒப்பைடக்கப்பட்ᾊᾞக்கின்றன. இவற்ைறவிட இரண்ᾌ மனித சடலங்கᾦம் ஒப்பைடக்கப்பட்ᾊᾞக்கின்றன. இன்ᾠ இந்த ᾜத்தத்திᾔைடய ᾙᾊைவப் பாᾞங்கள்! அதாவᾐ தமிழர், சிங்களவர் என்ற ேவᾠபாᾌ இல்லாமல் மக்கள் இந்த ᾜத்தத்தின் சாபக்ேகட்ᾊற்கு உள்ளாகின்றனர். இன்ᾠ அங்கு கைரெயாᾐங்கி மன்னார் ைவத்தியசாைலயிேல ஒப்பைடக்கப்பட்ட அந்த ஒன்பᾐ எᾤம்ᾗக் கூᾌகᾦக்கும் யாராᾤம் உாிைம ேகார ᾙᾊயாᾐள்ளᾐ. ஏெனன்ᾠ ெசான்னால் இன்ᾠ அைவ சிங்களவர்கᾦைடயதா? தமிழர்கᾦைடயதா? அல்லᾐ கடற் ᾗᾢகளிᾔைடயதா? அல்லᾐ கடற்பைடயினᾞைடயதா? என்ᾠ ேவᾠபᾌத்த ᾙᾊயாத ஒᾞ ᾐரதிஷ்டவசமான நிைலைமயில் காணப்பᾌகின்றᾐ. இᾐதான் இந்த ᾜத்தத்தின் ᾙᾊᾫமாகும். எனேவ, இன்ᾠ இந்த எᾤம்ᾗக் கூᾌகள் யாᾞக்கும் ெசாந்தம் இல்லாத நிைலயிேலேய காணப்பᾌகின்றன. காணாமற் ேபானவர்கᾦைடய ெபற்ேறார்கள் மற்ᾠம் சேகாதரர்கள் உறவினர்கள் ஒவ்ெவாᾞவᾞம் இᾐ தத்தமᾐ உறவினᾞைடயதாக இᾞக்காதா? என்ற ஓர் ஏக்கத்ᾐடன் அைவ பற்றிேய நிைனக்கின்ற ஒᾞ சூழ்நிைல இன்ᾠ உᾞவாகி யிᾞக்கின்றᾐ. எனேவ, இந்த ᾜத்தத்திᾔைடய தாக்கம் எங்கைள எங்கு ெகாண்ᾌேபாய் விட்ᾊᾞக்கின்றᾐ என்பைதப் பற்றி நாங்கள் சிந்தித்ᾐப் பார்க்க ேவண்ᾌம். இந்த ᾜத்தத்தின்ᾚலம் நாங்கள் எைதக் காணப் ேபாகின்ேறாம்? எனேவ, மனித உயிர்கைளக் காᾫெகாள்கின்ற, யாᾞக்குேம பிரேயாசனம் இல்லாத இந்த ᾜத்தம் உடனᾊயாக நிᾠத்தப்பட்ᾌ, ேபச்சுவார்த்ைத ᾚலமாக ஓர் அரசியல் தீர்ᾫ ᾙன்ைவக்கப்பட்ᾌ, நிரந்தர சமாதானம் ஏற்பᾌத்தப்பட்டால் மட்ᾌேம மனிதச் சடலங்கᾦம் மனித எᾤம்ᾗக் கூᾌகᾦம் கைரெயாᾐங்குவைத நிᾠத்த ᾙᾊᾜம், மனிதப் பᾌெகாைலகைள நிᾠத்த ᾙᾊᾜம் என்ᾠ நான் இந்த ேநரத்திேல கூறிக் ெகாள்ள விᾞம்ᾗகின்ேறன்.
+
+வன்னியிேல உள்ள ைவத்தியசாைலகᾦக்கு எல்லாம் மத்திய ஸ்தானமாக விளங்குகின்ற ைவத்தியசாைல வᾫனியா மாவட்ட ைவத்தியசாைலயாகும். ஏெனனில் கிளிெநாச்சி, ᾙல்ைலத்தீᾫ, மன்னார் மாவட்ட மக்கᾦம், மதவாச்சி நகர மக்கᾦம் அந்த ைவத்தியசாைலையப் பயன்பᾌத்ᾐகின்றார்கள். ஆனால், இன்ᾠ அந்த ைவத்தியசாைலயின் இயக்கம் ைவத்தியர்களிᾔைடய பகிஷ்காிப்பினால் ᾙடக்கப்பட்ᾊᾞக்கின்றᾐ. அதாவᾐ, அங்கு ஒᾞ ைவத்தியாிடம் நாற்பᾐ இலட்சம் ᾟபாய் கப்பப் பணம் ேகாரப்பட்டதனாேலேய இந்த நிைலைம ஏற்பட்ᾊᾞக்கின்றᾐ. இதற்கு யார் காரணம்? கப்பம் ேகாᾞபவர்கைள, அதில் சம்பந்தப்பட்டவர்கைள இனங்காᾎங்கள்! குற்றவாளிகைளக் ைகᾐ ெசய்ᾜங்கள்! என்ᾠ இந்த சைபயிேல நாங்கள் எத்தைனேயா தடைவ ேபசிவிட்ேடாம். ஆனால், எந்த ᾙᾊᾫேம இல்ைல. அங்ேக கப்பம் ேகாᾞகின்ற நிைலைம ெதாடர்ந்ᾐெகாண்ேட இᾞக்கின்றᾐ. கப்பம் ேகாாித் ெதாைலேபசிᾚலம் மிரட்ᾌ கின்றார்கள். வர்த்தகர்களிடமிᾞந்ᾐ ேகாᾊக்கணக்கான பணம் கப்பமாகப் ெபறப்பட்ᾊᾞக்கின்றᾐ. அவர்களில் பலர் ெகால்லப் பட்ᾊᾞக்கிறார்கள்; பலᾞைடய ᾪᾌகᾦக்கு ைகக்குண்ᾌகள் ᾪசப்பட்ᾊᾞக்கின்றன; அவர்கள் மிரட்டப்பட்ᾌ வᾞகின்றார்கள். இதனால் பல வர்த்தகர்கள் தங்கᾦைடய கைடகைள ᾚᾊவிட்ᾌ இந்தியாᾫக்கும் ேவᾠ நாᾌகᾦக்கும் இடம்ெபயர்ந்திᾞக்கிறார்கள் அல்லᾐ தஞ்சம் ேகாாியிᾞக்கின்றார்கள். அேதேபால், கப்பம் அறவிᾌேவார் சட்டத்தரணிகளிடᾙம் தங்கᾦைடய ைகவாிைசையக் காட்ᾊயிᾞக்கிறார்கள். இன்ᾠ ைவத்தியர்கள்! ஆட்ைடக் கᾊத்ᾐ, மாட்ைடக் கᾊத்ᾐ, மனிதைனக் கᾊப்பᾐேபால இன்ᾠ அத்தியாவசிய ேசைவயில் ஈᾌபᾌபவர்கள்மீᾐ அவர்கள் ைகைவக்கக்கூᾊய ஒᾞ சூழ்நிைல ஏற்பᾌவதற்கு காரணம் என்ன? பாᾐகாப்ᾗப் பைடயினராேலா, ெபாᾢஸாராேலா இவற்ைறத் தᾌக்க ᾙᾊயாைமக்கான காரணம் என்ன? என்பைத நான் ேகட்க விᾞம்ᾗகின்ேறன். இப்பᾊயாக வᾫனியாவிேல கப்பம் ேகட்கின்ற படலம் ெதாடர்ந்ᾐெகாண்ேடயிᾞக்கின்றᾐ. ெதாழிற்சங்கங்கள் அல்லᾐ அைமப்ᾗக்கᾧடாகச் ெசயற்பᾌகின்றவர்கள் ேபாராட்டங்கைள நடத்தலாம். உதாரணமாக ைவத்தியர்கள்
+
+தங்கᾦைடய ேகாாிக்ைககைள ᾙன்ைவத்ᾐ - தாங்கள் ெகால்லப்பᾌவைத அல்லᾐ அச்சுᾠத்தப்பᾌவைத நிᾠத்தக்ேகாாி - அரசாங்கத்திடம் பணிப் பகிஷ்காிப்ᾗ ெசய்யலாம். வர்த்தகர்கள் அல்லᾐ சட்டத்தரணிகள் கூட அேதேபான்ற பகிஷ்காிப்ᾗக்களில் ஈᾌபடலாம்; அரசாங்கத்ᾐக்கு அᾨத்தங்கைளக் ெகாᾌக்கலாம். ஆனால், சாதாரண மக்கள் என்ன ெசய்வார்கள்? அவர்களிடᾙம் அன்றாடம் அங்ேக கப்பம் ேகாரப்பᾌகின்றᾐ. ெவளிநாட்ᾊேல - அᾐ மத்திய கிழக்கு நாடாக இᾞந்தாᾤம் சாி அல்லᾐ ஐேராப்பிய நாடாக இᾞந்தாᾤம் சாி - மகேனா, மகேளா அல்லᾐ உறவினர்கேளா இᾞந்தால் அவர்களிடம் கப்பம் ேகாரப்பᾌ கின்றᾐ. இல்ைலேயல் அவர்கள் ெகால்லப்பᾌவார்கள் என்ᾠ மிரட்டப்பᾌகிறார்கள். இதற்ெகதிராக அவர்கள் எப்பᾊப் ேபாராᾌவார்கள்? தனி மனிதனாக ᾪதியிேல இறங்கி அவர்களால் ேபாராட ᾙᾊயாᾐ. அதனால் அவர்கள் ஏேதா ஒᾞ ᾙைறயிேல அவர்கள் ேகட்கின்ற அந்தப் பணத்ைதச் ெசᾤத்தேவண்ᾊய ஒᾞ நிைலதான் இᾞக்கின்றᾐ; ேகட்கின்ற கப்பத்ைத வழங்கேவண்ᾊய நிர்ப்பந்தம் ஏற்பட்ᾊᾞக்கின்றᾐ. இப்பᾊயாக வᾫனியாவிேல ஒவ்ெவாᾞ குᾌம்பத்திᾢᾞந்ᾐம் ஏேதா ஒᾞ வைகயிேல ஒᾞ சிறிய ெதாைகயிᾢᾞந்ᾐ இலட்சக்கணக்கான ெதாைக வைரக்கும் கப்பம் அறவிடப்பட்ᾌ வᾞகின்றᾐ. அᾐ உங்கᾦைடய கட்ᾌப்பாட்ᾌப் பகுதி என்கின்றீர்கள். ெபாᾢஸாᾞைடய சிவில் நிᾞவாகம் அங்ேக பரவலாக்கப்பட்ᾊᾞப்பதாகᾫம் இராᾎவத்தினᾞைடய ᾙᾨைமயான பாᾐகாப்ᾗ நடவᾊக்ைககள் அங்ேக பலப்பᾌத்தப் பட்ᾊᾞப்பதாகᾫம் கூᾠகின்றீர்கள். அவ்வாᾠ ᾙᾨைமயாக அரசாங்கத்திᾔைடய கட்ᾌப்பாட்ᾊᾤள்ள ஒᾞ பிரேதசத்திᾤம்கூட இப்பᾊயாகக் கப்பம் ேகட்கின்ற நிைலைம - இந்தப் படலம் - ெதாடர்ந்ᾐெகாண்ேட இᾞக்கின்றᾐ. அᾐேபால, கடத்தல்கள் ெதாடர்ந்ᾐெகாண்ᾊᾞப்பதனால் ஆட்கள் காணாமற்ேபாகின்றார்கள்; ைகᾐகᾦம் ெதாடர்கின்றன. கடந்த 18ஆந் திகதிகூட மன்னாாிᾤள்ள ேதாட்டெவளி என்ற பிரேதசத்திேல ஆᾠ தமிழ் மீனவ இைளஞர்கள் ைகᾐ ெசய்யப்பட்ᾌ இன்னᾙம் மன்னார் ெபாᾢஸ் நிைலயத்தில் தᾌத்ᾐ ைவக்கப்பட்ᾊᾞக்கின்றார்கள். அவர்கᾦைடய குᾌம்பத்தினர் அந்த இைளஞர்கᾦைடய மீன்பிᾊத்ெதாழிைல நம்பிேய சீவியம் நடத்ᾐகின்றார்கள். அந்தக் கிராமத்ைதச் சுற்றிவைளத்ᾐ, சந்ேதகத்தின்ேபாில் அந்த மீனவ இைளஞர்கைளக் ைகᾐெசய்ᾐ, அவர்கள்மீᾐ ெவவ்ேவᾠ குற்றச்சாட்ᾌக்கைளச் சுமத்தி, இன்ᾠவைர மன்னார் ெபாᾢஸ் நிைலயத்திேல அைடத்ᾐ ைவத்திᾞக்கின்றார்கள். அந்த மீனவக் குᾌம்பத்தினைரப் பாᾐகாப்பதற்காகᾫம் பராமாிப்பதற்காகᾫம் அந்த இைளஞர்கைள உடனᾊயாக விᾌதைல ெசய்வதற்கு நடவᾊக்ைக எᾌக்கப்பட ேவண்ᾌம் எனக் ேகட்ᾌக் ெகாள்கின்ேறன். அரசாங்கம் அவர்கள் விᾌதைலப் ᾗᾢகள் அல்லᾐ அவர்கள் விᾌதைலப் ᾗᾢகᾦக்கு உதவிெசய்தார்கள் என்பᾐ ேபான்ற ெபாய்யான குற்றச் சாட்ᾌக்கைளச் சுமத்தி, சந்ேதகத்தின்ேபாிேல ைகᾐ ெசய்திᾞந்த ெபாᾨதிᾤம், உண்ைமயிேலேய அவர்கள் நிரபராதிகள் என்பᾐ எங்கᾦக்கு நன்றாகத் ெதாிᾜம். அவர்கள் எந்த வித வன்ᾙைறகளிᾤம் அரசாங்கத்ᾐக்கு எதிரான எந்த விதமான ெசயற்பாᾌகளிᾤம் ஈᾌபடாதவர்கள். எனேவ, அரசாங்கம் உடனᾊயாக அவர்கைள விᾌதைல ெசய்வதற்குாிய நடவᾊக்ைககைள ேமற்ெகாள்ளேவண்ᾌெமன்ᾠ நான் இந்தச் சைபயிேல மிகᾫம் விநயமாகக் ேகட்ᾌக்ெகாள்கின்ேறன்.
+
+மன்னார் மாவட்டம் ஒᾞ தனியான தபால் அத்தியட்சகர் காாியாலயத்ைதக் ெகாண்ᾊᾞக்கிறᾐ. அந்த மாவட்டத்ᾐக்ெகன ஒᾞ தனியான தபால் வாகனம் கிைடயாᾐ. ஆகேவ, சம்பந்தப்பட்ட அைமச்சர் அவர்கள் மன்னார் பிரதம தபால் கந்ேதாᾞக்கு ஒᾞ தனியான தபால் வாகனத்ைதக் ெகாᾌக்க நடவᾊக்ைக எᾌக்கேவண்ᾌெமன இத்தᾞணத்தில் ேகட்ᾌக் ெகாள்வᾐடன், கூைரகள் விᾨந்ᾐம் சுவர்கள் இᾊந்ᾐம் பாவிக்க ᾙᾊயாத நிைலயில் காணப்பᾌகின்ற மன்னார் பைழய தபால் கந்ேதார் கட்ᾊடத்தின் தபால் அைறையத் திᾞத்ᾐவதற்கு நிதி ஒᾐக்கீᾌ ெசய்ᾐ ெகாᾌக்கேவண்ᾌம் எனᾫம் ேகட்ᾌக்ெகாள்கின்ேறன்.
+
+පාර්ලිෙම්න්තුව 3297 3298
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) Hon. member, Please wind up. ගරු එස්. විෙනෝ මහතා (மாண்ᾗமிகு எஸ். விேனா) (The Hon. S. Vino) எதிர்வᾞம் 12ஆந் திகதி தபால் மாஅதிபர் அவர்கள் மன்னாᾞக்கு விஜயம் ெசய்ய இᾞப்பதாக நான் அறிகின்ேறன். அவரᾐ விஜயத்தின்ெபாᾨᾐ மன்னார் மாவட்டத்ᾐக்கு தபால் விநிேயாகம் ெசய்ᾜம் வாகனம் ஒன்ைறப் ெபற்ᾠக்ெகாᾌப்பதற்கும் தபால் அைறையத் திᾞத்தியைமப்பதற்கும் எᾌக்கேவண்ᾊய நடவᾊக்ைககள் ெதாடர்பாக சம்பந்தப்பட்ட உயர் அதிகாாி கᾦக்குக் கட்டைள பிறப்பித்ᾐ இவ்வசதிகைளச் ெசய்ᾐ ெகாᾌக்க ேவண்ᾌம் எனக் ேகட்ᾌக்ெகாள்கிேறன்.
+
+இᾠதியாக, மீண்ᾌம் மாண்ᾗமிகு அைமச்சர் அவர்கள் பாᾐகாப்ᾗ அைமச்சுடேனா, பாᾐகாப்ᾗ அைமச்சின் ெசயலாளᾞடேனா கலந்தாேலாசித்ᾐ அல்லᾐ ேமதகு ஜனாதிபதி அவர்கᾦடன் கலந்தாேலாசித்ᾐ, ஏைனய மக்கᾦக்கு வழங்கப் பட்ᾌள்ளᾐ ேபான்ᾠ மன்னார் மற்ᾠம் வᾫனியா பிரேதச மக்கᾦக்கும் ைகத்ெதாைலேபசி வசதிகைளᾜம், CDMA ெதாைலத் ெதாடர்ᾗ இைணப்ᾗக்கைளᾜம் ெபற்ᾠக்ெகாᾌக்கேவண்ᾌம் எனக் ேகட்ᾌ, விைடெபᾠகின்ேறன். நன்றி. வணக்கம்.
+
+[අ.භා. 3.29] ගරු මිල්ෙරෝයි පනාන්දු මහතා (ජනතා වතු කළමනාකරණ හා සංවර්ධන අමාතɕතුමා)
+
+(மாண்ᾗமிகு மில்ேராய் ெபர்னாந்ᾐ - மக்கள் ேதாட்ட ᾙகாைமத்ᾐவம் மற்ᾠம் அபிவிᾞத்தி அைமச்சர்)
+
+(The Hon. Milroy Fernando - Minister of Public Estate Management and Development)
+
+ස්තුතියි, මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස. ජනතා වතු කළමනාකරණ හා සංවර්ධන අමාතɕාංශෙය් වැය ශීර්ෂය සම්බන්ධව විනාඩි 5ක් ෙහෝ කථා කරන්න අවස්ථාව ලබා දීම සම්බන්ධව මා සන්ෙතෝෂයට පත් වනවා. ගරු ජනාධිපතිතුමා ජනතා වතු කළමනාකරණ හා සංවර්ධන කියන අමාතɕාංශය සකස් කරලා අමාතɕවරයා හැටියට මා පත් කළා. ජනතා වතු සංවර්ධන මණ්ඩලය, රාජɕ වැවිලි සංස්ථාව, සීමාසහිත ඇල්කඩුව වැවිලි සමාගම, සීමාසහිත කුරුණෑගල වැවිලි සමාගම සහ සීමාසහිත හලාවත වැවිලි සමාගම කියන වතු සමාගම් 5ක් මෙග් අමාතɕාංශය යටතට ගැෙනනවා. විෙශේෂෙයන්ම ජනතා වතු සංවර්ධන මණ්ඩලයත්, රාජɕ වැවිලි සංස්ථාවත් ඉතාමත්ම පාඩු ලබන ආයතන හැටියට සැලෙකනවා. ඒ වාෙග්ම පසු ගිය ආණ්ඩු කාලෙය්දී සිදු වුණු වැරැදි ෙබොෙහොමයක් තිෙබනවා. විෙශේෂෙයන්ම අර්ථ සාධක ෙගවලා නැහැ; Gratuity ෙගවලා නැහැ. ඒ වාෙග් ෙනොෙයකුත් පශ්න තිෙබන ආයතන ෙදකක් මෙග් අමාතɕාංශයට අයත් වනවා. ෙම් ආයතන ෙදෙක් පශ්න නිසා පසු ගිය ආණ්ඩු කාලෙය්දී ජනතා වතු සංවර්ධන මණ්ඩලෙය් මූලස්ථානය තිෙබන බිමත්, වැවිලි කර්මාන්ත අමාතɕාංශය තිෙබන බිමත් බැංකුවට උකස් කරලායි තිෙබන්ෙන්. ඒකටත් මාසයකට රුපියල් ලක්ෂ 30 ගණෙන් බැංකු අයිරාවලට ෙපොලිය ෙගවන්න අද අපට සිද්ධ ෙවලා තිෙබනවා. එවැනි තත්ත්වයක් උඩ ෙමම ආයතන ෙදකට යම් කිසි දියුණුවක් ලබා ෙදන්න අපි කටයුතු කරලා තිෙබනවා.
+
+සීමාසහිත ඇල්කඩුව වැවිලි සමාගම ගැන සඳහන් කරන විට අපි ඒ සමාගෙම් ඉතාමත් ෙහොඳ පාලනයක් ෙගන ගිය බව කියන්න ඕනෑ. අද සීමාසහිත ඇල්කඩුව වැවිලි සමාගම ලාභ ලබන ආයතනයක් හැටියට පත් කරලා තිෙබනවා. විෙශේෂෙයන්ම කිරි ෙගොවි ෙපොළක් ඇති කළා. එහි ෙසේවය කරන ෙසේවක මහත්ම මහත්මීන් ෙවනමත්, වතු පාලකතුමා ඇතුළු ඒ කණ්ඩායම ෙවනමත් කිරි හරක් ඇති කරන වɕාපාර ෙදකක් අපි ළඟදී පටන් ගත්තා. විෙශේෂෙයන් අපි බලාෙපොෙරොත්තු වන්ෙන්, ෙත්වලින්,
+
+ෙපොල්වලින්, රබර්වලින් විතරක්ම අෙප් ආයතන දියුණු කර ගන්න ෙනොෙවයි. අද තිෙබන ආර්ථික මට්ටම අනුව අෙප් සියලුම වතුවලින් අපට ගන්න පුළුවන් සෑම ආධාරයක්ම යම් කිසි මට්ටමකින් ලබා ෙගන කටයුතු කරන්නයි, අපි බලාෙපොෙරොත්තු වන්ෙන්.
+
+අෙප් වතු යායවල්වල දිය ඇලි තිෙබනවා. අපි දැනටත් අත්සන් කර තිෙබනවා, විදුලි බලාගාර සකස් කරන්න. මාසයකට නැත්නම් අවුරුද්දකට බදු දීමක් ෙනොෙවයි කරන්ෙන්. විදුලිය නිපදවා ඒ විදුලිෙයන් අපට යම් කිසි මුදලක්, සියයට ගණනක් ලබා ගන්න තමයි අපි කටයුතු කරලා තිෙබන්ෙන්. අපටත් ආදායමක් ලැෙබන්න ඕනෑ. ෙමොකද, දිය ඇල්ෙල් අයිතිය තිෙබන්ෙන් වත්තටයි. එෙහම නම් ඒ දිය ඇල්ෙල් වටිනාකම අපි ලබා ගන්න ඕනෑ. ඒ සඳහා වතු කම්කරුවන් ලබා ෙදන්න අප කටයුතු කර ෙගන යනවා.
+
+සීමාසහිත කුරුණෑගල වැවිලි සමාගම ගැනත් සඳහන් කරන්න ඕනෑ. සීමාසහිත කුරුණෑගල වැවිලි සමාගම ඉතාමත්ම ලාභ ලබන ආයතනයක් හැටියට දැනට කටයුතු කර ෙගන යනවා. අපි ඒ සමාගම ගැනීෙම්දීත් එය පාඩු ලබන ආයතනයක් හැටියටයි තිබුෙණ්. ඒ වාෙග්ම බැංකු අයිරාවක් තිබුණු එකක්. නමුත් අපි ඒ සියලුම ෙද්වල් නිදහස් කර ෙගන අද ලාභ ලබන තත්ත්වයට ඇවිත් තිෙබනවා. අවුරුද්ද අවසානෙය්දී ෙසේවකයන්ට හා වතු අධිකාරි මහත්වරුන්ට ලාභාංශ ෙගවන තත්ත්වයට අද අපි ඒ සමාගම ෙගනැවිත් තිෙබනවා. සීමාසහිත කුරුණෑගල වැවිලි සමාගෙම් අන්නාසි සහ ෙකෙසල් වගාවන් අපි නැවත පටන් ෙගන තිෙබනවා. අපි බලාෙපොෙරොත්තු වන්ෙන්, ඒ වතුවලින් නියම පෙයෝජන ලබා ෙගන ජනතාවට ලබා ෙදන්නයි.
+
+ඒ විතරක් ෙනොෙවයි. ෙම් අවුරුද්ෙද් ජුනි මාසෙය් 01 වන දා සීමාසහිත හලාවත වැවිලි සමාගම අපට පවරා ගන්න පුළුවන්කම ලැබුණා. නිකම් ෙනොෙවයි; මුදලක් ලබා දීලා තමයි අපි ඒ කටයුත්ත කෙළේ. එෙහම කරලා හය මාසයක් වැනි සුළු කාලයක් තුළදී ලාභ ලබන තත්ත්වයට අපි ෙගනවිත් තිෙබනවා. ෙපෞද්ගලික අංශයට තමයි ලාභ ලබන්න පුළුවන්, රාජɕ අංශයට ලාභ ලබන්න බැහැයි කියන මතය ෙවනස් කර ගන්න අපට පුළුවන්කම ලැබී තිෙබනවා.
+
+මා ෙම් අවස්ථාෙව් මෙග් අමාතɕාංශෙය් ෙල්කම්තුමා, අතිෙර්ක ෙල්කම්තුමිය ඇතුළු අමාතɕාංශෙය් සියලුම නිලධාරි මහත්වරුන්ටත්, ඒ වාෙග්ම මෙග් ආයතන පෙහේ සභාපති මහත්වරුන්ට සහ අධɕක්ෂ මණ්ඩලෙය් සියලු ෙදනාටමත්, ඒ වාෙග්ම වතු පාලකතුමන්ලා ඇතුළු ෙසේවක මහත්ම මහත්මීන් සියලු ෙදනාටමත් මට ෙම් අවුරුද්ෙද් ලබා දුන්නා වූ සහෙයෝගයට ස්තුති කරමින් මා නිහඬ වනවා. ස්තුතියි.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ෙබොෙහොම ස්තුතියි, ගරු ඇමතිතුමා. ඊළඟට ගරු කුමාර ෙවල්ගම ඇමතිතුමා.
+
+[අ.භා. 3.33] ගරු කුමාර ෙවල්ගම මහතා (කර්මාන්ත සංවර්ධන අමාතɕතුමා)
+
+(மாண்ᾗமிகு குமார ெவல்கம - ைகத்ெதாழில் அபிவிᾞத்தி அைமச்சர்)
+
+(The Hon. Kumara Welgama - Minister of Industrial Development)
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, මා පළමුෙවන්ම මතක් කරන්න ඕනෑ, ගරු රවි කරුණානායක මන්තීතුමා එතුමාෙග් කථාෙව්දී රණ විරුවන් ගැන සඳහන් කළ බව. එතුමා දැන් ෙම් ගරු සභාවට පැමිෙණනවා. මා ඒ ගැන සන්ෙතෝෂ වනවා. එතුමා මෙග් මිතයා. එතුමා සඳහන් කළා, රණ විරුවන් තවම
+
+2008 ෙදසැම්බර් 05 3299 3300
+
+මන්නාරෙමන් එහාටවත් ගිහින් නැතිව ෙම් ආණ්ඩුව ෙබොරුවට පුරසාරම් ෙදොඩවනවාය කියලා. මුළු ලංකාවම දන්නවා, මුළු ෙලෝකයම දන්නවා, ෙම් ආණ්ඩුව ෙම් යුද්ධය ඉතාම ෙහොඳට කර ෙගන යනවාය කියන එක. අද සියලු ෙදනාම දන්නවා ෙම් යුද්ධය,- [බාධා කිරීම්] හාමුදුරුවෙන් මෙග් ෙවලාව ෙදන්න බැහැ. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) Venerable Presiding Member, I rise to a point of Order. මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ෙවලාවක් නැහැ. ඇමතිතුමාට විනාඩි 6යි තිෙබන්ෙන්. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ෙබොරු කියන්න එපා. ගරු කුමාර ෙවල්ගම මහතා (மாண்ᾗமிகு குமார ெவல்கம) (The Hon. Kumara Welgama) මා අසතɕ පකාශ කරන්ෙන් නැහැ. ෙමොකද, ෙම් ගරු සභාෙව් ෙබොරු කියන වචනය කියන්න තහනම්. මා අසතɕ පකාශ කරන්ෙන් නැහැ. මා කිව්ෙව්, ෙම්කයි. ෙමොකද, ඒක ඉතාමත් අසාධාරණයි. ෙම් රෙට් යුද්ධය අද හරියාකාරව කරනවාය කියන එක කවුරුත් දන්නවා. ෙම් යුද්ධය කරන්ෙන් කවුද? අෙප් ගම්වල ඉන්න දුප්පත් රණ විරුවන්. ෙම් රණ විරුෙවක් මැරුණාම, ෙගදර ෙගන ගිහින් හරියාකාරව මිනි ෙපට්ටිය තියන්නවත් බැරි තත්ත්වයක දුප්පත් ගම්මානවල ඉන්න රණ විරුවන් තමයි ෙම් යුද්ධය කරන්ෙන්. ෙම් යුද්ධය හරියාකාර කර ෙගන යනවා. ෙම් යුද්ධය අද කිලිෙනොච්චිය දක්වාම ගිහින් තිෙබනවා. මුලතිව්වලට හැතැප්ම දහයක් ෙමහාට වන තුරු ගිහින් අද අෙප් රණ විරුන් යුද්ධය කර ෙගන යනවා. එම නිසා ෙම් යුද්ධය ඉතාම ෙහොඳින් කර ෙගන යන යුද්ධයක්.
+
+ෙම් රෙට් ෙබොෙහොම පශ්න තිෙබන බව මා දන්නවා. අප ගම්බද ජීවත් වන අයයි. අෙප් පෙද්ශෙය් අද රබර් මිල පහත බැස තිෙබනවා. අෙප් පෙද්ශෙය් අද ෙත් මිල පහත බැස තිෙබනවා. අද මිනිසුන්ට ජීවත් වන්නට ටිකක් අමාරුයි. ගම්බද මිනිසුන්ට අඩු ගණෙන් ෙගොවිතැන තිෙබනවා; ෙකෙහල් ගහ තිෙබනවා; ෙකොස් ෙදල් ටික තිෙබනවා. ඒ තිබුණත් ජීවත් වන්න අමාරුයි. නමුත් ඒ අමාරුකම් මැද්ෙද් වුණත් අද මිනිසුන් ඉවසා ෙගන ඉන්ෙන් මහින්ද රාජපක්ෂ ජනාධිපතිතුමා ෙම් යුද්ධය හරියාකාර කර ෙගන යන නිසයි. ෙජ්.ආර්. ජයවර්ධන මහත්මයාෙග් ආණ්ඩුව කාල ෙය් ඉන්දියාෙවන් පරිප්පු දැම්මාම යුද්ධය නැවැත්වුවා. සාම සාකච්ඡා පවත්වන්නටය කියා රනිල් මහත්මයා යුද්ධය නැවැත්වුවා. ඒ කාල වලදී ෙමොකද වුෙණ්? ඒ කාලවල දී සම්පූර්ණෙයන් පභාකරන් අවි රැස් කළ එක පමණයි කෙළේ. නමුත් අද එෙහම ෙවලා නැහැ ෙන. අද දිගටම යුද්ධය කර ෙගන යනවා. අද තස්තවාදීන් ඉන්දියාවට පහර ගසා තිෙබන අවස්ථාෙව් දී අෙප් රෙට් යුද්ධය ඉතාම ෙහොඳින් කර ෙගන යාම ගැන මා ඉතාමත් සන්ෙතෝෂ ෙවනවා. ඒ වාෙග්ම රණ විරුවන්ට පින් සිද්ධ ෙවන්නටයි ඔබවහන්ෙසේත්, මාත්, ෙම් ආණ්ඩු පක්ෂයත්, විපක්ෂෙය් ඉන්න මන්තීවරුනුත් හැම ෙදනාම අද ෙමතැන ඉන්ෙන්. ෙම් විධියට රණ විරුවන් හෑල්ලුවට ලක් කරන්න එපා. ෙමොකද මංගල සමරවීර මහත්මයා කිව්වා, අෙප් හමුදාපතිතුමා හමුදාෙව් හමුදාපති තනතුරට ෙනොෙවයි ගැලවීෙම් හමුදාෙව් පධානියා හැටියට පත් කරන්නයි සුදුසු කියා. මා දන්ෙන් නැහැ, ජනතාව එතුමාට ඒ ගැන තීන්දුවක් ෙදයි. මංගල සමරවීර මන්තීතුමා ටත් ඒ වාෙග්ම එක්සත් ජාතික පක්ෂයටත් අනිවාර්යෙයන්ම ජනතාව තීන්දුවක් ෙදයි. ෙමොකද, එක්සත් ජාතික පක්ෂය බලා ෙගන ඉන්ෙන් ෙමොකකටද?
+
+ෙකොෙහොම හරි ෙමොන කමයකින් ෙහෝ ෙම් යුද්ධය ගැන ෙනොෙවයි ෙමොනවා ෙහෝ ෙදයක් ඉස්සරහට දමා ෙම් ආණ්ඩුව ෙපරළන්නයි බලා ෙගන ඉන්ෙන්. ඒක කවදාවත් වන්ෙන් නැහැ. ෙම් රෙට් එක්සත් ජාතික පක්ෂෙය් ජනතාව, ශී ලංකා නිදහස් පක්ෂෙය් ජනතාව, අනිකුත් සෑම පක්ෂයකම ජනතාව, පක්ෂයක ෙනො වන ජනතාව හරියාකාරව ෙම් යුද්ධය කර ෙගන ගිහින් ෙනොෙබෝ දිනකින් ෙම් රට තස්තවාදීන්ෙගන් ගලවා ගන්ෙන් ෙම් රජයයි කියන එක තීන්දු කර තිෙබනවා .
+
+මූලාසානරූඪ ගරු ස්වාමීන් වහන්ස, අෙප් කර්මාන්ත අමාතɕාංශය ගැන කථා කරන විට මා හුඟක් සන්ෙතෝෂ වන බව මා විෙශේෂෙයන්ම කියන්න ඕනෑ. ෙමොකද, විදුලි බිල ගැන අද හැම ෙකෙනක්ම කථා කරනවා. එෙහම විදුලි බිල ගැන කථා කරන අවස්ථාෙව්දී වුවත් ෙම් අය වැෙයන් ඉන්ධන ගැළපුම් ගාස්තුව සියයට 30 සිට සියයට 15 දක්වා අඩු කර තිෙබනවා. ඒ කියන්ෙන්, කර්මාන්තකරුවන්ට ෙලොකු සහනයක් ෙවලා තිෙබනවා කියන එකයි. සියයට 30 සිට සියයට 15ට ඉන්ධන ගැළපුම් ගාස්තුව අඩු වන ෙකොට විදුලි බිල අඩු ෙවනවා. අද වැට් එක ගත්ෙතොත් සියයට 15 සිට සියයට 13 දක්වා අඩු කර තිෙබනවා. ඒ ගැන මා හුඟක් සන්ෙතෝෂ ෙවනවා. ෙම් 2009 වර්ෂය සඳහා රුපියල් මිලියන 1,272ක් අෙප් අමාතɕාංශයට ලබා දී දී තිෙබනවා. කර්මාන්ත පුර හදන්න අපට රුපියල් මිලියන 415 ක් ෙවන් කර දී තිෙබනවා.
+
+කර්මාන්ත ගැන කථා කරන ෙකොට සපත්තු කර්මාන්තය අද ඉතාම දියුණු තත්ත්වයක තිෙබනවා. ජනාධිපතිතුමා ජනාධිපති ධුරෙය් වැඩ භාර ගත් අවස්ථාෙව් දී ෙම් රටට සපත්තු ෙගනාෙව් චීනෙයනුයි. නමුත් අද එෙහම ෙනොෙවයි. අද සපත්තු ෙමෝස්තර ගැන උගන්වන්න ආණ්ඩුෙව් වියදමින් ශමිකයින් පිට රට යවා තිෙබනවා. ඒ අය සපත්තු ෙමෝස්තර ඉෙගන ෙගන ඇවිත් තිෙබනවා. සපත්තු අඩිය ෙමෙහ හදනවා. අද සම්පූර්ණ සපත්තුව නිමි භාණ්ඩයක් හැටියට ෙහොඳ ෙමෝස්තරත් එක්ක අෙප් රෙට් නිෂ්පාදනය ෙවනවා. ෙමොකද, ෙමෝස්තර අවශɕයි. අද අෙප් ඇහැ යන්ෙන් ෙමෝස්තරවලටයි. එම නිසා අෙප් රෙට් සපත්තු කර්මාන්තය හුඟක් දියුණු ෙවලා තිෙබනවා. ෙමොරටුව විශ්වවිදɕාලයත්, ෙකොළඹ විශ්වවිදɕාලයත් එක්ක එක්කාසු ෙවලා ෙම් කර්මාන්තය සඳහා ශමිකයින් පුහුණු කිරීෙම් වැඩ පිළිෙවළක් ඇති කර තිෙබනවා. ෙමෙහ පුහුණු කිරීමට හැකියාවක් නැත්නම් පුහුණුව සඳහා පිට ර ට ෙහෝ යවනවා. අෙප් අමාතɕාංශෙයන් සියයට 50ක, සියයට75ක දායකත්වය දරා තිෙබනවා පිට රට ගිහින් ඉෙගන ෙගන එන්න. විශ්වවිදɕාල සමඟ එක්කහු ෙවලා තමයි අපි ෙම් සම්පූර්ණ කටයුත්ත කරන්ෙන්. ඒ වාෙග්ම ඇසුරුම් භාණ්ඩ නිෂ්පාදනය ගැනත් කතා කරන්න ඕනෑ. මා හිතන්ෙන් ඇසුරුම් භාණ්ඩ නිෂ්පාදනය අද හුඟක් දියුණුවට පත් ෙවලා තිෙබනවා කියලායි. ඖෂධ නිෂ්පාදනය දියුණු තත්ත්වයකට පත් ෙවලා තිෙබනවා. ඒ වාෙග්ම මා නිෙයෝජනය කරන අමාතɕාංශය යටෙත් තිෙබන්නා වූ ෙපොස්ෙෆේට් නිධිය ගැනත් යමක් කියන්න ඕනෑ. ෙම් ෙපොස්ෙෆේට් නිධිෙය් දැනට ෙපොස්ෙෆේට් ෙමටික් ෙටොන් මිලියන 60ක් තිෙබන බව හඳුනා ෙගන තිෙබනවා. ෙම්ක හඳුනා ෙගන දැනට අවුරුදු 35ක් ෙවනවා. තවම අපි පාවිච්චි කර තිෙබන්ෙන් සියයට එකක් පමණයි. සියයට එකක් තමයි අවුරුදු 35ටම අපි පාවිච්චි කරලා තිෙබන්ෙන්. මා හිතන්ෙන්, නිමි භාණ්ඩයක් හැටියට ෙම්ක පාවිච්චි කරන්න දැන් කාලය ඇවිල්ලා තිෙබනවා කියලායි. ෙපොෙහොර නිෂ්පාදනය කළ යුතු ෙවලාව තමයි ෙම් ඇවිල්ලා තිෙබන්ෙන්. ෙමොකද, අපි ෙපොෙහොර නිකම් ෙදනවා නම් අෙප් රෙට් ෙපොස්ෙෆේට් සම්පත තිෙබනවා නම් මා හිතන්ෙන් අපි අෙප් රෙට්ම ෙපොෙහොර නිෂ්පාදනය කළ යුතුය කියායි. ෙම්කට රුපියල් බිලියන 25ක විතර දායකත්වයක් දරන්න සිද්ධ ෙවනවා. අපි ෙම් යුද්ධෙය් ෙකළවරක් දකින්න ඕනෑ නිසා ආණ්ඩුවට ෙම් බර දරන්න බැරි නම් ෙම් ෙපොෙහොර නිධිය නිකම් තියා ෙගන ඉන්ෙන් නැතුව ලංකාෙව් ෙද්ශීය කර්මාන්තකාරයන් සමඟ එක්කාසු ෙවලා හරි ෙම් ෙපෙහොර නිෂ්පාදනය කරන්න පුළුවන් නම් ඒක අප ලබන ෙලොකු ජයගහණයක්. අපට කරන්න බැරි නම් ෙම් ගැන ෙහොඳ දැනුමක් තිෙබන ෙද්ශීය නිෂ්පාදකයන් ඉන්නවා, ෙද්ශීය කර්මාන්තකරුවන් ඉන්නවා. ඒ අය සමඟ අප ෙම් ගමන යන්න ඕනෑ.
+
+පාර්ලිෙම්න්තුව 3301 3302
+
+සර් ෙජෝන් ෙකොතලාවල මහතාට අයිතිව තිබුණු කහටගහ පතල ගැන කතා කරන ෙකොට මා කියන්න ඕනෑ, එක්සත් ජාතික පක්ෂ ආණ්ඩුව කාලෙය්දී ඒක සම්පූර්ණෙයන්ම වැසී ෙගොස් තිබුණා. මහින්ද රාජපක්ෂ මැතිතුමා ජනාධිපති පදවියට පත් වුණායින් පසුව අපි නැවත ෙම්ක ආරම්භ කළා. ෙබොෙහොම සුළුෙවනුයි ආරම්භ කෙළේ. ෙම් පතෙල් අඩි 2,000ක් යටට බහින්න ඕනෑ. අද ඒ ගෙම් මිනිස්සු එතැන රැකියාෙව් ෙයෙදනවා. භාණ්ඩාගාරයට බරක් ෙනොවන ආකාරයට සත පහක්වත් භාණ්ඩාගාරෙයන් ගන්ෙන් නැතුව කිෙලෝෙවොට් 1,000ක අලුත් ෙජනෙර්ටරයක් ෙගනල්ලා අද ඒ පතෙල් වැඩ කියාත්මක කර ෙගන යනවා. සාමානɕෙයන් දැනට මාසයකට ෙමටික් ෙටොන් 80ක් විතර ගන්න පුළුවන්කම ලැබී තිෙබනවා. අද ඒ කහටගහ පතෙලන් ගන්නා ඒ ඛනිජ දවɕ ෙමටික් ෙටොන් එකක් ෙඩොලර් 1,500ත් 2,000ත් අතර මිලකට පිට රටට අෙලවි කරන්න පුළුවන්කම ලැබී තිෙබනවා. ඛනිජ වැලි නීතිගත සංස්ථාව ගැන ජනතා විමුක්ති ෙපරමුෙණ් මන්තීවරුන් පශ්න ගණනාවක් මතු කළා. සභාව කල් තබන අවස්ථාෙව් ෙයෝජනාවක් ඉදිරිපත් කරමිනුත් ඒ පශ්නය ඇසුවා. ඒ අවස්ථාෙව්දී අප කිව්ෙව් අපි ෙම් ඛනිජ වැලි ෙමෙහම තියා ෙගන ඉඳලා වැඩක් නැහැ, අපි ඒ වැලි ටික ෙසෝදා පිට රට යවනවාය කියායි. ෙමටික් ෙටොන් එකකට ෙඩොලර් 80ක්, 84ක් වාෙග් මුදලක් තමයි අපට හම්බ ෙවන්ෙන්. දැන් අපට හම්බ ෙවන්ෙන් ෙමටික් ෙටොන් එකකට ෙඩොලර් 35යි. ෙමොකද, දැනට ෙලෝකෙය් ඇති වී තිෙබන මූලɕ අර්බුදය නිසා ෙමටික් ෙටොන් එකකට ෙඩොලර් 35ක් වාෙග් මුදලක් තමයි අපට හම්බ වන්ෙන්. මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස, මෙග් භාර්යාවට සාරියක් ගන්න මා ඊෙය් ෙපෙර්දා හයිදරාබාද්නුවර සාරි කඩයකට ගියා. ඒ ෙවලාෙව් ඒ සාප්පුෙව්ම හිටිෙය් මා විතරයි. ෙවන කවුරුවත් නැහැ. ඒ කියන්ෙන්, මුළු ෙලෝකෙය්ම ෙම් අර්බුදය පවතිනවා කියන එකයි. ෙවන දා ඉන්දියාෙව් සාරි කඩයක අඩු ගණෙන් කාන්තාවන් 150ක් 200ක්වත් ඉන්න බව අපි දැකලා තිෙබනවා. එදා මුළු කෙඩ්ම හිටිෙය් මා විතරයි. ඉතින් මම මාෙග් හිෙත් හැටියට මෙග් භාර්යාවට සාරි අර ෙගන ආවා. මම මීට වැඩිය කතා කරන්ෙන් නැහැ. ෙම් අවුරුද්ෙද් මට ඉතා ෙහොඳින් සහෙයෝගය ලබා දීම ගැන කර්මාන්ත සංවර්ධන අමාතɕාංශෙය් ෙල්කම්තුමා ඇතුළු අෙනකුත් සියලුම නිලධාරින්ටත්, කාර්යාල කාර්ය සහායකවරුන්, රියැදුරු මහතුන් ඇතුළු සියලු ෙදනාටත්, අෙප් අමාතɕාංශයට අදාළ සංස්ථාවල සභාපතිවරුන්, කියාකාරි අධɕක්ෂවරුන් ඇතුළු සියලු ෙදනාටත් මම ස්තුතිවන්ත ෙවනවා. ෙබොෙහොම ස්තුතියි.
+
+[අ.භා. 3.44] ගරු තිස්ස කරල්ලියද්ද මහතා (ෙද්ශීය ෛවදɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு திஸ்ஸ கரல்ᾢயத்த - சுேதச மᾞத்ᾐவத்ᾐைற அைமச்சர்)
+
+(The Hon. Tissa Karalliyadde - Minister of Indigenous Medicine)
+
+මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ෙසේෙගන් අවසරයි. ෙද්ශීය ෛවදɕ අමාතɕාංශෙය් වැය ශීර්ෂය ගැන කථා කරන්නට මට විනාඩි හයක කාලයක් ලබා දී තිෙබනවා.
+
+අෙප් අමාතɕංශෙය් දැක්ම හැටියට තිෙබන්ෙන් ෙද්ශීය ෛවදɕ කම මඟින් ෙද්ශෙය් සංවර්ධනයට දායක විය හැකි ෙසෞඛɕ සම්පන්න හා සමෘද්ධිමත් ජාතියක් ෙගොඩ නැඟීමයි. ඒ වාෙග්ම අෙප් අමාතɕාංශෙය් ෙමෙහවර වන්ෙන් ෙද්ශීය ෛවදɕ කමයන්හි වෘත්තීය විශිෂ් ටතා උපෙයෝගී කර ගනිමින් ශී ලාංකීය ජනතාවෙග් ආර්ථික සමාජයික, කායික, මානසික සහ අධɕාත්මික යහ පැවැත්මට දායක වීෙමන් උසස් ජීවන තත්ත්වයක් ලබා දීමයි. එය අෙප් ඒ දර්ශනය තුළ සඳහන් වී තිෙබනවා.
+
+අෙප් අමාතɕාංශෙය් පර්ෙය්ෂණ පැත්ත සඳහා ෙම් වර්ෂෙය් අතිගරු ජනාධිපතිතුමා රුපියල් මිලියන 100ක් පමණ ලබා දී තිෙබන බව සඳහන් කරන්නට ඕනෑ. ආයුර්ෙව්දය සඳහා ෙහද ෙහදියන් බඳවා ගැනීම, ෙරෝග නිවාරණය සඳහා පජා ෙසෞඛɕ වැඩසටහන් කියාත්මක කිරීම, ඒ සඳහා විෙශේෂ වූ ෛවදɕවරුන් බඳවා ගැනීම, ඔසු වගාව සඳහා සමාගමක් පිහිටු වීම, ආයුර්ෙව්දය ජාතɕන්තරයට පිවිසීම -දැනටමත් අපි පිවිසිලා සිටිනවා- ෙම් යටෙත් සිද්ධ ෙවනවා. පාරම්පරික ෛවදɕවරුන් ආරක්ෂා කර ගැනීම සඳහා "ෙහළ ෙවද ෙගදර" සංකල්පය යටෙත් වාට්ටු 53ක් පමණ ඉදි කර තිෙබනවා. ඒ වාෙග්ම මා කලින් සඳහන් කළ ආකාරයට ආයුර්ෙව්ද පර්ෙය්ෂණ සඳහා අතිගරු ජනාධිපතිතුමා ලබා දුන් රුපියල් මිලියන 100න් පිරිෙවන් අධɕාපනයට සහ ෙද්ශීය ෛවදɕ කටයුතුවලට සම්බන්ධ කිරීම සඳහා ඒ පර්ෙය්ෂණ පැත්තට ෙකොටසක් ෙවන් කරන්න බලාෙපොෙරොත්තු ෙවනවා.
+
+ඒ වාෙග්ම තමයි ඖෂධ වගාව පචලිත කිරීම. ෙද්ශීය ෛවදɕ කමය ආරක්ෂා කර ගන්න අපට ඖෂධ අවශɕයි, අෙප් හාමුදුරුවෙන්. ඒ නිසා එය පචලිත කිරීම සඳහා ඔසු ෙගොවි ගම්මාන වැඩසටහනක් අපි දියත් කළා. දැන් අෙප් අමාතɕාංශය යටෙත් ෙවනම සමාගමක් ඇති කර තිෙබනවා. එහි සියයට 51ක් ෙකොටස් රජයටත්, සියයට 49ක් ඒ සමාගමටත් ෙයොමු කර තිෙබනවා. ඒක මහින්ද චින්තනෙය්ත් සඳහන් වුණා.
+
+ඒ වාෙග්ම ෙලොවටම ආඩම්බරෙයන් දායාද කළ හැකි ෙද්ශීය ෛවදɕ කමයක් අප සතුව තිෙබන බවත්, එම දැනුම සංරක්ෂණය කිරීමත්, ෙලොවට ෙබදා හැරීමත් ඉතිහාසය මඟින් ජනාධිපතිතුමා ෙවත පවරා තිෙබන බවත් එතුමා එදා අය වැය ෙල්ඛනය ඉදිරිපත් කිරීෙම්දී සඳහන් කළා. විෙශේෂෙයන්ම ෙරෝග නිවාරණ පැත්තට ෙයොමු වන්නට අපි බලාෙපොෙරොත්තු ෙවනවා. ෙරෝග නිවාරණය පැත්තට ෙයොමු වන්නට තමයි ෛවදɕවරුන් 276 ෙදනකු බඳවා ෙගන පජා ෙසෞඛɕ පවර්ධන ෙසේවාවක් ලංකාව පුරාම ආරම්භ කිරීමට බලාෙපොෙරොත්තු වන්ෙන්. දැනට එය උතුරු මැද පළාෙත් කියාත්මක ෙවනවා.
+
+ඒ වාෙග්ම ෙද්ශීය ඖෂධ වගාකරුවන් දිරි ගැන්වීම සඳහා 2009 අය වැය ෙයෝජනා යටෙත් පිට රටින් ෙගන්වන සියලුම ආයුර්ෙව්ද ඖෂධ සඳහා අමතර බද්දක් අය කිරීමට කටයුතු කර තිෙබනවා. පිට රටින් ෙගන්වන ආයුර්ෙව්ද ඖෂධ සඳහා අමතර බදු අය කිරීම යටෙත් 2009 අය වැය විවාදෙය්දී අවධානය පිණිස පහත සඳහන් කරුණු ෙයොමු කරන්නට ඕනෑ. පිට රටින් ෙගන්වන ආයුර්ෙව්ද නිමි ඖෂධ, ෙගොවීන් දිරි ගැන්විය හැකි, ලංකාෙව් බහුලව වැෙවන සහ වැවිය හැකි ආයුර්ෙව්ද අමු දවɕ සඳහා ගැෙනන ඖෂධ යම් කිසි පවාහන තහනමකට ලක් කර ඇතත්, ලංකාෙව් ෙගොවීන් ලවා වවා ෙගන අපනයනය කළ හැකි විෙද්ශ ඉල්ලුමක් ඇති ආයුර්ෙව්ද ඖෂධ පිට රටින් ෙගන්වීමට අමතර බදු පැන වීම ඖෂධ වගාකරුවන්ට හිතකර විය හැකියි. ඒ වාෙග්ම පහත සඳහන් ඖෂධ සඳහා අමතර බදු පැන වුවෙහොත් ෙද්ශීය ආයුර්ෙව්ද ඖෂධ නිෂ්පාදනයට අපහසු වන අතර, ලංකාෙව් නිමි ආයුර්ෙව්ද ඖෂධවල මිල ඉහළ යාමක් සිදු ෙවනවා. ලංකාෙව් වැෙවන්ෙන් නැති ෙහෝ ලංකාෙවන් ෙසොයා ගත ෙනොහැකි ආයුර්ෙව්ද අමු දවɕ සඳහා ගැෙනන ඖෂධ, ලංකාෙව් වඳ වීෙම් තර්ජනයට ලක් වී ඇති ලැයිස්තුෙව් සඳහන් ආයුර්ෙව්ද අමු දවɕ සඳහා ගැෙනන ඖෂධ, මුල දී ලංකාෙව් තිබුණත්, දැනට වඳ වී යාෙම් තර්ජනයට ලක් වී තිෙබන දුර්ලභ ඖෂධ, සමහර කන්නවලදී ලංකාෙව් සාර්ථක අස්වැන්නක් ෙනොලැෙබන ඖෂධ සඳහා අමතර බදු අය ෙනොකරන්ෙන් නම් නිමි ඖෂධවල මිල ඉහළ යාම පාලනය කර ගත හැකි ෙවනවා.
+
+ඊළඟට ෙමන්න ෙම් කරුණු ඉදිරිපත් කරන්නට මා බලාෙපොෙරොත්තු ෙවනවා. අෙප් අමාතɕාංශය පැත්තකට ෙකොටු කරලා තිබුණු අමාතɕාංශයක් මූලාසනාරූඪ ගරු ස්වාමීන් වහන්ස. 2000 වර්ෂෙය් දී ෙමය ෙවනමම කැබිනට් අමාතɕාංශයක් බවට පත් කරලා, අමාතɕවරයා හැටියට මා කටයුතු කළා. 2001 වර්ෂෙය් දී අපට විරුද්ධ පක්ෂය පැත්ෙත් වාඩි වන්නට සිදු වුණා. නැවත වතාවක් 2004 වර්ෂෙය් ෙම් අමාතɕාංශය මට ෙයොමු කළාට පසුව, 2004 වර්ෂෙය් අෙප් මුල්ම ෙල්කම්තුමා හැටියට පත්
+
+[ගරු කුමාර ෙවල්ගම මහතා]
+
+2008 ෙදසැම්බර් 05 3303 3304
+
+වුෙණ් රණවීර මැතිතුමායි. ඊට පසුව කරුණාෙසේන මැතිතුමා පත් වුණා. අද වර්තමානෙය් අෙශෝක මාලිමෙග් මහතා ෙල්කම්තුමා හැටියටත්, මල්කාන්ති ඒකනායක මහත්මිය අතිෙර්ක ෙල්කම් හැටියටත්, රමණි ගුණවර්ධන මහත්මිය ආයුර්ෙව්ද ෙකොමසාරිස් හැටියටත් කටයුතු කරනවා. ඒ වාෙග්ම ෙම් අමාතɕාංශෙය් වැඩ කටයුතු ඉදිරියට කර ෙගන යන්නට සංස්ථාෙව් සභාපතිතුමා ඇතුළු සියලු ෙදනාෙග්ම ආශීර්වාදය ලැෙබනවා. 1977 වර්ෂෙය් ආයුර්ෙව්ද ෙබෙහත් ශාලා 10යි තිබුෙණ්. අද ආයුර්ෙව්ද ෙරෝහල් 49කුත්, මධɕම ෙබෙහත් ශාලා 156කුත් එක්ක මුළු එකතුව 209ක් ෙවනවා. එතෙකොට මධɕම ආණ්ඩුවට තිබුෙණ් ෙරෝහල් තුනයි. යාපනෙය් කයිතඩි, රාජගිරිය සහ නාවින්න. දැන් අපි ගම්පහ විකමාරච්චි ෙරෝහල පවරා ගනිමින් තිෙබනවා. මිහින්තෙල් පර්ෙය්ෂණ ෙරෝහල ඉදි ෙවමින් පවතිනවා. හම්බන්ෙතොට ශික්ෂණ ෙරෝහල ඉදි ෙවමින් පවතිනවා. මෙග් මතකය නිවැරදි නම්, මා අමාතɕ ධුරය දරපු කාලෙය් ගම්පහ විකමාරච්චි ආ යුර්ෙව්ද ෙරෝහෙල් උපාධිධාරි ෛවදɕවරුන් 800කට ආසන්න පමාණයකට අපි තනතුරු ලබා දීලා තිෙබනවා. එතෙකොට ඩිප්ෙලෝමාධාරි ෛවදɕවරුන්ට පත්වීම් ලබා ෙදන්නට තිෙබනවා. ඒ ගැන ෙම් දවස්වල කතිකාවක ෙයෙදනවා. ඉන් ඔබ්බට කටයුතු කිරීෙම්දී අනාගතෙය් ෙම් ක්ෙෂේතය ආරක්ෂා කර ගැනීම සඳහා පමුඛතාවක් ලබා ෙදන්නට සිදු ෙවනවා. මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු ඇමතිතුමනි, මිනිත්තුවක් නිශ්ශබ්ද ෙවන්න. ෙම් අවස්ථාෙව් දී ගරු නිෙයෝජɕ කාරක සභාපතිතුමා මූලාසනයට පැමිෙණනවා ඇති.
+
+අනතුරුව ගරු (පූජɕ) උඩවත්ෙත් නන්ද හිමි මූලාසනෙයන් ඉවත් වුෙයන්, ගරු නිෙයෝජɕ කාරක සභාපතිතුමා මූලාසනාරූඪ විය.
+
+அதன்பிறகு, மாண்ᾗமிகு (வண.)உடவத்ேத நந்த ேதரர் அவர்கள் அக்கிராசனத்தினின்ᾠ அகலேவ, குᾨக்களின் பிரதித் தவிசாளர் அவர்கள் தைலைம வகித்தார்கள்.
+
+Whereupon THE HON. (VEN.) UDAWATTE NANDA THERO left the Chair,
+
+and MR. DEPUTY CHAIRMAN OF COMMITTEES took the Chair.
+
+ගරු තිස්ස කරල්ලියද්ද මහතා (மாண்ᾗமிகு திஸ்ஸ கரல்ᾢயத்த) (The Hon. Tissa Karalliyadde) ගරු නිෙයෝජɕ සභාපතිතුමනි, ෙහෝමිෙයෝපති පනතත් අපි සංෙශෝධනය කර තිෙබනවා. දැනට පරිවර්තන කටයුතු අවසන් ෙවමින් පවතින අතර, ෙදසැම්බර් මස මුල් සතිය වන ෙකොට සංෙශෝධිත ෙකටුම්පත පිළිබඳව සම්පාදකවරුන් සමඟ මූලික සාකච්ඡාවලින් පසුව එය අපට ලැබිය යුතුව තිෙබනවා. ඒ වාෙග්ම 2009 ෙපබරවාරි මාසෙය් දී අපට ආයුර්ෙව්ද පනතත්, සුවඳ විලවුන් පනතත් ඉදිරිපත් කරන්නට පුළුවන් ෙවනවා. ඒ වාෙග්ම ආයුර්ෙව්ද සංස්ථාෙව් දියුණුව උෙදසා එය පතිසංස්කරණය කළ යුතුව තිෙබනවා.
+
+ගරු අධɕාපන ඇමතිතුමා ෙම් අවස්ථාෙව් ගරු සභාෙව් ෙනොසිටියත් මට විෙශේෂ ඉල්ලීමක් කරන්නට තිෙබනවා. පාසල් ළමුන්ෙග් අනාගතය ෙවනුෙවන් පාසල්වල සමාජ අධɕයන විෂයයට ආයුර්ෙව්ද දර්ශනයත් ඇතුළත් කරන්නටය කියලා මා ඉල්ලා සිටිනවා. ඒ වාෙග්ම ලැබී තිෙබන කාල ෙව්ලාව අනුව මා දීර්ඝ වශෙයන් අදහස් පකාශ කරන්නට බලාෙපොෙරොත්තු වන්ෙන් නැහැ.
+
+අපනයනය තහනම් කරන ලද සහ සීමා කරන ලද ඖෂධීය පැළෑටින්ෙග් ලැයිස්තුවක් සහ අප අමාතɕාංශෙය් සහ ආයුර්ෙව්ද ෙදපාර්තෙම්න්තුෙව් 2009 වර්ෂය සඳහා අය වැය ඇස්තෙම්න්තුව මා සභාගත* කරනවා.
+
+* පුස්තකාලෙය් තබා ඇත. ᾓனிைலயத்தில் ைவக்கப்பட்ᾌள்ளᾐ. Placed in the Library.
+
+ඒ වාෙග්ම ෙමවර අෙප් අමාතɕාංශයට වැඩිපුර රුපියල් මිලියන 250ක් ලබා දීම පිළිබඳව අතිගරු ජනාධිපතිතුමාට අෙප් විෙශේෂ ස්තුතිය පුද කරන්නට ඕනෑ. අවුරුදු 14ක් ෙම් පාර්ලිෙම්න්තුෙව් හිටපු මන්තීවරයකු හැටියට අද දවස මට අලුත් අත් දැකීමක් වුණා. මා ෙම් අවස්ථාෙව් දී දිවංගත ගරු සිරිමාෙවෝ බණ්ඩාරනායක මැතිතුමිය සිහිපත් කරන්නට කැමැතියි. එතුමිය කිව්වා,- [බාධා කිරීමක්] මට තව විනාඩියක් ෙදන්න. කලින් තිබුණු පාර්ලිෙම්න්තුව වැඩි දියුණු කරලා, අපි එතැන පාර්ලිෙම්න්තුව හදමු කියලා. ඇත්ත වශෙයන්ම රෙට් පධාන තැන තමයි ෙමතැන. ෙමතැනත් අනවශɕ ධනස්කන්ධයක් වියදම් ෙවනවා. අපිට පුංචි පාර්ලිෙම්න්තුවක් තිබුණා නම් මීට වඩා ෙහොඳයි. ඒක නිසා ෙම්ක පුළුවන් නම් ෙද්ශීය ආයුර්ෙව්ද ෙරෝහලක් හා බටහිර ෙරෝහලක් බවට පරිවර්තනය කර ජාතɕන්තර මට්ටමට ෙගෙනන්න. අපිට අර පුංචි පාර්ලිෙම්න්තුව ආපහු හදලා ගත්ෙතොත් ෙම් වියහියදම් ටික කපා ගන්න පුළුවන් කියන එක මා කියන්න කැමැතියි. ෙමොකද, 225 ක් සිටින්නට ඕනෑ පාර්ලිෙම්න්තුෙව් හැම දාමත් හත් අට ෙදනායි ඉන්ෙන්. ෙම් හත් අට ෙදනාට ෙම් වායු සමීකරණය තුළ ඉන්නටත් අපහසුයි. ෙම්ක අපරාධ වියදමක් හැටියට මා දකිනවා. ෙබොෙහොම ස්තුතියි.
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) ෙබොෙහොම ස්තුතියි. ගරු පියසිරි වි ෙජ්නායක මන්තීතුමා. [අ.භා. 3.54] ගරු පියසිරි විෙජ්නායක මහතා (மாண்ᾗமிகு பியசிறி விேஜநாயக்க) (The Hon. Piyasiri Wijenayake) ගරු නිෙයෝජɕ සභාපතිතුමනි, ෙද්ශීය ෛවදɕ අමාතɕාංශය පිළිබඳව ගරු ඇමතිතුමා කථා කළා. මුලින්ම මා එතුමාට ස්තුතිවන්ත වනවා, දීර්ඝව සටන් කරපු ආයුර්ෙව්ද ෛවදɕවරුන්ට පත් වීම් ලබා දීම ෙවනුෙවන් විශාල කැප කිරීමක් කිරීම පිළිබඳව. මම හිතන්ෙන් ස්තුති කිරීමත් ෙම් කාලෙය් දුර්ලභ ෙදයක් නිසා ෙම් අවස්ථාෙව්දී අප එතුමාට අෙප් ස්තුතිය පුද කරනවා. ඒ වාෙග්ම ෙමතැනදී මතු වන කරුණු ෙදකක් පිළිබඳව මා අමාතɕතුමාෙග් අවධානය ෙයොමු කරවනවා. ආයුර්ෙව්ද ඖෂධ සඳහා බදු අය කිරීම අපට දිගු කාලීන හානියක් බවට පත් වන එක ෙහේතුවක් තමයි ලංකාෙව් අපට අවශɕ ෙගොඩක් ආයුර්ෙව්ද ඖෂධ ආනයනය කරන්ෙන් ඉන්දියාෙවන් වීමත් එයට විෙද්ශ විනිමය යන එක පාලනය කරන්න ෙද්ශීය නිෂ්පාදනය-
+
+ගරු තිස්ස කරල්ලියද්ද මහතා (மாண்ᾗமிகு திஸ்ஸ கரல்ᾢயத்த) (The Hon. Tissa Karalliyadde) ගරු මන්තීතුමනි, අමු දවɕවලට ෙනොෙවයි. නිමි ඖෂධවලටයි බදු අය කරන්ෙන්. ඊෙය් ෙපෙර්දා මුද්දරප්පලම්වලට ෙසස් බද්ද ඉවත් කළා. නිමි ඖෂධ සඳහා විතරයි අප ඉල්ලන්ෙන්.
+
+ගරු පියසිරි විෙජ්නායක මහතා (மாண்ᾗமிகு பியசிறி விேஜநாயக்க) (The Hon. Piyasiri Wijenayake) අමු දවɕවලට නැද්ද? ගරු තිස්ස කරල්ලියද්ද මහතා (மாண்ᾗமிகு திஸ்ஸ கரல்ᾢயத்த) (The Hon. Tissa Karalliyadde) නැහැ, නැහැ. ගරු පියසිරි විෙජ්නායක මහතා (மாண்ᾗமிகு பியசிறி விேஜநாயக்க) (The Hon. Piyasiri Wijenayake) එෙහම නම් ෙබොෙහොම ස්තුතියි. ඊළඟ කාරණාව විධියට මම මතු කරන්ෙන් ෙම්කයි. ආයුර්ෙව්ද ෛවදɕවරුන්ට එෙහම නැත්නම් ෙද්ශීය ෛවදɕවරුන්ට බටහිර ෛවදɕවරුන්ට ලැෙබන 7 - PL 003633 - (2009/01)
+
+පාර්ලිෙම්න්තුව 3305 3306
+
+අතිෙර්ක වරපසාද, ඒ අයිතිවාසිකම් ඒ ආකාරෙයන් ලැෙබන්ෙන් නැහැ. ඒ නිසා මම ඔබතුමාට ෙයෝජනා කරනවා ෙම් පිළිබඳව ෙමෙතක් කටයුතු කළා වාෙග්ම, වැඩි අවධානයක් ෙයොමු කරලා බටහිර ෛවදɕවරුන්ට ලැෙබන ෙසේවා පහසුකම්, අතිෙර්ක වරපසාදයන් ෙද්ශීය ෛවදɕවරුන්ටත්, එෙහම නැත්නම් ආයුර්ෙව්ද ෛවදɕවරුන්ටත් ලබා දීමට කටයුතු කරන්නය කියා. ගරු තිස්ස කරල්ලියද්ද මහතා (மாண்ᾗமிகு திஸ்ஸ கரல்ᾢயத்த) (The Hon. Tissa Karalliyadde)
+
+Private practiseවලට ඉඩ ෙදන්න අෙප් පනෙත් ඉඩක් නැහැ. ගරු පියසිරි විෙජ්නායක මහතා (மாண்ᾗமிகு பியசிறி விேஜநாயக்க) (The Hon. Piyasiri Wijenayake)
+
+Private practise කරන එක ෙනොෙවයි කියන්ෙන්. බටහිර ෛවදɕවරුන්ට තිෙබන පහසුකම්, අතිෙර්ක දීමනා, අතිෙර්ක ෙගවීම් ෙමොනවාවත් ආයුර්ෙව්ද ෛවදɕවරුන්ට ලැෙබන්ෙන් නැහැ. ඒ නිසා ලංකාෙව් ෛවදɕවරුන් ගණනය කරන ෙකොට ෙද්ශීය ෛවදɕවරුනුත්, බටහිර ෛවදɕවරුනුත් එකට ගණනය කරලා ෛවදɕවරු ගණන ෙමපමණයි කියලා සහතික කෙළොත් එතැනදී වරපසාද ලබා දීෙම් ඉඩ කඩක් තිෙබනවා.
+
+ඒ වාෙග්ම ගරු ඇමතිතුමනි, කර්මාන්ත අමාතɕාංශයට විෙශේෂ අවධානය ෙයොමු කළ යුතු ෙයෝජනාවක් තිෙබනවා. පසු ගිය දවස්වල ගිනි ෙකළි භාණ්ඩ විශාල පමාණයක් පිට රටින් ආනයනය කර තිෙබනවා. ෙම්ෙකදී කරුණු ෙදකක් මතු ෙවනවා. එකක්, පිට රටින් ආනයනය කරන ගිනි ෙකළි දවɕ හරහා ෙම් රටට තහනම් භාණ්ඩ ඒෙම් ඉඩකඩක් තිබීම. අෙනක් එක, කර්මාන්ත සංවර්ධනය පිළිබඳ විශාල වශෙයන් කථා කරන ෙම් ආණ්ඩුව ෙම් එළැෙඹන උත්සව සමෙය්දී වɕාපාරිකයින් කිහිප ෙදනකුට පිට රටින් ගිනි ෙකළි භාණ්ඩ ආනයනය කරන්න ඉඩ දීම තුළ ෙම් රෙට් රතිඤ්ඤා ඇතුළු ගිනි ෙකළි භාණ්ඩ නිෂ්පාදකයින් අවුරුද්ද පුරාම එකතු කර ගත්ත ඒ නිෂ්පාදනය ෙවෙළඳ ෙපොළට ඉදිරිපත් කිරීෙම්දී තරගකාරිත්වයක් ඇති වීම. ඒෙක් පතිඵලයක් විධියට ෙද්ශීය කර්මාන්තයක්ව තිෙබන ගිනි ෙකළි භාණ්ඩ නිෂ්පාදනය කිරීෙම් කර්මාන්තය වැසීෙම් තර්ජනයකට ලක් ෙවලා තිෙබනවා. ෙම්ක අලුෙතන් මතු වුණු කාරණාවක්. ෙමෙතක් කල් ගිනි ෙකළි භාණ්ඩ ආනයනය කිරීමට ඉඩ දීලා තිබුෙණ් නැහැ. ෙම් ළඟදීයි ෙම්වා ආනයනය කිරීම කරලා තිෙබන්ෙන්. ටික දවසක් ආරක්ෂක අමාතɕාංශය භාරෙය් තියලා එක් පුදගලයකුට නිදහස් කර දීලා තිෙබනවා. ෙම්ක නිදහස් කරලා දුන්ෙන් නත්තල්වලට ආසන්නෙය්යි. එළැෙඹන සිංහල අවුරුදු කාලය වන ෙකොටයි ෙම්වා නිදහස් වන්ෙන්. විෙශේෂෙයන්ම ලංකාෙව් ෙමෙතක් කල් ගිනි ෙකළි භාණ්ඩ නිෂ්පාදනය කළ කිඹුලාපිටිය වැනි පෙද්ශවල වැඩිම ෙසේවක පමාණයක් ෙසේවය කරන කර්මාන්ත රාශියක් තිෙබනවා. ෙමවැනි තත්ත්වයක් තුළ ඒ කර්මාන්තකරුවා කර්මාන්තය අත් හැරීෙම් තත්ත්වයකට පත් වනවා. ඒ නිසා කර්මාන්ත අමාතɕාංශයත්, ආණ්ඩුවත් ෙම් ෙකෙරහි විෙශේෂ අවධානය ෙයොමු කරලා විෙද්ශීය රටවලින් ගිනි ෙකළි භාණ්ඩ ෙගන්වීම වහාම නතර කරන්නය කියලා අප තමුන්නාන්ෙසේලාෙගන් ඉල්ලනවා.
+
+ඒ වාෙග්ම කර්මාන්ත අමාතɕාංශෙය් විෙශේෂ සැලකිල්ලට ලක් විය යුතු තවත් කාරණාවක් තිෙබනවා. වාෙන් කර්මාන්තශාලාව අපට අහිමි වුණාට පස්ෙසේ දඟර වාෙන් ඇතුළු වාෙන් කූරු නිෂ්පාදනය කිරීෙම් පමිතියක් නැහැ. ෙමොකද, ෙබොෙහෝ කර්මාන්තකරුවන් අපට කියනවා, සමහර වාෙන් කූරුවල නියමිත දිග පමාණය තිෙබනවා, සමහර ඒවාෙය් පමාණය අඩි එක හමාර, අඩි ෙදක අඩු ෙවලාය කියා. නූල් පමාණෙයන් ගත්ෙතොත්, නැත්නම් මිලිමීටර්වලින් ගත්ෙතොත්, මිලිමීටර් දහෙය් කම්බි කූෙර් තිෙබන්ෙන් මිලිමීටර් නවයයි. ඒ වාෙග්ම දඟර වාෙන් කම්බි කූරු දඟර වාෙන් රටාවට ෙනොව, ෙවනස් ආකාරයටයි නිෂ්පාදනය කරලා තිෙබන්ෙන්. ෙම් කර්මාන්තවල
+
+වාෙන් කූරු පදනම් කර ෙගන, අෙනකුත් නිමි නිෂ්පාදන කර්මාන්ත ආරම්භ කිරීම තුළ, ඒ නිෂ්පාදනවල පතිඵලය ඉතාම දුර්වල තත්ත්වයට පත් ෙවලා තිෙබනවා. ඒ නිසා කර්මාන්තවලින් නිෂ්පාදනය කරන භාණ්ඩ ෙවෙළඳ ෙපොළට ඉදිරිපත් කිරීමට ෙපර, කර්මාන්ත අමාතɕාංශෙය් පමිති අංශය මඟින් නිවැරදි පමිති සහතිකයක් අරෙගන ෙදන්න ඕනෑ. එතෙකොට බාල භාණ්ඩ නිෂ්පාදනය කරනවා නම් ඒ බාල භාණ්ඩ ෙවෙළඳ ෙපොළට ඉදිරිපත් කිරීම තහනම් කිරීෙම් කර්තවɕ කර්මාන්ත අමාතɕාංශයටයි පැවෙරන්ෙන්.
+
+ඒ නිසා කර්මාන්ත අමාතɕාංශය ෙම් පිළිබඳව වැඩි සැලකිල්ලක් දක්වන්න ඕනෑ. අවසානෙය්දී ඇමතිතුමා ෙම් පිළිබඳව පැහැදිලි කිරීමක් කරයි කියා අපි බලාෙපොෙරොත්තුෙවන් සිටිනවා. ඒ වාෙග්ම ෙම් පිළිබඳව ෙසොයා බැලීෙම්දී පමිති කාර්යාංශය නිවැරදිව ෙම් ෙසොයා බැලීෙම් කර්තවɕ ඉටු කරන්න ඕනෑ. එෙහම නැත්නම් රෙට් කර්මාන්ත සඳහා අමු දවɕ විධියට ගන්නා වාෙන්වලට පමිතියකින් ෙතොර වාෙන් ඉදිරිපත් කිරීම බරපතළ ගැටලුවක් ෙවනවා.
+
+ෙම් සාකච්ඡාෙව්දී රවි කරුණානායක මන්තීතුමා කියා සිටියා, ෙම් ෙමොෙහොෙත් යුද්ධය කරන්ෙන් නැහැ, යුද්ධයක් කර ෙගන යනවාය කියන්ෙන් පට්ටපල් අසතɕයක්ය කියා. ඒක එතුමාත් කියනවා; එතුමාෙග් නායකතුමාත් කියනවා. හැබැයි ඊෙය් ගරු ලක්ෂ්මන් ෙසෙනවිරත්න මන්තීතුමා පැහැදිලිව කිව්වා, එල්ටීටීඊ සංවිධානයත් එක්ක සටන් විරාමයකට යන්න එපාය කියා. ඒක ෙබොෙහොම ෙහොඳයි. එතුමා එක මතයක් කියනවා. රවි කරුණානායක මන්තීතුමා තව මතයක් ඉදිරිපත් කරනවා. ඊළඟට තිස්ස අත්තනායක මන්තීතුමා තව මතයක් ඉදිරිපත් කරනවා. අපි අහන්න කැමතියි, එක්සත් ජාතික පක්ෂෙය් මතය ෙමොකක්ද කියා. එක්සත් ජාතික පක්ෂෙය් එක කණ්ඩායමක් කියනවා, යුද්ධය කරන්ෙනත් නැහැ, යුද්ධය අසාර්ථකයි කියා. ලක්ෂ්මන් ෙසෙනවිරත්න මන්තීතුමා කියනවා, යුද්ධය ෙහොඳට කර ෙගන යනවා, යුද්ධය අවසන් කරන්න ඕනෑ, ඒ නිසා එල්ටීටීඊ එකත් එක්ක කිසිම ගිවිසුමකට එන්න එපාය කියලා. එම නිසා ගරු නිෙයෝජɕ සභාපතිතුමනි, අපි මතු කරන කාරණාව තමයි ෙම් පිළිබඳව එක්සත් ජාතික පක්ෂෙය් මතය විපක්ෂ නායකතුමා පැහැදිලිව පාර්ලිෙම්න්තුවට කියන්න ඕනෑය කියන එක. ලක්ෂ්මන් ෙසෙනවිරත්න මන්තීතුමා ජනතාවෙග් මතය නිවැරදිව දැක්කා. ජනතාව කියනවා, එල්ටීටීඊ සංවිධානයත් එක්ක සටන් විරාමයකට යන්න එපාය කියලා. ඒක කියන විටම අනික් පැත්ෙතන් මතු කරනවා, යුද්ධයක් ෙකෙරන්ෙන් නැහැ, විනාශයක් ෙවන්ෙන්, ඒ නිසා යුද්ධය වහාම නතර කරන්නය කියා. [බාධා කිරීමක්] අන්න ඒ වාෙග් තමයි. මංගල සමරවීර මන්තීතුමා ඇතුළු ෙම් කණ්ඩායෙම් මත වාදයත් එක්ක අරෙගන බැලුෙවොත්-
+
+ගරු එම්. ෙජෝශප් මයිකල් ෙපෙර්රා මහතා (மாண்ᾗமிகு எம். ேஜாசப் ைமக்கல் ெபேரரா) (The Hon. M. Joseph Michael Perera) අපි යුද්ධය නතර කරන්න කියා කිව්වාද? ගරු පියසිරි විෙජ්නායක මහතා (மாண்ᾗமிகு பியசிறி விேஜநாயக்க) (The Hon. Piyasiri Wijenayake) මට තව විනාඩියයි තිෙබන්ෙන්. යුද්ධය නතර කිරීම තමයි. යුද්ධය ආපස්සට හැරවීෙම් කුමන්තණයක තමුන්නාන්ෙසේලාෙග් ෙල්කම්තුමා - [බාධා කිරීමක්] මම පුස්තකාලෙය්දී - [බාධා කිරීම්] මම පත්තරය ෙගනැල්ලා කියවන්නම්. තමුන්නාන්ෙසේලා යුද්ධය නතර කරන්නය කියා කිව්වා. තමුන්නාන්ෙසේලා යුද්ධය නතර කරන්නය කියලා තමයි කිව්ෙව්. ඒක කියලා තමුන්නාන්ෙසේලා දැන් ෙමතැනට ඇවිල්ලා පට්ටපල් අසතɕයක් විධියට තවත් කාරණාවක් කියනවා. ඒ නිසා අපි පැහැදිලිව කියනවා,- [බාධා කිරීමක්]
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) අසතɕ කියලා තමයි ඔළුෙව් ෙකස් නැත්ෙත්.
+
+[ගරු පියසිරි විෙජ්නායක මහතා]
+
+2008 ෙදසැම්බර් 05 3307 3308
+
+ගරු පියසිරි විෙජ්නායක මහතා (மாண்ᾗமிகு பியசிறி விேஜநாயக்க) (The Hon. Piyasiri Wijenayake) තමුන්නාන්ෙසේ ඔළුෙවන් හිට ෙගන ඉන්ෙන්. [බාධා කිරීමක්] හැබැයි ලක්ෂ්මන් ෙසෙනවිරත්න මහත්මයා හරියට කිව්වා. හැබැයි රවි කරුණානායක මහත්මයාටයි, තමුන්නාන්ෙසේලාෙග් නායකයාටයි ෙම්ක ගැන කියන්න බැරි එක තමයි පශ්නය. ඒ නිසා අපි පැහැදිලිව කියනවා, ෙමන්න ෙම් කුමන්තණකාරීව- [බාධා කිරීමක්] යුද්ධය ජයගහණය කරමින් යන රණ විරුවන් ආපස්සට හැර වීෙම් කුමන්තණෙය් හවුල්කාරෙයෝ විධියට විවිධ අදහස් කියනවා. ඒ නිසා එක්සත් ජාතික පක්ෂයට -තමුන්නාන්ෙසේලාට- අපි පැහැදිලිව කියන්න ඕනෑ, වීෙරෝදාර රණ විරුවන්ෙග් කැප කිරීම මත කර ෙගන යන රට නිදහස් කර ගැනීෙම්, මවු බිම ආරක්ෂා කර ගැනීෙම් ෙමම කියාවලිය ආපස්සට හැරවීෙම් කුමන්තණ කරන්න එපාය කියා.
+
+[අ.භා. 4.02] ගරු සුෙම්ධා ජී. ජයෙසේන මහත්මිය (ළමා සංවර්ධන හා කාන්තා අභිවෘද්ධි අමාතɕතුමිය)
+
+(மாண்ᾗமிகு (திᾞமதி) சுேமதா ஜீ. ஜயேசன - சிᾠவர் அபிவிᾞத்தி, ெபண்கள் வᾤᾬட்ᾌைக அைமச்சர்)
+
+(The Hon. (Mrs.) Sumedha G. Jayasena - Minister of Child Development and Women's Empowerment)
+
+මුලසුන ෙහොබ වන ගරු නිෙයෝජɕ සභාපතිතුමනි, ළමා සංවර්ධන හා කාන්තා අභිවෘද්ධි අමාතɕාංශෙය් වැය ශීර්ෂය විවාදයට ගන්නා ෙම් අවස්ථාෙව්දී අපි පළමුෙවන්ම මතක් කළ යුතු කරුණක් තිෙබනවා. අද දවස පුරාම සාකච්ඡා කරන අමාතɕාංශ 21ක වැය ශීර්ෂයන් ඡන්ද විමසීමකින් ෙතොරව සම්මත කරන්නට සියලුම පක්ෂ එකතු ෙවලා එකඟ වුණා. ඒ ෙවනුෙවන් අපිත් සමඟ එකතු වුණු අෙප් අනිකුත් සියලුම පක්ෂවල ගරු මන්තීවරුන්ට, මන්තීවරියන්ට අපි ස්තුතිවන්ත ෙවනවා.
+
+මා පළමුෙවන්ම සඳහන් කළ යුතු ෙදයක් තිෙබනවා. මට ෙම්ක අමතක වන්න පුළුවන්. නැත්නම් කාලය මදි නිසා කියන්න බැරි ෙවන්න පුළුවන්. ජනතා විමුක්ති ෙපරමුෙණ් සෙහෝදර මහත්වරුත්, ඒ වාෙග්ම එක්සත් ජාතික පක්ෂෙය් අෙප් ගරු ෙර්ණුකා ෙහේරත් මන්තීතුමියත් නිරන්තරෙයන්ම කියා සිටිෙය් ළමා සංවර්ධන හා කාන්තා අභිවෘද්ධි අමාතɕාංශයට ෙවන් කර තිෙබන මුදල් පතිපාදන -ෙමවර ෙවන් කළ මුදල- මදියි කියන එකයි. නැත්නම් අඩු කර තිෙබනවාය කියන එකයි. නමුත් මම ෙම් අවස්ථාෙව්දී පකාශ කරන්න කැමතියි, ඇත්තටම මෙග් අමාතɕාංශයට ෙවන් කළ මුදෙල් අඩු වීමක් ෙවලා නැහැ කියන එක. රුපියල් මිලියන 240ක මුදලක් අඩු ෙවලා තිෙබනවා. ඒ මුදල අඩු ෙවලා තිෙබන්ෙන් ෙමෙහමයි. අපි ළමා සංවර්ධනය පිළිබඳව පස් අවුරුදු ජාතික සැලැස්මක් සකස් කර තිබුණා. එම ජාතික සැලැස්ෙම් කාලය ඉවර වුණා. ඊට පසුව ඉදිරි පස් අවුරුදු සැලැස්මක් දැන් අලුතින් සකස් කර ෙගන යනවා. ඒ පස් අවුරුදු සැලැස්මට තමයි මුදල් පතිපාදන අපට ලබා ෙදන්නට කටයුතු කර තිෙබන්ෙන්. ඒ මුදල පමණයි දැනට ඉදිරිපත් කර තිෙබන අය වැය ෙල්ඛනෙයන් ඉවත් ෙවලා තිෙබන්ෙන්. නමුත් ඒ මුදල අපට අනිවාර්යෙයන්ම ලබා ෙදනවා. පළාත් සභා හරහා විෙශේෂෙයන්ම පූර්ව ළමාවිය සංවර්ධනය සඳහා ෙයද වීමට තමයි ඒ මුදල් පතිපාදන ලබා ෙදන්ෙන්. ඒ නිසා ඒ මුදල් අඩු වීමක් කිසි ෙසේත් ෙවලා නැහැ. දරුවන්ට කිරි වීදුරුව බැගින් ලබා දීම සඳහා පසු ගිය අය වැෙයන් අෙප් අමාතɕාංශයට රුපියල් මිලියන 500ක මුදලක් ෙවන් ෙවලා තිබුණා. එම මුදල තවත් රුපියල් මිලියන 100කින් වැඩි ෙවලා රුපියල් මිලියන 600ක මුදලක් ෙමවර අෙප් අමාතɕාංශයට ලබා දීලා තිෙබනවා. ඒ නිසා එතැන මුදල් අඩු වීමක් ෙහෝ කපා හැරීමක් සිදු ෙවලා නැහැ. යම් යම් ෙද්වල්වල සුළු සුළු අඩු පාඩුකම් සිදු ෙවලා තිෙබනවා. අපි සෑම විටම රජෙය් මුදල් මත පමණක් යැෙපන්නට ෙහෝ රෙට් සංවර්ධනයට පමණක් මුදල් ෙයොද වන්නට ෙහෝ බලාෙපො ෙරොත්තු වන්ෙන් නැහැ. විෙශේෂෙයන්ම ෙවනත් විවිධ ආයතන සහ සංවිධාන මඟින් මුදල් ෙසොයා ෙගන මෙග් අමාතɕාංශෙය් වැඩ කටයුතු රාශියක් ෙම් වන ෙකොටත් කියාත්මක කරනවා. UNICEF ආයතනය මඟින් ෙම්
+
+අවුරුද්ද තුළ අපට රුපියල් මිලියන 33ක් ලබා දී තිෙබනවා. ඒ වාෙග්ම පූර්ව ළමාවිය සංවර්ධනය සම්බන්ධෙයන් Save the Children ආයතනෙයන් රුපියල් මිලියන 247ක් අෙප් අමාතɕාංශයට ලබා දීලා තිෙබනවා. දැනට ෙම් මුදල බැංකුවක තැන්පත් කරලා ඉදිරිෙය්දී ෙවනත් විවිධ ආයතනත් සම්බන්ධ කර ෙගන ඒ මුදලින් මුල් ළමාවිය සංවර්ධනය කිරීෙම් කටයුත්ත දිවයින පුරාම කියාත්මක කරන්නට අපි බලාෙපොෙරොත්තු වනවා. ඒ නිසා ෙම් අවුරුද්ෙද් අෙප් අමාතɕාංශයට මුදලක් අඩු ෙවලා නැහැ, තවත් වැඩිපුර මුදල් ලැබී තිෙබනවාය කියන එක මම ෙම් අවස්ථාෙව්දී මතක් කරන්නට කැමැතියි. අෙප් අමාතɕාංශය මඟින් කරනු ලබන වැඩ පිළිබඳව කථා කරන්නට ඇත්තටම විනාඩි හයක තරම් සුළු කාල ෙව්ලාවක් මදි. මූලික වශෙයන් ෙම් ෙම් වැඩයි කරන්ෙන් කියන්නට තරම්වත් කාලයක් නැහැ, ගරු නිෙයෝජɕ සභාපතිතුමනි.
+
+අෙප් රෙට් සියයට 52ක් පමණ සිටින කාන්තාවන්ෙග් අයිතිවාසිකම් සුරක්ෂිත කිරීමත්, සියයට 36ක් පමණ සිටින ළමයින්ෙග් අයිතිවාසිකම් ආරක්ෂා කිරීමත් මෙග් අමාතɕාංශයට පැවරිලා තිෙබන විෙශේෂ කාර්ය භාරයක් ෙවලා තිෙබනවා. ඒ වාෙග්ම මෙග් අමාතɕාංශෙය් කාර්යයන් ළමා සංවර්ධන හා කාන්තා සංවර්ධන වශෙයන් පධාන අංශ ෙදකකට ෙබදලා තිෙබනවා. ළමා සංවර්ධන අංශෙය් වැඩසටහන් කියාත්මක කරන්ෙන් පරිවාස හා ළමාරක්ෂක ෙදපාර්තෙම්න්තුව, ජාතික ළමා ආරක්ෂක අධිකාරිය, ළමා ෙල්කම් කාර්යාලය හා අමාතɕාංශ සංවර්ධන අංශ මඟිනුයි. කාන්තා සංවර්ධන වැඩසටහන් කියාත්මක කිරීෙම් වගකීම පැවරී තිෙබන්ෙන් අමාතɕාංශ සංවර්ධන අංශය, කාන්තා කාර්යාංශය සහ ජාතික කාන්තා කමිටුවටයි. විෙශේෂෙයන්ම අපි කිරි වීදුරුව ලබා දීෙම් වැඩසටහන කියාත්මක කෙළේ පසු ගිය අවුරුද්ෙද් සිටයි. පළමුෙවන්ම පාෙද්ශීය ෙල්කම් ෙකොට්ඨාස 68ක පමණයි ෙමම කිරි වීදුරුව ලබා දීමට අපට පුළුවන්කම ලැබුෙණ්. ෙම් වන ෙකොට අපි දිවයින පුරා සෑම පාෙද්ශීය ෙල්කම් ෙකොට්ඨාසයකම ෙමම කිරි වීදුරුව ලබා දීෙම් වැඩසටහන කියාත්මක කර ෙගන යනවා. නමුත් අඩු පාඩුවක් අපට තිෙබනවා. ඒ අවශɕ පමාණයට කිරි ලබා ගැනීෙම් හැකියාවක් ෙනොතිබීමයි. ඒකට ෙහේතුව විෙශේෂෙයන්ම කිරි නිෂ්පාදනය අෙප් රෙට් තවමත් පමාණවත් මට්ටමක ෙනොතිබීමයි. අතිගරු ජනාධිපතිතුමාෙග් මහින්ද චින්තන සංකල්පය යටෙත් ෙම් වැඩසටහන තුළින් ෙකෙරන්ෙන් දරුවන්ට නැවුම් දියර කිරි වීදුරුවක් ලබා දීමයි. අපි ෙම් වන ෙකොට පශු සම්පත් අමාතɕාංශයත්, තව විවිධ ආයතනත් සමඟ එකට ඒකාබද්ධ ෙවලා කිරි නිෂ්පාදනය වැඩි කර ගන්නට කටයුතු කර ෙගන යනවා. කවුරුත් පකාශ කෙළේ දරුවන් සියලු ෙදනාටම ෙම් කිරි වීදුරුව ලබා දිය යුතුයි කියලායි. එෙහම ලබා දිය යුතුයි. නමුත් විෙශේෂෙයන්ම අපි ෙම් කිරි වීදුරුව ලබා දීමට දැනට ෙතෝරා ෙගන තිෙබන්ෙන් අඩු ආදායම් ලාභී මන්ද ෙපෝෂණෙයන් ෙපෙළන දරුවන් පමණයි. ෙමොකද, ඒ ආකාරයටයි කිරි ලබා දීමට කටයුතු කර තිෙබන්ෙන්. මන්ද ෙපෝෂණෙයන් ෙපෙළන දරුවන් 3,45,000ක් පමණ අෙප් රෙට් හිටියත් 47,500කට කිරි වීදුරුව බැගින් ලබා දීමට තරම් පමාණවත් කිරි පමාණයක් පමණයි අපට තිෙබන්ෙන්. අපි බලාෙපොෙරොත්තු ෙවනවා, ලබන වසර ෙහෝ තවත් වසර ෙදකක් ඉදිරියට යන ෙකොට ෙම් කිරි සම්පූර්ණ පමාණයම අපට ලබා ගන්නට පුළුවන් ෙවයි කියලා. පැළයක් හිෙටව්වාම ඒ පැළෙයන් එක පාරටම ෙගඩි ලබා ගැනීමට අපට පුළුවන්කමක් ලැෙබන්ෙන් නැහැ. අපි ෙයෝජනාව ඉදිරිපත් කළත් ෙයෝජනාව කියාත්මක කරන්න සිදු ෙවලා තිෙබන්ෙන් ඒ ආකාරයටයි.
+
+අෙප් අමාතɕාංශය කියාත්මක කරන්ෙන් කිරි වීදුරුව වැඩසටහන පමණක් ෙනොෙවයි. අපි පසු ගිය කාල ෙය් ෙසෙනහස බැංකු ගිණුම් වැඩසටහන නමින් වැඩසටහනක් ආරම්භ කර තිෙබනවා. සුනාමියට හසු වූ දරුවකුට මසකට රුපියල් 1,500 බැගින් මුදලක් ඒ අයෙග් බැංකු ගිණුම්වල තැන්පත් කරලා වයස අවුරුදු 18 සම්පූර්ණ වන ෙකොට ඒ අයට ලබා දීමත් එක වැඩ පිළිෙවළක්. ඒ වාෙග්ම ජාතික ළමා සංවර්ධන අරමුදල අපි ඇති කර තිෙබනවා. ඉතාම දුප්පත් දිළිඳු දරුවන්ෙග් අධɕාපන කටයුතු
+
+පාර්ලිෙම්න්තුව 3309 3310
+
+නැංවීම සඳහා, දරිදතා ෙවන් ෙපෙළන පවුල්වල දරුවන්ෙග් අධɕාපන කටයුතු නංවාලීම සඳහා අපි ජාතික ළමා සංවර්ධන අරමුදල ඇති කර තිෙබනවා. ඒක කර තිෙබන්ෙන් රජෙයන් සල්ලි ලබා ෙගන ෙනොෙවයි. විවිධ ආකාරවලින්-ෙකොඩි විකිණීමකින්, රාජɕ ෙනොවන ආයතන මඟින්, මහජන බැංකුෙව් ආධාර උපකාර මඟින්- ඒ සඳහා මුදල් ෙසොයා ෙගන එම අරමුදල තුළින් දැනටමත් ශිෂɕත්ව ලබන දරුවන් 500 ෙදෙනක් පමණ සිටිනවා. ළමයින් සඳහා අපි ෙම් වන විට ජාතික පතිපත්ති, ජාතික කියාකාරී සැලැස්ම සකස් කර ෙගන යනවා. රැකියාවන්හි නියුතු මව්වරුන් ෙවනුෙවන් ඒ අයෙග් දරුවන් රැක බලා ගැනීම සඳහා දිවා සුරැකුම් මධɕස්ථානත්, ඒ වාෙග්ම ෙපර පාසල්, වැඩිහිටි සම්පත් මධɕස්ථාන -විෙශේෂෙයන්ම අෙප් රෙට් ෙහොඳ සම්පතක් වන වැඩිහිටි කාන්තාවන් ෙවනුෙවන්- ඉදි කිරීමත් කරනවා. ෙම් වසර තුළ මධɕස්ථාන ෙදකක් ආරම්භ කර තිෙබනවා. ඉදිරිෙය්දී ෙමවැනි ආයතන ගණනාවක් ආරම්භ කරන්න කටයුතු කර ෙගන යනවා. ඒ විතරක් ෙනොෙවයි. ජංගම දුරකථන මඟින් සිදු වන ළමා අසභɕ ෙවබ් අඩවි පිවිසුම් පිටු දැකීම සම්බන්ධෙයනුත් වැඩ පිළිෙවළක් කරනවා. ඒ වාෙග්ම ළමා උපකාරක දුරකථන ෙසේවාවක් අෙප් අමාතɕාංශය ආරම්භ කර තිෙබනවා. ඕනෑම අවස්ථාවක ඕනෑම දුරකථනයකින් දරුවකුට ෙහෝ පවුෙල් ෙකනකුට කථා කළ හැකියි. යම් කරදරයක්, අතවරයක්, යම් කිසි සිදු වීමක් වුණාම ඒ සඳහා අපි ක්ෂණිකව කියා මාර්ග අරෙගන කටයුතු කර විසඳුම් රාශියක් ලබා දී තිෙබනවා. මට කථා කරන්න කාල ෙව්ලාව මදි නිසා මෙග් අමාතɕාංශෙයන් ෙකෙරන අෙනකුත් කාර්යයන් පිළිබඳ වැඩසටහන් මා ෙල්ඛනයක් ෙලස සකස් කර ෙගන තිෙබනවා. ළමා සංවර්ධන හා කාන්තා අභිවෘද්ධි අමාතɕාංශය කිව්වාම කවුරුත් ෙනොපිළි ගන්නා ආකාරෙය්, ගණන් ෙනොගන්නා ආකාරෙය් අමාතɕාංශයක් බවට පත් ෙවලා තිෙබනවා. අද නම් අමාතɕාංශ කිහිපයක් එකට විවාද ෙක ෙරන නිසා සභා ගර්භය තුළ කිහිප ෙදෙනක් ෙහෝ ඉන්නවා. නමුත් ෙම් අමාතɕාංශෙයන් ෙකෙරන කාර්ය භාරය අතිවිශාලයි. ෙම් අවස්ථාෙව්දී මෙග් අමාතɕාංශෙයන් ෙකෙරන අෙනකුත් කාර්යයන් හා වැඩසටහන් පිළිබඳ විස්තර ඇතුළත් ෙල්ඛනය හැන්සාඩ්ගත කිරීම සඳහා මා සභාගත* කරනවා.
+
+* සභා ෙම්සය මත තබන ලද ෙල්ඛණය : சபாபீடத்தில் ைவக்கப்பட்ட கூற்ᾠ : Statement tabled. ගරු නිෙයෝජɕ සභාපතිතුමනි, මාෙග් අමාතɕාංශෙය් කාර්යයන් ළමා සංවර්ධන හා කාන්තා සංවර්ධන වශෙයන් පධාන අංශ ෙදකකට ෙබදා තිෙයනවා. ළමා සංවර්ධන අංශෙය් වැඩසටහන් කියාත්මක කරන්ෙන් පරිවාස හා ළමා රක්ෂන ෙසේවා ෙදපාර්තෙම්න්තුව, ජාතික ළමා ආරක්ෂක අධිකාරිය, ළමා ෙල්කම් කාර්යාලය හා අමාතɕාංශ සංවර්ධන අංශය මඟිනි, කාන්තා සංවර්ධන වැඩසටහන් කියාත්මක කිරීෙම් වගකීම පැවරී තිෙබන්ෙන් අමාතɕාංශ සංවර්ධන අංශය, කාන්තා කාර්යාංශය හා ජාතික කාන්තා කමිටුවටයි.
+
+2008 වර්ෂෙය්දී ෙමම සියලු ආයතන එක්ව ළමුන්ෙග් හා කාන්තාවන්ෙග් ශුභසිද්ධිය හා සංවර්ධනය ෙවනුෙවන් වැඩසටහන් රාශියක් සාර්ථකව කියාත්මක කර තිෙබනවා. ඒ පිළිබඳ සවිස්තර පගතිය දැනටමත් ඔබ ෙවතට ලබා දී ඇති පගති වාර්තාෙවන් ගන්න පුළුවන්. ෙකෙසේ වුණත් ෙම් වසෙර්දී කියාත්මක කළ ඉතා වැදගත් වැඩසටහන් කිහිපයක් පිළිබඳව කරුණු ඉදිරිපත් කිරීමට මා සූදානම්.
+
+නිෙයෝජɕ සභාපතිතුමනි, මා ඊළඟට විස්තර කරන්ෙන් ඒ වැඩසටහන්. 1. කිරි විදුරුව වැඩසටහන
+
+දුප්පත් අඩු ආදායම්ලාභී පවුල්වල අඩු ෙපෝෂණ තත්ත්වෙයන් යුතු දරුවන්ෙග් ෙපෝෂණ තත්ත්වය නංවාලීම සඳහා මහින්ද චින්තනෙයන් හදුන්වා දුන් ෙමම වැඩසටහන 2008 වසෙර්දී කියාවට නැංවුෙණ් මාෙග් අමාතɕාංශෙයනි. 2008 මුල් භාගෙය් පාෙද්ශීය ෙල්කම් ෙකොට්ඨාස 68කට කියාත්මක වූ ෙමම වැඩසටහන ජූලි මාසෙයන් පස්ෙසේ සියළුම පාෙද්ශීය ෙල්කම් ෙකොට්ඨාසවලට වɕාප්ත කිරීමට අපි මුදල් ලබා දුන්නා. පාෙද්ශීය
+
+වශෙයන් කිරි සපයා ගැනීෙම් දී දුෂ්කරතා නිසා ඇතැම් පෙද්ශවල වැඩසටහන් කියාත්මක කිරීමට අපහසු වූවත් දැනට ළමුන් විශාල සංඛɕාවකට එනම් 47500කට පමන ඉන් පතිලාභ සැලෙසනවා. රෙට් ස්ෛවරීභාවය හා ආරක්ෂාව ෙවනුෙවන් අතිවිශාල මුදල් සම්භාරයක් වියදම් කිරිමට සිදුවී ඇති ෙමොෙහොතක සහ ෙලෝකයම ආර්ථික අර්බුදයකට මුහුණ දී ඇති ෙමවන් අවස්ථාවක ෙමවැනි විශාල සුභසාධක වැඩසටහනක් දියත් කිරීමට හැකිවීම ගැන අප සන්ෙතෝම විය යුතුය.
+
+2. ළමා උපාකරය දුරකථන ෙසේවාව
+
+අංක 1929 යටෙත් ෙනොමිලෙය් ළමා උපකාරක දුරකථන ෙසේවයක් ආරම්භ කර දැනට අප පවත්වා ෙගන යනවා. ළමයින්ට සිදු යවන හිංසනයන් හා පීඩාවන් පිළිබඳව ක්ෂණිකව ෙතොරතුරු රැස් කීරීමටත්, එම පීඩාවන්ට මුහුණ ෙදන ළමුන්ට ක්ෂණිකව සහන ෙසේවාවන් ලබා දීමත් තුළින් එම ළමුන්ෙග් රැකවරණය හා සුභසාධනය තහවුරු කිරීමයි ෙමයන් අපි බලාෙපොෙරොත්තු ෙවන ්ෙන්. ළමුන්ට ෙහෝ ෙවනත් ඕනැම ෙකෙනකුට මීට ෙතොරතුරු දන්වන්න පුළුවන්. දැනට ෙම් යටෙත් ලැෙබන ෙතොරතුරු පසුවිපරම් කිරීමටත් දත්ත පද්ධතියක් පවත්වා ෙගන යෑමටත් පියවර ෙගන තිෙබනවා. ෙම් වන විට එවැනි සිදුවීම් 748ක් සම්බන්ධෙයන් අපි මැදිහත්වී කටයුතු කරලායි තිෙයන්ෙන්.
+
+3. ෙසෙනහන බැංකු ගිණුම් වැඩසහටන
+
+ෙමරට ඉතිහාසෙය් ෙමෙතක් සිදුවූ විශාලතම ස්වාභාවිත ආපදාව වූ සුනාමි වɕසනෙයන් පීඩා ලැබූ ළමුනෙග් ශුභසිද්ධිය සඳහා මාෙග් අමාතɕාංශය විහාල වැඩසටහනක් දියත් කර තිෙබනවා. ඒ සුනාමිෙයන් ෙදමාපියන් අහිමිව අසරණභාවයට පත් වුණු ළමුන්ෙග් යහපත සඳහා මාසිකව එක් ළමෙයකුට රුපියල් 1500.00 බැගින් වන ෙසේ මුදලක් බැංකුෙව් තැනපත් කිරිම. ෙමය අවුරුදු 18 දක්වා සිදු කරන අතර ළමයින්ෙග් අධɕාපන හා අෙනකුත් විෙශේෂ අවශɕතා සඳහා මුදල් පෙයෝජනය ගන්න පුළුවන්. සුනාමි ආපදාවට ලක්වූ අෙනකුත් රටවල් හා සංසන්දනය කරන ෙකොට අපි දියන්ත කර තිෙබන වැඩසටහන් හුඟාක් සාර්ථකයි.
+
+4. ජාතික ළමා සංවර්ධන අරමුදල
+
+ෙම් රෙට් ජනතාවෙග් වැඩි අවධානයක් ෙයොමු විය යුතු පිරිසක් තමයි දිළිඳු හා අසරණ දරුවන්. ෙම් තත්ත්වය දිගින් දිගටම පැවතුනෙහොත් ඒ දරුවන්ට සමාජෙය් ඉදිරියට යෑෙම් ඉඩකඩ ඇහිෙරනවා ෙමන්ම අනාගතෙය් ඔවුන් සමාජ විෙරෝධී කියාකාරකම්වලට හවුල්වීමට ඇති ඉඩකඩ ෙබොෙහෝ වැඩි ෙව්. ෙම් තත්ත්වය ෙත්රුම් අරෙගන මාෙග් අමාතɕාංශෙයන් ඒ ළමයින්ෙග් යහපත සඳහා ජාතික ළමා සංවර්ධන අරමුදෙලන් පිහිටුවලා දැනට ළමයින්ට ආධාර ලබා ෙදමින් පවතිනවා. පරිතɕාග හා ෙලෝක ළමා දිනයට සමගාමිව ෙකොඩි අෙලවි කිරීෙමන් තමයි ෙම් දක්වා රුපියල් මිලියන 7.25ක් රැස් කර තිෙයන්ෙන්. අපට හැකි වුණා ෙම් වසෙර්දී පමණක් දිවයිෙන් විවිධ පෙද්ශවලින් ෙතෝරා ගත් ළමුන් 500කට ශීෂɕත්ව ආධාර ෙදන්න.
+
+5. ළමයින් සඳහා වන ජාතික කියාකාරී සැලැස්ම
+
+ෙමරට ළමුන්ෙග් සුබසාධනය හා සංවර්ධනය ෙවනුෙවන් රජෙය් විවිද අමාතɕාංශ, පළාත් සභා හා ෙදපාර්තෙම්න්තු හරහා ඒකාබක්ධව කියාවට නැංවීමට සකස් කළ ළමා කියාකාරී සැලැස්ෙම් අවසන් වසරයි ෙම්. ෙම් වර්ෂෙය්දී අපි ඉහත ආයතන හරහා ළමුන්ෙග් සනීපාරක්ෂාව මාතෘ හා ළමා ෙසෞඛɕ ආරක්ෂාව, ජල සම්පාදන කටයුතු, ෙපර පාසල් හා දූෂ්කර පෙද්ශවල අධɕාපන කටයුතු සංවර්ධනය, ළමා ආරක්ෂාව හා අයිතිවාසිකම් තහවුරු කිරීම ඇතුළු කටයුතු ෙවනුෙවන් වැඩසටහන් රාශියක් රට පුරා කියාත්මක කරලා තිෙයනවා. ඒ විතරක් ෙනොෙවයි ඊළඟ ළමා කියාකාරී සැලැස්ම සැකසීම සඳහා දැනටමත් අපි අවශɕ පියවර ෙගන තිෙයනවා.
+
+6. රැකියාවන්හි නියුතු මව්වරුන්ෙග් දරුවන් සඳහා දිවා සුරැකුම් මධɕස්ථාන පිමිටුවීම කාන්තාවන් ෙගදර ෙදොෙර විශාල කාර්ය භාරයකට උර දී සිටින අතර වුවද
+
+රැකියාවන් වල නියුතු වී සිටීම පවුෙල් ආර්ථිකයට ෙමන්ම රෙට් සංවර්ධනයටත් මහඟු පිටුවහලක් වී තිෙබනවා. එම කාන්තාවන් හා ඔවුන්ෙග් කුඩා දරුවන්ෙග් යහපත සඳහා ගත යුතු එක් පියවරක් වශෙයන් තමයි ෙමම අමාතɕාංශය මඟින් පථම වරට මහරගම පෙද්ශෙය් දිවා සුරුකුම් මධɕස්ථානයක ආරම්භ කරලා තිෙයන්ෙන්. සුදුසු ෙගොඩනැඟිලි ලබා ගැනීමට ඇති දුෂ්කරතාවන් ෙනොවන්නට ෙමවැනි මධɕස්ථාන තවත් කිහිපයක් ආරම්භ කරන්නට අපට හැකියාව තිබුණා. 7. මුල් ළමාවිය සංවර්ධනය පිළිබඳ අරමුදලක් පිහිටුවීම. මුල් ළමාවිෙය් දරුවන්ෙග් පූර්ණ සංවර්ධනයක් ඇති කිරීම ළමුන්ෙග්
+
+ඉදිරි සංවර්ධනයට ෙමන්ම කුසලතාවන් වැඩිදියුණුවට ඉතා අවශɕ ෙදයක්. ෙම් සඳහා එම දරුවන් සඳහා මුල් ළමාවිය සංවර්ධන ෙසේවාවන් ලබා දීෙම් අරමුණින් මුල් ළමා විය සංවර්ධනය පිළිබඳ අරමුදලක් පිහිටු වීම සඳහා අමාතɕ මණ්ඩල අනුමැතිය ලබා ගැනීමට මාෙග් අමාතɕාංශයට හැකි වුණා. ෙමතුළින් ෙපර පාසැල් ගුණාත්මක ෙලස සංවර්ධනයක් ෙපර පාසල් ගුරුවරුන් පුහුණු කිරීම සඳහාත් උපකාර කරන්න අපි බලාෙපොෙරොත්තු ෙවනවා. රාජɕ හා රාජɕ ෙනොවන සංවිධානවල සහභාගීත්වෙයන් පිහිටු වන ෙමම අරමුදල පාර්ලිෙම්න්තු පනතකින් සම්මත කර ගැනීම අෙප් මීළඟ කාර්ය භාරයයි.
+
+[ගරු සුෙම්ධා ජී. ජයෙසේන මහත්මිය ]
+
+2008 ෙදසැම්බර් 05 3311 3312
+
+8. ජංගම දුරකථන මඟින් සිදු වන ළමා අසභɕ ෙවබ් අඩවි පිවිසුම පිටු
+
+දැකීම 2008 ෙලෝක ළමා දිනයට සමගාමීව ජාතික ළමා රක්ෂක අධිකාරිෙය්
+
+ෙමෙහය වීෙමන් ෙමම වැඩසටහන කියාත්මක වීම ආරම්භ වුණා. එයින් අප බලාෙපොෙරොත්තු ෙවන්ෙන් ජංගම දුරකථන මඟින් ළමුන් අසභɕ ෙවබ් අඩවිවලට පිවිසීෙම් ඉඩකඩ අහුරාලීමයි. ඊට අවශɕ තාක්ෂණික පියවර ගැනීමට ඩයෙලොග් දුරකථන ෙසේවාව දැනටමත් එකඟතාවකට ඇවිල්ලා තිෙයනවා. දැන්ම ෙමයට පියවර ෙනොගෙහොත් අෙප් දරු පරපුර ෙනොමග යෑමට ඇති ඉඩකඩ ඉතා ඉහළයි. 9. ෙජɕෂ්ඨ පුරවැසි කාන්තාවන් සඳහා වන සම්පත් මධɕස්ථාන
+
+වැඩසටහන රෙට් ජනගහණෙයන් සැලකිය යුතු පතිශතයක් වයස් ගතවූවන් බවට
+
+පත් වීම නිසා ඔවුන්ෙග් කායික හා මානසික සුබසාධනය හා රැකවරණය ෙවනුෙවන් කියා කිරීමට රජයට සිදු වී තිෙයනවා. ෙම් අනුව ළමා සංවර්ධන හා කාන්තා අභිවෘද්ධි අමාතɕාංශය මඟින් සමාජ ෙසේවා හා සමාජ සුබසාධන අමාතɕාංශය හා ඒකාබද්ධ ෙජɕෂ්ඨ පුරවැසි කාන්තාවන් ෙවනුෙවන් සම්පත් මධɕස්ථාන අලුතින් ආරම්භ කිරීමට ෙම් වසෙර්දී පියවර ගත්තා. ඒ අනුව මුල්ම මධɕස්ථානය ෙහෝමාගම පිහුටුවලා තිෙයන්ෙන්. මීට අමතරව තවත් මධɕස්ථාන 04ක් අලුතින් පිහුටුවීමට මූලික කටයුතු ෙයොදමින් පවතිනවා. ෙමම වැඩසටහන තුළින් වයස්ගත කාන්තාවන්ට සමාජෙය් පිළිගැනීමක් ඇති කිරීමට ෙමන්ම සංවර්ධන කියාවලියට ඔවුනට හැකි පමණින් දායක වීමට අවශɕ ඉඩ පස්ථා සැලසීමත් අෙප්ක්ෂා කරනවා. 10. තීරණ ගැනීෙම් හා ෙද්ශපාලන කියාවලිෙය් කාන්තා සහභාගීත්වය
+
+පවර්ධනය කිරීම ගරු නිෙයෝජɕ සභාපතිතුමනි, ආසියාෙව් අෙනකුත් රටවල් හා
+
+සංවර්ධනය කර බලන විට අප රෙට් කාන්තාවන් අධɕාපන, ෙසෞඛɕ, කීඩා යන අංශවලින් ඉදිරිෙයන් සිටිනවා. නමුත් කනගාටුවට කරුණු වන්ෙන් ෙද්ශපාලන හා තීරණ ගැනීෙම් කියාවලිෙය්දී ෙමරට කාන්තාවන් ඉන්ෙන් පිරිමින්ට වඩා ෙබොෙහෝ පිටුපසින් වීමයි. ෙමය අෙප් රෙට් කාන්තාවන්ෙග් ඉදිරි ගමනට විශාල බාධාවක් ෙලස විද්වතුන් ෙපන්වා ෙදනවා. උදාහරණයක් ෙලස ගත්ෙතොත් ෙම් ගරු සභාෙව්ත් පළාත් සභාවලත් පළාත් පාලන ආයතනවලටත් කාන්තාවන් ෙත්රී පත්ව සිටින්ෙන් සියයට 4% කටත් වඩා අඩු පතිශතයක්. ෙමය වළක්වා ගැනීම සඳහා ෙද්ශපාලනෙය් නියුතු හා නියුතු වීමට බලාෙපොෙරොත්තු වන කාන්තාවන්ෙග් නායකත්ව ගුණාංග හා හැකියාවන් වර්ධනය ෙකොට ඔවුන් ඉදිරියට යැවීම සඳහා පුහුණු වැඩසහන් 12ක් අමාතɕාංශය මඟින් ෙම් වසෙර් පවත්වා තිෙයනවා. එෙමන්ම UNDP වɕාපෘතිෙය් මැදිහත්වීෙමන් තවත් පුහුණු වැඩසටහන් 03ක් ද පාර්ලිෙම්න්තු සාකච්ඡා වක් හා මාධɕ සාක්ච්ඡාවක් ද පවත්වා තිෙයනවා. මහින්ද චින්තනෙය් දැක්ෙවන පරිදි පළාත් පාලන නාමෙයෝජනා ලැයිස්තුවලට අවම වශෙයන් සියයට 25%ක් වත් කාන්තාවන් ඇතුළත් කිරීමට කටයුතු කරන ෙලස මා සියලු පක්ෂවලින් ෙම් අවස්ථාෙව්දී ඉතා ඕනෑකමින් ඉල්ලා සිටිනවා. 11. ජාතɕන්තර කාන්තා දිනය ෙම් රෙට් කාන්තාවන්ෙග් සංවර්ධනය සහ අභිවෘද්ධිය සැලසීම ෙමම
+
+අමාතɕාංශයට පමණක් තනිව සිදු කළ හැකි ෙදයක් ෙනොෙවයි. ඒ වාෙග්ම ෙමම අමාතɕාංශයට රජෙයන් වාර්ෂිකව ෙවන් කර ෙදන පතිපාදන ඒ සඳහා කිසිෙසේත් පමාණවත් ෙවන්ෙන් නැහැ. ඒ නිසා අෙනකුත් අමාතɕාංශවලද වග කීමක් වනවා කාන්තාවන් ඉලක්ක කර ෙගන සංවර්ධන වැඩසටහන් දියත් කිරීමට උපාය මාර්ගයන් ෙයදීම. ෙමය ඉටු කර ගැනීෙම් අරමුණින් 2008 මාර්තු 08 වන දිනට ෙයදුණු ජාතɕන්තර කාන්තා දිනය “සංවර්ධනය සඳහා මුදල් ෙයදවීෙම්දී කාන්තාවන්ටද සමාන අවස්ථා ලබා දිය යුතුය” යන ෙත්මාව ඔස්ෙසේ පාෙද්ශීය හා ජාතික මට්ටමින් සැමරීමට අපි වැඩසටහන් දියත් කළා. ෙම් තුළින් අපි බලාෙපොෙරොත්තු වුණා අෙනකුත් අමාතɕාංශ හා සංවිධානවල පතිපත්ති සම්පාදකයින්, තීරණ ගන්නන් හා සලසුම්කරුවන් උනන්දු කරවන්න කාන්තාවන් සඳහා නව සංවර්ධන ඉඩ පස්ථා සපයා දීමට. 12. කාන්තා පිළිසරණ මධɕස්ථාන වැඩසටහන හිංසනයට හා පීඩාවන්ට පත් වන කාන්තාවන්ෙග් ආරක්ෂාව,
+
+සුබසාධනය හා රැකවරණය සැලසීම මෙග් අමාතɕාංශ යට පැවෙරන තවත් පධාන කාර්ය භාරයක්. ෙමය මහින්ද චින්තනෙය්ද දැක්ෙවනවා. එම කාර්ය භාරය ඉටු කිරීම සඳහා කාන්තා පිළිසරණ මධɕස්ථාන වැඩසටහන ආරම්භ කර තිෙයනවා. පීඩාවන්ට ෙගොදුරු වූ කාන්තාවන්ට දිගුකාලීන විසදුම් ලබා දීමට පියවර ගන්නා තුරු ෙමම මධɕස්ථානවල රැදී සිටීමට පුළුවන්. ඒ කාලෙය්දී ඔවුන්ට ආරක්ෂාව, උපෙද්ශනය, ආහාර පාන ඇතුළු සහන ෙසේවා ලබා ෙදන්න අපි කටයුතු කරනවා.
+
+දැනට කළුතර පිහිටුවා ඇති උපෙද්ශන මධɕස්ථානය කාන්තා පිළිසරණ මධɕස්ථානයක් බවට පත්කිරීමට පියවර අරෙගනයි තිෙයන්ෙන්. සුදුසු ෙගොඩනැඟිලි පහසුකම් ලබා ගත හැකි නම් ෙම් මධɕස්ථාන රෙට් අෙනකුත් පෙද්ශවලත් පිහිටුවන්න පුළුවන්. ෙම් සඳහා අපි රාජɕ ෙනොවන සංවිධානවලද සහය අෙප්ක්ෂා කරනවා. 13. කාන්තාවන් සඳහා වන උපෙද්ශන වැඩසටහන පවුල් පරිසරය හා සමාජය තුළ කාන්තාවන්ට මුහුණ දීමට සිදු වන ගැටලු හා අභිෙයෝගයන්වලට ඔවුන්ට පිළිතුරු ෙසොයා ගැනීමට අවශɕ හැකියාවන් හා දැනුම හා ෙතොරතුරු ලබා දීමට ෙම් වැඩසටහන ආරම්භ කරලා තිෙයනවා. දැනට උපෙද්ශන මධɕස්ථාන 11ක් පවත්වා ෙගන යන අතර ෙම් වසෙර් අලුතින් තවත් මධɕස්ථානයක් විවෘත කිරීමට මූලික කටයුතු ෙයොදලයි තිෙයන්ෙන්. ෙම් මඟින් කාන්තාවන් 1900කට වැඩි පිරිසක් දැනටමත් දැනුවත් කරලා තිෙයනවා.
+
+14. කාන්තාවන් සඳහා වන ජාතික කියාකාරී සැලැස්ම
+
+කාන්තාවන්ෙග් සුබසාධනය හා සංවර්ධනයට සම්බන්ධ සියලු රාජɕ හා රාජɕ ෙනොවන සංවිධානවලද දායකත්වෙයන් ඒකාබද්ධව ජාතික වශෙයන් කියාවට නැංවිය හැකි ඉදිරි පස් වසර සඳහා වූ ෙදවන කියාකාරී සැලැස්ෙම් කටයුතු දැනටමත් නිම ෙවමින් පවතිනවා. ෙමය කියාත්මක කිරීෙම්දී ඉහත සඳහන් සියලු අංශවලට විශාල වගකීමක් පැවෙරන බව සඳහන් කරන්න කැමතියි. ආරථික, ෙද්ශපාලන, අධɕාපන, ෙසෞඛɕ, ආරක්ෂාව, රැකවරනය ආදී පුළුල් ක්ෙෂේතයන් තුළ කාන්තාවන් සවිබල ගැන්වීමට හා ශක්තිමත් කිරීමට ෙම් තුළින් පැහැදිලි උපාය මාර්ග හා වැඩසටහන් හදුනා ෙගන ඇති බව කියන්න පුළුවන්. ෙමම සැලැස්ම සැකසීෙම් කටයුතු පධාන වශෙයන් ජාතික කාන්තා කමිටුෙව් දායකත්වෙයනුයි සිදු වුෙණ්.
+
+15. කාන්තාවන්ට එෙරහිව සිදුවන හිංසනය අවම කිරීම
+
+ෙමරට කාන්තා පරපුර මුහුණ ෙදන අභිෙයෝගයක් වන හිංසනෙයන් අවම කිරීම සඳහා ජාතික කාන්තා කමිටුෙව් පැමිණිලි මධɕස්ථානෙය් කටයුතු විධිමත් කිරීම හා අදාල ආයතන සමඟ ජාලගතකිරීම, ගෘහස්ථ පචණ්ඩ කියා වැළැක්වීෙම් පනත පිළිබඳ ෙපොලිස් ළමා හා කාන්තා කාර්යාංශය ඇතුළුව නිලධාරීන් හා රාජɕ ෙනොවන සංවිධාන සමඟ සම්බන්ධීකරණ කටයුතු පවත්වා ෙගන යෑම, ෙමම පනත පිළිබද උපෙද්ශන නිලධාරීන් දැනුවත් කිරීම, කාන්තාවන්ට එෙරහිම හිංසනය වැළැක්වීම පිළිබඳව වන ජාතɕන්තර දිනය නිමිත්ෙතන් ෙනොවැම්බර් 25 සිට ෙදසැම්බර් පාෙද්ශීය ෙල්කම් ෙකොට්ඨාස 180ක වැඩසටහන් පැවැත්වීමට කටයුතු කිරීම සහ ෙපොදු පවාහන ෙසේවාවලදී කාන්තාවන්ට සිදු වන හිංසනය වැළැක්වීම පිළිබඳ ස්ටිකරයක් ෙබදා හැරීම සඳහා ෙම් වන විටත් කටයුතු ෙයොදා තිෙබනවා.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, 2009 වර්ෂෙය්දී මෙග් අමාතɕාංශෙයන් කියාත්මක කරන්න බලාෙපොෙරොත්තු වන පධාන වැඩසටහන් කිහිපයක් ගැන කතා කරන්නත් මා සූදානම්.
+
+පරිවාස හා ළමා රක්ෂණ ෙසේවා පවර්ධනය කිරීම පරිවාස හා ළමා රක්ෂක ෙසේවා ෙදපාර්තෙම්න්තුව යටෙත් ළමයින්ෙග් ආරක්ෂාව, අයිතිවාසිකම් හා ශුභසාධනය පවර්ධනය කිරීෙම් අරමුණින් ක්ෙෂේතයන් කිහිපයක් තුළ ෙම් වැඩසටහන් කියාත්මක කරන්න තීරනය කරලා තිෙයනවා. රජෙය් හා ස්ෙවච්ඡා සංවිධාන මගින් පවත්වා ෙගන යන ළමා නිවාස වැඩි දියුණු කිරීම හා සංවර්ධනය, තීරණ ගැනීෙම් කියාවලිෙය්දී ළමුන්ෙග් දායකත්වය වර්ධනය කිරීම, ළමුන් පාසල් හැර යාෙම් පවරණතාව අඩු මට්ටමකට ෙගන ඒම, ළමා හිමිකම් සම්බන්ධව ආදර්ශ ගම්මාන සංවර්ධනය කිරීම සහ නිවස පදනම් කර ගත් ළමා ආරක්ෂාව හා රැකවරනය සැලසීම ෙම් මගින් ඉටු ෙකෙරනවා. ෙම් සඳහා රුපියල් මිලියන 20ක් වැය කිරීමට බලාෙපොෙරොත්තුයි.
+
+1. පාසල් ෙනොයන ළමුන් පැසල් ගත කිරීම
+
+අධɕාපනය ලැබීමට ඇති අයිතිය ළමුන්ෙග් මූලික අයිතිවාසිකමක් වන නිසා පාසල් ෙනොයන වීදි දරුවන් හා එවැනි අෙනකුත් දිළිඳු දරුවන් පාසල් ගත කිරිමට අප පමුඛතාව ෙදන්න ඕනෑ. ෙම් සඳහා ළමුන්ට අවශɕ පාසල් උපකරණ ලබා දීම හා ඒ ෙකෙරහි ෙදමාපියන් හා භාරකරුවන් උනන්දු කරවීමට පාෙද්ශීය ෙල්කම් ෙකොට්ඨාශ මට්ටෙමන් වැඩසටහන් සැලසුම් ෙකොටයි තිෙයන්ෙන්.
+
+2. කිරි වීදුරුව වැඩසටහන
+
+2009 වර්ෂෙය්දීද ළමුන්ෙග් මන්දෙපෝෂණ තත්ත්වය අඩු කිරීම සඳහා ෙමම වැඩසටහන ලංකාව පුරා කියාත්මක කිරීමට අපි බලාෙපොෙරොත්තු ෙවනවා. ෙමහිදි කිරි සැපයීම විධිමත් කිරීමටත්, කිරි නිෂ්පාදනය වැඩි දියුණු කිරීමටත් අවධානය ෙයොමු කිරීම ඉතා වැදගත්. විෙශේෂෙයන්ම අලුතින් මුදා ගත් නැ ෙඟනහිර හා උතුරු පළාත්වල ළමුන්ට උපරිම පතිලාභ ෙගන ඒම සඳහා අපි ඉදිරි වසෙර්දි වැඩි උනන්දුවක් දක්වනවා. ඊට රුපියල් මිලියන 600ක මුදලක් ෙවන් කරලායි තිෙයන්ෙන්.
+
+පාර්ලිෙම්න්තුව 3313 3314
+
+3. සුනාමිය මගින් මාපියන් හා භාරකරුවන් අහිමි වූ දරුවන්ෙග් සුභසාධනය හා ආරක්ෂාව තහවුරු කිරීම
+
+දැනට පරිවාස හා ළමාරක්ෂක ෙසේවා ෙදපාර්තෙම්න්තුව මඟින් කියාත්මක කරන ෙසෙනහස බැංකු වැඩසටහන තවදුරටත් කියාත්මක කරන අතර ඊට අමතරව ජාතික ළමාරක්ෂක අධිකාරිය මගින් ෙමම වැඩසටහන දියත් කරන්න බලාෙපොෙරොත්තු ෙවනවා. ෙදමාපියන් හා භාරකරුවන් අහිමි වූ දරුවන් සඳහා වයස අවුරුදු 16 පිෙරනතුරු මසකට රුපියල් 750ක මූලɕාධාර ලබා දීමත් වයස අවුරුදු 16 ඉක්ම වූ දරුවන් සඳහා වෘත්තීය පුහුණුව ලබා දීමත් සහ වයස අවුරුදු 16 ඉක්මවූ දරුවන් සඳහා අවශɕ අධɕාපන පහසුකම් ලබා දීමත් මීට ඇතුළත් ෙවනවා.
+
+4. දිරිදරු ළමා සම්පත් මධɕස්ථාන
+
+ෙම් රෙට් දරුවන් අපෙයෝජනයට හා පීඩාවන්ට ෙගොදුරුවීම පිළිබද අපි දැඩි සැලකිල්ල ෙයොමු කිරීම වැදගත්. එය පමණක් පමාණවත් වන්ෙන් නැහැ. එවැනි තත්ත්වයන්ට ලක් වූ ළමුන්ෙග් රැකවරණය සඳහා අපි තවදුරටත් පියවර ගැනීම අතɕාවශɕයි. ඒ සඳහා තමයි ජාතික ළමාරක්ෂක අධිකාරිය මඟින් දිරි දරු ළමා සම්පත් මධɕස්ථාන කියාත්මක කරන්ෙන්. ඉතාලි රාජɕ ෙනොවන සංවිධායක මූළɕාධාර මත ආරම්භ කර ඇති ෙමම වැඩසටහන තුළින් අලුතින් මධɕස්ථාන ඇරඹීමටත් ඒවාෙය් පහසුකම් වැඩි දියුණු කිරීමටත් දැනට ආරම්භ කර ඇති මධɕස්ථාන තුෙනහි නඩත්තු කටයුතු කිරීමටත් සැලසුම් කර තිෙයනවා.
+
+5. ෙපරපාසල් හා දිවා සුරැකුම් මධɕස්ථාන ජාතɕන්තර මට්ටමට ෙගන ඒම 2005 වසර වන විට පූර්ව ළමා විය සංවර්ධනය සඳහා ෙලෝකෙය් අෙනකුත් රටවල් හා සසඳා බැලිෙම්දී ශී ලංකා රජය මගින් ෙයොමු කර තිබුෙණ් අඩු අවධානයක්. ෙම් තත්ත්වය මඟහරවා ෙපර පාසල් හා දිවා සුරැකුම් මධɕස්ථාන ෙසේවාවන් ගුණාත්මකට හා පමාණාත්මකව වර්ධනය කිරීෙම් අරමුණින් මහින්ද චින්තනය යටෙත් හඳුන්වා දුන් ෙපර පාසල් හා දිවා සුරැකුම් මධɕස්ථාන ජාතɕන්තර මට්ටමට ෙගනඒෙම් කියාවලිය 2009 වර්ෂෙය්දී ද අඛන්ඩව ඉදිරියට ෙගන යෑමට ළමා ෙල්කම් කාර්යාලය මඟින් සැලසුම් කරලායි තිෙයන්ෙන්. ඒ අනුව ෙපෝෂණ මංෙපත හා කැකුළු උදානය යටෙත් ෙපර පාසල් දරුවන්ෙග් ෙපෝෂණ තත්ත්වය ඉහළ නැංවීම, මුල් ළමාවිය සංවර්ධන මධɕස්ථාන හා ෙපර පාසල් ගුරු පුහුණුව, නිවස පදනම් කරගත් මුල් ළමාවිය සංවර්ධනය, විෙශේෂ අවශɕතාවයන් ඇති ළමුන් පිළිබද වැඩසටහන සහ මුල් ළමාවිය සත්කාරය පිළිබද කමිටු කියාවට නැංවීමට කටයුතු ෙයොදනවා. ඒ විතරක් ෙනොෙවයි. බන්ධනාගාරවල දුක් විඳින දරුවන්ෙග් යහපත සඳහා ඒවාෙය් ෙපර පාසල් වැඩි දියුණු කරනනත් අපි සූදානම්. ෙමහි මුල්ම පියවර වශෙයන් වැලිකඩ බන්ධනාගාරෙය් ෙපර පාසැල් සහ දිවා සුරැකුම් මධɕස්ථානය සඳහා නව ෙගොඩනැගිල්ලක් ඉදි කිරීමට කටයුතු කරනවා.
+
+6. වීදි දරුවන් පුනරුත්ථාපනය කිරීෙම් වැඩසටහන
+
+මම නැවත අවධාරනය කරන්න කැමැතියි අපි හැෙමෝම අවධානය ෙයොමු කළ යුතු පිරිසක් තමයි වීදි දරුවන්. ඔවුන්ට නිසි රැකවරණයක් නැහැ. වරද කාෙග්වුවත් ඔවුන්ට හරි අධɕාපනයක් ලැෙබන්ෙන් නැහැ. ඒ වාෙග්ම ඔවුන් විවිධ අපෙයෝජනවලට ලක් ෙවනවා. ඒ හින්දා අපි සර්ෙවෝදය වැනි ආයතන හා එක්ෙවලා වීදි දරුවන් පුනරුත්ථාපනය කිරීමට කටයුතු කරනවා. වීදි වල සහ මහමග අතරමංව සිටින වීදි දරුවන් පුනරුත්ථාපනෙයන් ඔවුන්ෙග් ආරක්ෂාව, අයිතිවාසිකම් හා ශුභසාධනය තහවුරු කරලා යහපත් පුරවැසියන් ෙලස සමාජගත කරන්න අපට පුළුවන්. ෙමහිදී දිවා කාලෙය්දී ඔවුන් රඳවා ගන්න මධɕස්ථානවල පහසුකම් ලබා ෙදන්න ඕනෑ. පරිවාස හා ළමා ආරක්ෂක ෙසේවා ෙදපාර්තෙම්න්තුෙව් පධානත්වෙයනුයි ෙමය කියාවට නංවන්ෙන්.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, රටක් සංවර්ධනය කරා ෙගන යෑමට නම් එරෙට් කාන්තාවන්ෙග්ද සංවර්ධනයක් සහ සවිබල ගැන්වීමක් සිදුවිය යුතු බව මා ෙමන්ම ෙම් ගරු සභාවද විශ්වාස කරන බව මා ෙහොදින් දන්නා කරුණක්. ඒ නිසා අපි එළෙඹන වසෙර්දී කාන්තාවන්ෙග් යහපත සඳහා සංවර්ධන වැඩ සටහන් ගණනාවක්ම කියාත්මක කරනවා. එය ජාතික සංවර්ධනයට වාෙග්ම කාන්තාවන්ෙග් යහපතට එකෙසේ පෙයෝජනවත් ෙව්වි.
+
+1. කාන්තාවන් ආර්ථික වශෙයන් සවිබල ගැන්වීම
+
+කාන්තාවන්ට නව රැකියා හා ආදායම් උත්පාදන අවස්ථා වැඩිෙයන් ලබා දුන් තරමට තමයි ඔවුන් ආර්ථික වශෙයන් ඉදිරියට ෙගන යන්න පුළුවන් ෙවන්ෙන්. ෙම් සඳහා විෙශේෂෙයන් වැඩ සටහන් කියාත්මක කරන්ෙන් කාන්තා කාර්යාංශෙයන්. ඒ අනුව කාන්තාවන්ට සම්පදායික ෙනොවන ක්ෙෂේතවල රැකියා අවස්තා බිහි කිරීම සඳහා වɕවසායකත්ව සංවර්ධන පුහුණුව ලබාදීම, ශිල්පීය පුහුණුව ලබාදීම, ණය පහසුකම් වැඩි දියුණු කිරීම සඳහා වනිතා ශක්ති බැංකු සංගම් සහ චකීය ණය වැඩසටහන් තවදුරටත් කියාවට නැංවීමට කටයුතු සූදානම්. මා ෙමහිදී විෙශේෂෙයන්ම මතක් කර ෙදන්න කැමැතියි කාන්තාවන් ආර්ථික වශෙය් ඇති හැකි අය බවට පත් කළෙහොත් ඔවුන්ට තීරණ ගැනීෙම් කියාවලියට වැඩිපුර දායක ෙවන්න ඉඩකඩ ලැෙබනවා ෙමන්ම ඔවුන් පිරිමින්ෙග් තාඩන පීඩන හා හිංසනයන්ට ෙගොදුරු වීමට ඇති ඉඩකඩ අඩු වන බවත්
+
+2. ෙගවතු වගා හා සත්ව පාලන වැඩසටහන
+
+රෙට් ආහාර නිෂ්පාදනය ඉහළ නංවා ආහාර සුරක්ෂිතතාව වර්ධනය කිරීෙම් අරමුණින් වත්මන් රජය දියත් කර ඇති අපි වවමු රට නගමු වැඩ සටහනට සමගාමීව මාෙග් අමාතɕාංශය යටෙත් කාන්තාවන් සඳහා ෙගවතු වගා වැඩසටහනක් පුළුල්ව කියාත්මක කිරීමට සැලසුම් කර තිෙබන බව පකාශ කරන්ෙන් සතුටින්. පවුෙල් ආදායම් තත්ත්වය වර්ධනය කිරීම හා ෙපෝෂණ තත්ත්වය නංවාලීමටත් පධාන වශෙයන් මින් ඉඩකඩ සැලෙසනවා. ෙමම වැඩසටහෙන්දී ෙගවතු මට්ටෙම් ෙබෝග වගාවන්ට අමතරව එළු පාලනය, කුකුළු පාලනය හා කිරිගව පාලනය වැනි කටයුතුත් අපි කියාත්මක කරන්න බලාෙපොෙරොත්තුයි. තම පවුලට අවශɕ ආහාර දවɕ ෙගවත්ෙතන් නිෂ්පාදනය කරගත හැකි නම් එමගින් ෙවළඳ ෙපොළ උද්දමනයට මුහුණු දීමට ඇති හැකියාව වැඩි වන බවත් අපි අමතක කළ යුතු නැහැ.
+
+3. කාන්තාවන් සමාජීය වශෙයන් සවිබල ගැන්වීම.
+
+සංකීර්ණ වන හා ෙවනස් ෙවමින් පවත්නා සමාජ වටාපිටාව හමුෙව් ඊට සාර්ථකව මුහුණ දීමට හැකි වන පරිදි කාන්තාවන්ෙග් තත්ත්වය ඉහල නැංවීම සඳහා සමාජ වශෙයන් ඔවුන් සවිබල ගැන්වීෙම් වැඩසටහන් අපි කියාත්මක කරන්න සූදානම්. එහිදී ඔවුන්ට අවශɕ දැනුම, කුසලතාවන්, ෙතොරතුරු හා අෙනකුත් සහන ෙසේවාවන් සැපයීමට අපි පියවර ගන්නවා. පාෙද්ශීය මට්ටමින් පිහිටුවා ඇති කාන්තා බල මණ්ඩල සම්බන්ධ කර පිහිටු වන ලබන දිස්තික් කාන්තා බල මණ්ඩල තවදුරටත් ශක්තිමත් කරමින් කාන්තාවන්ෙග් හඩ ශක්තිමත් කිරීමටත් සංවර්ධන හා තීරණ ගැනීෙම් කියාවලියට ඔවුන් වැඩිපුර දායක කර ගැනීමටත් අපි අදහස් කරලා තිෙයනවා. ෙමයට අමතරව උපෙද්ශන වැඩ සටහන් පවත්වාෙගන යෑම, කාන්තා පිළිසරණ මධɕස්ථාන සංවර්ධනය කිරීම, කාන්තාවන්ෙග් ෙපෝෂණ හා පජනන ෙසෞඛɕ සංවර්ධනයට පියවර ගැනීම ද ෙම් යටෙත්ම සිද්ධ ෙවනවා.
+
+4. දිස්තික් ඒකාබද්ධ පවුල් සංවර්ධන වɕාපෘතිය
+
+සමාජ ආර්ථික වශෙයන් දිවයිෙන් ඉතා පසුගාමී දිස්තික්කයක් වන ෙමොණරාගල දිස්තික්කෙය් ෙතෝරාගත් දිළිඳු ජන ෙකොට්ඨාසවල විෙශේෂෙයන් ළමුන්ට හා කාන්තාවන්ට පතිලාභ ගලා යන අයුරින් සැලසුම් කර ඇති වɕාපෘතියක් ෙලස ෙමය හදුන්වන්න පුළුවන්. අඩු ආදායම් තත්ත්වය, අඩු නිවාස පහසුකම්, දුර්වල සනීපාරක්ෂක පහසුකම්, පාසල් හැර යාම ඉහළ මට්ටමක තිබීම, ළමා මව්වරුන් සංඛɕාව වැඩි වීම, අඩු ෙපෝෂණ තත්ත්වය වැනි පධාන ගැටලු වලට පිළියම් ෙයදීමට මින් බලාෙපොෙරොත්තු ෙවනවා. පාෙද්ශීය ෙල්කම් ෙකොට්ඨාස මට්ටමින් දුෂ්කරම ගම්මානවල කාන්තාවන්ට හා ළමුන්ට ෙම් මගින් සැලෙසන්ෙන් විශාල ෙසේවාවක්. වැසිකිළි ආධාර, පානීය ජල පහසුකම්, නිවාස සංවර්ධනය, විෙශේෂෙයන්ම ස්වයං රැකියා හා ණය වැඩසටහන්, ෙපර පාසැල් සංවර්ධනය, ෙසෞඛɕ පහසුකම් වැඩි දියුණු කිරීමටයි ෙමයින් පමුඛතාවය ෙදන්න අපි බලාෙපොෙරොත්තු ෙවන්ෙන්.
+
+5. ජනමාධɕ වැඩ සටහන්
+
+මාධɕ තුළ කාන්තාවන් පිළිබඳ යහපත් පතිරූපයක් ඉස්මතු කිරීෙම් අරමුණින් සහ කාන්තා විෂයට අදාළව ෙතෝරාගත් ක්ෙෂේතයන් හා කාන්තා සංවර්ධන වැඩසටහන් පිළිබඳ පජාව දැනුවත් කිරීෙම් උපාය මාර්ගයක් ෙලස මුදිත හා විදɖත් මාධɕ වැඩසටහන් පචාරණය කිරීමට අපට අවශɕ වී තිෙබනවා. මම හිතන්ෙන් කාන්තාවන් සවිබල ගැන්වීෙම් කටයුත්ෙතදී මාධɕවලට විශාල වැඩෙකොටසක් ඉටු කරන්න පුළුවන් කියලා. අපි ඉන් පෙයෝජන ගන්න උත්සාහ කරන්න ඕනෑ.
+
+6. තීරණ ගැනීෙම් හා ෙද්ශපාලනෙය් කාන්තා දායකත්වය පවර්ධනය කිරීම
+
+මා ෙම් කථාෙව්දී මීට ෙපර කියූ පරිදි තීරණ ගැනීෙම් හා ෙද්හපාලන කියාවලිෙය් කාන්තාවන්ෙග් දායකත්වය ඉතාමත්ම අසතුටුදායකයි. එනිසා අපි 2009 වර්ෂෙය්දී ද එය වැඩිදියුණු කිරීම සඳහා කාන්තාවන් දැනුවත් කිරීම ෙමන්ම විෙශේෂෙයන්ම ෙද්ශපාලන පක්ෂ නායකත්වය උනන්දු කරවීමට අවශɕ පියවර ගන්න සූදානම්. සියලු පක්ෂවල සහෙයෝගය ඊට ලබා ෙදන ෙමන් ෙම් රෙට් සමස්ත කාන්තා පරපුර ෙවනුෙවන් ගරු සභාෙවන් මා ඉල්ලා සිටිනවා.
+
+7. කාන්තාවන්ට එෙරහිව සිදු වන හිංසනය වැළැක්විෙම් වැඩසටහන
+
+කාන්තාවන්ට එෙරහිව සිදු වන හිංසනයන් හා අකටයුතුකම් සම්බන්ධව
+
+අපි වඩාත් සංෙව්දීව කියාත්මක විය යුතුව තිෙයනවා. ඒ හින්දා ශී ලංකා කාන්තා කාර්යාංශෙයනුත්, ජාතික කාන්තා කමිටුෙවනුත් හිංසනය වැළැක්වීම සඳහා විවිධ වැඩසටහන් සකස් කරලායි තිෙයන්ෙන්. ෙම් යටෙත් ගබ්සා නීතිය සංෙශෝධනය කිරීමටත්, විවාහ වීෙම් අවම වයස් මට්ටම පිළිබඳ යළි සලකා බැලීම වැනි මූලික කටයුතු කිරීමට සිදුව තිෙබනවා. ඒ විතරක් ෙනොෙවයි. කාන්තාවන්ෙග් අයිතිවාසිකම් හා හිංසනය පිළිබඳ පජානායකයින්, පාසල් ශිෂɕයින්, ගුරුවරුන් හා ෙදමාපියන් ඇතුළු පජවා දැනුවත් කිරීෙම් වැඩසටහන් රාශියකුත් එයට ඇතුළත් කරලායි තිෙයන්ෙන්. අවසාන වශෙයන් මා ෙම් ගරු සභාෙව් දි පකාශ කරන්නට කැමැතියි
+
+ෙකොතරම් ගැටලු හා බාධක තිබුණත් අප සියලු ෙදනා පක්ෂ, ජාති හා ආගම් ෙභ්දයකින් ෙතොරව කියා කළෙහොත් ෙම් රෙට් ළමුන්ටත්, කාන්තාවන්ටත් ෙමන්ම සමස්ත ජනතාවටම යහපත් අනාගතයක් උදා කරන්න අපිට ඉඩකඩ තිෙයන බව. සුෙම්ධා ජී.ජයෙසේන අමාතɕ ළමා සංවර්ධන හා කාන්තා අභිවෘද්ධි අමාතɕාංශය
+
+2008 ෙදසැම්බර් 05 3315 3316
+
+[අ.භා. 4.11] ගරු වී. පුත්තිරසිගාමනී මහතා (අධිකරණ නිෙයෝජɕ අමාතɕතුමා )
+
+(மாண்ᾗமிகு ᾪ. ᾗத்திரசிகாமணி - நீதிப் பிரதி அைமச்சர்) (The Hon. V. Puththirasigamoney - Deputy Minister of Justice )
+
+Thank you, Sir, for giving me the Floor to reply on behalf of the Minister of Justice and Law Reforms. First of all, let me thank all those Members who referred to many matters pertaining to my Ministry. I am happy to say that our Ministry was able to build several court complexes in the North and the East; in places like Batticaloa and Kalmunai and also in places like Monaragala and we also built a High Court in Nuwara-Eliya. We were able to do all those things. Some of the Members referred to matters pertaining to the Ministry of Defence. Though my Ministry is the Ministry of Justice and Law Reforms, we do not interfere with the judiciary. The Members of the Opposition were praising the judiciary so that we know how the judiciary works in our country.
+
+In addition to that, we have taken action to increase the number of coroners and mediation boards in all districts of the country and we were able to work in all four corners; North, East, South and West. Whenever the Members of Parliament made complaints, particularly about the prisons, we have been able to take immediate action regarding the complaints made by the Members of the Government as well as the Opposition and we took prompt action whenever the Members from the North and East had problems with regard to the prisons.
+
+All the departments and institutions coming under our Ministry are able to work very efficiently because we have got well experienced personnel in our Ministry. We also have certain problems pertaining to interpreters and translators. This is the biggest problem that we are confronted with in the courts, in the labour tribunals and in all the other institutions. Mr. Deputy Chairman, you know that we are unable to solve this problem because we do not have enough personnel to be recruited to these positions. If not for this shortage, we would be able to fill those vacancies and provide an efficient service in that area as well.
+
+As you know, until such time I became the Deputy Minister of this Ministry, this Ministry was not taken into the area where I come from - that is the plantations. But since then, we were able to do a lot of service to the people. We were able to take our Ministry into the plantation areas through several mobile services and we were able to help the people in those areas. Particularly in the Eastern Province and in the Southern Province where people got affected by the tsunami, we were able to help by providing them with new documents in place of the documents which they lost as a result of the tsunami like their birth certificates, marriage certificates, deeds for the lands and various other documents. We were able to support them in that way. I am very happy that we were able to do that.
+
+I would like to thank my Secretary, Mr. Suhada Gamlath, who is a very progressive-thinking gentleman. Whenever we have problems, particularly with regard to complaints coming from the Members of Parliament and also from the general public pertaining to any matters that are connected to our Ministry, he takes immediate action. We are also very grateful to the Hon. Chief Justice who has time and again given us whatever assistance and advice that is necessary to run this Ministry.
+
+I must also thank His Excellency the President for appointing me to this position through which I am able to serve the people in the plantation sector, who are always considered to be suppressed.
+
+With those words, I thank all the departmental Heads and the institutional Heads of my Ministry including the Secretary, Additional Secretaries, Commissioners and everyone else who have extended their support towards this Ministry during the past year.
+
+Thank you, Mr. Deputy Chairman.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+Sir, I rise to a point of Order. නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman)
+
+Yes, what is the point of Order? ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+Unfortunately, I had been out of Parliament when the Hon. Piyasiri Wijenayake had mentioned that I had asked to stop the war. I had not mentioned such a thing. This type of despicable, Government-oriented thing should be stopped. I never mentioned to stop the war; there was no reference at all. So, it would be greatly appreciated if you could ensure that such desultory speculation is expunged from Hansard, as well as the media is told that what the Hon. Piyasiri Wijenayake stated is baseless and that it is a desultory speculation. It is wishful thinking that they make as much as washing dirty linen in public. That is their job. So, I would appreciate if you would give an Order on that.
+
+[අ.භා. 4.17] ගරු පවිතාෙද්වි වන්නිආරච්චි මහත්මිය (තරුණ කටයුතු අමාතɕතුමිය)
+
+(மாண்ᾗமிகு (திᾞமதி) பவித்திராேதவி வன்னிஆரச்சி - இைளஞர் அᾤவல்கள் அைமச்சர்)
+
+(The Hon. (Mrs.) Pavithra Devi Wanniarachchi - Minister of Youth Affairs)
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, මුළුමහත් ජාතියම ජයගහණයන් අත් පත් කර ෙගන තිෙබන ෙම් වකවානුෙව් උතුරත් -
+
+පාර්ලිෙම්න්තුව 3317 3318
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+Sorry to interrupt you, Madam. ගරු පවිතාෙද්වි වන්නිආර-ච්චි මහත්මිය (மாண்ᾗமிகு (திᾞமதி) பவித்திராேதவி வன்னிஆரச்சி) (The Hon. (Mrs.) Pavithra Devi Wanniarachchi)
+
+You are taking my time. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+I would appreciate if the Chair can give an Order on this. මම හිතන විධියට ඒක කියන්න ෙවයි ෙන්ද? නැත්නම් ඒක පෙව්ශම් සහගත මදි. ගරු නිෙයෝජɕ සභාපතිතුමනි, දන්නවා ෙන් රජෙය් මාධɕ ඉන්ෙන් ෙම් වාෙග් අසතɕ කථා කියන්න විතරයි.
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman)
+
+Standing Ordersවලට පටහැනි කිසිම ෙදයක් හැන්සාඩ් වාර්තාවට ඇතුළු වන්ෙන් නැහැ.
+
+ගරු පවිතාෙද්වි වන්නිආර-ච්චි මහත්මිය (மாண்ᾗமிகு (திᾞமதி) பவித்திராேதவி வன்னிஆரச்சி) (The Hon. (Mrs.) Pavithra Devi Wanniarachchi) ගරු නිෙයෝජɕ සභාපතිතුමනි, මුළුමහත් ජාතියම ජයගහණ අත් පත් කර ගනිමින් සිටින ෙම් වකවානුෙව් උතුරත් දකුණත් යා කරන්න, ෙම් රට එක ෙසේසත් කරන්න සිය තු රුණු ජවය කැප කරමින්, දිවා රෑ ෙවෙහෙසමින්, නිදි වරමින් කටයුතු කරන ෙම් රෙට් රණ විරුවන්ට තරුණ කටයුතු විෂයය භාර ඇමතිවරිය විධියට මා මුළුමහත් ජාතිෙය්ම ෙගෞරවය, පශංසාව මුලින්ම පුද කරන්න කැමැතියි.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, තරුණ කටයුතු ඇමතිවරිය විධියට මා ෙමම අමාතɕාංශෙය් කටයුතු කරන්ෙන් ෙබොෙහොම සන්ෙතෝෂෙයන්. ෙම් රෙට් තරුණ සංව ර්ධනයට අවම පමුඛතාවක් දීලා තිබුණු ඒ යුගයට තිත තියලා, ඒ සඳහා ෙවන් කරන්න තිබුණු පතිපාදන කප්පාදු කරපු යුගයට තිත තියලා ජාතික තරුණ සංවර්ධනය ශක්තිමත් කරන්න අතිගරු ජනාධිපතිතුමා විසින් ගත් පතිපත්තිමය තීන්දු සහ එතුමා විසින් ලබා දුන් මූලɕමය දායකත්වය පිළිබඳව තරුණ කටයුතු ඇමතිවරිය විධියට මා ඉතාමත්ම ෙගෞරවෙයන් සහ කෘතෙව්දීව ෙම් අවස්ථාෙව්දී එතුමාව සිහිපත් කරනවා.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි ෙම් රෙට් ගෙම් ඉන්න තරුණයායි, නගරෙය් ඉන්න තරුණයායි ගත්තාම, ඔවුන්ෙග් අභිලාෂයන් ෙමොනවාද, අවශɕතාවන් ෙමොනවාද, ඔවුන් බලාෙපොෙරොත්තු වන්ෙන් ෙමොනවාද, ඔවුන්ට තිෙබන ගැටලු ෙමොනවාද කියන ෙම් සියල්ල මනාව ෙත්රුම් අර ෙගන තරුණ කටයුතු අමාතɕාංශය අද ඉතාම නිවැරදි දිශාවකට ගමන් කරනවාය කියන එක මා ඉතා වග කීමකින් ෙම් උගත් සභාවට පකාශ කරන්න ඕනෑ. තරුණයන්ට තිෙබන පධානම පශ්නය තමයි විරැකියාව. තරුණයන්ට තිෙබන ෙම් විරැකියා පශ්නෙය්දි ෙද්ශීය ෙවෙළඳ ෙපොළ වාෙග්ම විෙද්ශීය ෙවෙළඳ ෙපොෙළේත් තිෙබන ඉමහත් රැකියා ඉල්ලුමට අෙප් තරුණයන්ට හඹා යන්න බැරි ෙවලා තිෙබන්ෙන් අෙප් රෙට් තරුණයන්ෙග් ඉංගීසි භාෂා දැනුම පිළිබඳ පශ්නයත්, ඉංගීසිෙයන් පරිගණකයක් භාවිත කිරීෙම්දී තිෙබන පශ්නත්, ඔවුන්ෙග් ආකල්පමය පශ්නත් නිසායි ගරු නිෙයෝජɕ සභාපතිතුමනි. ෙම් විරැකියා පශ්නයට විසඳුමක් වශෙයන්, ෙද්ශීය සහ විෙද්ශීය ෙවෙළඳ ෙපොෙළේ ෙපෞද්ගලික අංශෙය් තිෙබන රැකියා ඉල්ලුම පූරණය කරන්න අෙප් තරුණ පරපුරට හැකියාව ලබා දීම සඳහා "රට දිනවන විශිෂ්ටෙයෝ" කියන
+
+වැඩසටහන අපි ජාතියට දායාද කරනු ලැබුවා. ඒ යටෙත් ෙම් අවුරුද්ෙද් 2,500ක් පුහුණු කරන ලද අතර 2009 වසෙර්දී 5,000ක් පමණ පුහුණු කරන්න අපි බලාෙපොෙරොත්තු ෙවනවා. විෙශේෂෙයන්ම ෙම් පාඨමාලා සකස් කිරීෙම්දී ඉතාම නවීන වූ විෂය නිර්ෙද්ශයන් පාෙයෝගිකව භාවිත කරමින් තරුණයන්ෙග් දැනුම වර්ධනය කරන්නත් ෙපෞරුෂ සංවර්ධනය, ජාතිකාභිමානය, ෙද්ශාභිමානය ඇති, ඒ වාෙග්ම පරිසර සංෙව්දිතාවක් තිෙබන විනයක් තිෙබන තරුණයන් නිර්මාණය කරන්නත් කටයුතු කරනවා. ඒ වා ෙග්ම රට දිනවන විශිෂ්ටෙයෝ වැඩසටහෙනන් පුළුල් රැකියා පුහුණුවක් ලබා ෙදමින් සති ෙදකක හමුදාමය පුහුණුවක්, සති ෙදකක ෙගොවි බිමක පුහුණුවක්, සති ෙදකක පරිසර වැඩසටහනක පුහුණුවක් -සතාට සිවුපාවට ගහට ෙකොළට ආදරය කරන තරුණයන් නිර්මාණය කරන්න- සති ෙදකක පුරා විදɕා සංරක්ෂණ කටයුතු සම්බන්ධ පුහුණුවක් ලබා ෙදනවා. පුළුල් රැකියා පුහුණුවක් ඇතුළු ඒ සියල්ල ලබා ෙදන අතෙර් ෙම් සියලු පාඨමාලාවන් සඳහා නිබන්ධන ලබා ෙදනවා. සති අන්තෙය් සහ සවස් වරුෙව්දී ඉංගීසි භාෂාව ඉගැන්වීම පමණක් ෙනොෙවයි, ඉංගීසිෙයන් පරිගණකයක් භාවිත කිරීෙම් හැකියාව වර්ධනය කර ගැනීමටත් හැකි වන අන්දමටයි රට දිනවන විශිෂ්ටෙයෝ වැඩසටහන අපි නිර්මාණය කෙළේ.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, මට ලබා දී තිෙබන ඉතාම ෙකටි කාල සීමාව තුළ තරුණ කටයුතු අමාතɕාංශය ගැන කථා කරන ෙකොට ජාතික ෙයෞවන නාටɕ උෙළල ගැනත් මම සඳහන් කරන්න ඕනෑ. එදා ෙකොළඹට විතරක් සීමා ෙවලා තිබුණු ජාතික ෙයෞවන නාටɕ උෙළල අති ගරු ජනාධිපතිතුමාෙග් සම්පාප්තිෙයන් පස්ෙසේ අපට ගමට ෙගන යන්න පුළුවන් වුණා. අද පාෙද්ශීය ෙල්කම් ෙකොට්ඨාස මට්ටමින් ලංකාෙව් දිස්තික්ක විසිතුනක ෙයෞවන නාටɕ උෙළල පවත්වලා තිෙබනවා. ජාතික ෙයෞවන නාටɕ උෙළල ගැන කථා කරන ෙකොට ෙමවර ජාතික ෙයෞවන නාටɕ උෙළෙල්දී මන්නාරෙමනුත්, මඩකලපුෙවනුත් ෙකටි නාටɕ තුනක් ෙව්දිකාගත වුණාය කියන එක මම ඉමහත් ආඩම්බරෙයන් සඳහන් කරන්න ඕනෑ. තරුණ සංවර්ධන කියාවලිෙය්දී ජාතිය, ආගම, කුලය කියන ෙම් කිසි ෙදයක් සලකන්ෙන් නැතිව මුළුමහත් ලංකාෙව්ම ඉන්න තරුණ පරපුරට තමන්ෙග් කුසලතාවන් දියුණු කර ගන්න, තමන්ෙග් රසඥතාවන් දියුණු කර ගන්න, තමන්ෙග් නිර්මාණකරණය දියුණු කර ගන්න ෙකොළඹට විතරක් සීමා ෙවලා තිබුණු ජාතික ෙයෞවන නාටɕ උෙළල අද ගමට රැෙගන ගිහින් තිෙබනවාය කියන එක මම ඉතාම නිහතමානී ආඩම්බරෙයන් ෙම් සභාවට මතක් කරන්නට ඕනෑ.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, අෙප් රෙට් ජාතික කීඩාව තමයි ෙවොලිෙබෝල් කීඩාව. ෙවොලිෙබෝල් කීඩාව නංවන්න ෙයෞවන සමාජ සවිබල කරන්නට ෙයෞවන සමාජවලට අවශɕ භාණ්ඩ ලබා ෙදමින් ෙවොලිෙබෝල් කීඩා පිට්ටනි හාරදහසක් නිර්මාණය කිරීෙම් වැඩසටහන 2007 වර්ෂෙය්දී අපි ආරම්භ කරනු ලැබුවා. ඒ වාෙග්ම ඕනෑම ෙද්ශපාලන පක්ෂයක තරුණයකුට ෙද්ශපාලනය ගැන උනන්දුවක් තිෙබන තරුණයන්ට ඒ සඳහා අවශɕ නɕායාත්මක දැනුම ලබා ෙගන ඒ සඳහා අවශɕ කරන නායකත්ව දැනුම ලබා ගැනීම සඳහා ෙද්ශපාලන ශිල්ප ආයතනය ජාතියට දායාද කරන්නට 2008 වර්ෂෙය්දී අපට හැකියාව ලැබුණා. ෙම් අලුත් වැඩසටහන් අපි ජාතික තරුණ ෙසේවා සභාව හරහායි පටන් ගත්ෙත්.
+
+2008 වර්ෂෙය්දී අපි අලුෙතන් පටන් ගත්ත වැඩසටහනක් තමයි ෙයොවුන් මාධɕ විදɕායතනය. මාධɕයට සම්බන්ධ වන තරුණයන්ට ඒ සඳහා අවශɕ ශිල්පීය දැනුම තාක්ෂණික දැනුම ලබා දීම සඳහා අපි ෙයොවුන් මාධɕ විදɕායතනය අලුතින් ආරම්භ කරනු ලැබුවා. ගරු නිෙයෝජɕ සභාපතිතුමනි, වɕවසායක ක්ෙෂේතය සඳහා උනන්දුවක් දක්වන තරුණ තරුණියන්ට අවශɕ වන්නා වූ දැනුම ලබා දීම සඳහා ශී ජයවර්ධනපුර විශ්වවිදɕාලය සමඟ එකතු ෙවමින් ජාතික වɕාපාර තාක්ෂණ පාසල 2008 වර්ෂෙය්දී ආරම්භ කරනු ලැබුවා. ගරු නිෙයෝජɕ සභාපතිතුමනි, අද ජාතික තරුණ ෙසේවා සභාෙව් මධɕස්ථාන තිහක් හරහා ජාතɕන්තරව පිළිගන්නා සහතික ලබා දීම සඳහා මුළු ලංකාව පුරාම ෙයෞවන ෙයෞවනියන් 12,000ක් වෘත්තීය පුහුණුවට ෙයොමු කර තිෙබනවා.
+
+2008 ෙදසැම්බර් 05 3319 3320
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, වැඩ බිමට හරියන විනයානුකූල තරුණ පරපුරක් නිර්මාණය කරන්න ෙයොවුන් ෙසේනාංක පටන් අරෙගන තිබුණත්, ඒ ෙයොවුන් ෙසේනාංකවලින් රැකියාගත කරන ලද එකම තරුණයකුෙග්වත් නමක් මට ෙම් අමාතɕාංශය බාර ගන්න ෙකොට ෙසොයා ගන්න බැරි වුණා. ෙයොවුන් ෙසේනාංකෙය් අධɕක්ෂකවරයාට -පියතිස්ස රණසිංහ මහතාට- ෙම් අවස්ථාෙව්දී මෙග් ස්තුතිය පුද කරනවා. ෙයොවුන් ෙසේනාංකෙයන් ෙම් අවුරුද්ෙද් ෙයෞවන ෙයෞවනියන් 18,000ක් අපි බිහි කරනු ලැබුවා. ඒ 18,000න් සියයට 75ක් රැකියාගත කරන ලද බව මා ඉතාම ෙගෞරවෙයන් කියා සිටිනවා. නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) ගරු අමාතɕතුමිය, ඔබතුමියෙග් කථාව අවසන් කරන්න. ගරු පවිතාෙද්වි වන්නිආරච්චි මහත්මිය
+
+(மாண்ᾗமிகு (திᾞமதி) பவித்திராேதவி வன்னிஆரச்சி) (The Hon. (Mrs.) Pavithra Devi Wanniarachchi) ගරු නිෙයෝජɕ සභාපතිතුමනි, තරුණයන්ට ෙමෙහම සලකන්න එපා. ඔබතුමාත් තරුණෙයක් ෙන්. මට තව මිනිත්තු පහක් ෙදන්න.
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) විනාඩි පහක් වැඩිෙයන් දීලා තිෙබනවා. ගරු පවිතාෙද්වි වන්නිආරච්චි මහත්මිය
+
+(மாண்ᾗமிகு (திᾞமதி) பவித்திராேதவி வன்னிஆரச்சி) (The Hon. (Mrs.) Pavithra Devi Wanniarachchi) ගරු නිෙයෝජɕ සභාපතිතුමනි, ඡන්දය ගන්ෙන් සවස පහට ෙන්. මට තව මිනිත්තු පහක් ෙදන්න. ඔබතුමා තරුණෙයක් ෙවලාත් එෙහම කරන්න එපා.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, මා ෙම් කාරණයත් කියන්නට ඕනෑ. 2008 වර්ෂෙය්දී අෙප් අමාතɕාංශයට භාණ්ඩාගාරෙයන් රුපියල් මිලියන 1,672ක් ලැබුණා. 2009 වර්ෂෙය්දී එය මිලියන 1,756ක් දක්වා වර්ධනය ෙවලා තිෙබනවා.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, ඒ වාෙග්ම ජාතික ෙයෞවන කීඩා උෙළල පාෙද්ශීය මට්ටමින් පවත්වලා, දිස්තික්ක මට්ටෙමන් පවත්වලා ඈත ගම්මානවල ඉන්න අෙප් ෙයෞවන ෙයෞවනියන්ට අවශɕ කීඩා පුහුණුව ලබා ෙදන්න අවශɕ තාක්ෂණික පුහුණුව ලබා ෙදන්න දිස්තික් සංචිත ඇති කිරීෙමන් පස්ෙසේ තමයි ලංකාෙව් පළමු වන වතාවට ෙයෞවන කීඩා උෙළල පවත්වන්නට අපට පුළුවන්කම ලැබුෙණ්.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, මට කථා කළ යුතු ෙබොෙහෝ ෙද් තිබුණත් කථාව අවසන් කරන්නය කියා ඔබතුමා කියන නිසා ෙම් කාරණයත් සඳහන් කරමින් මෙග් කථාව අවසන් කරන්නට බලාෙපොෙරොත්තු ෙවනවා. ෙම් කටයුතු කර ෙගන යන්නට මෙග් අමාතɕාංශෙය් ෙල්කම්තුමා මට ලබා ෙදන සුවිෙශේෂී සහෙයෝගය මා ඉතා කෘතෙව්දීව ෙම් අවස්ථාෙව්දී මතක් කරනවා. ඒ වාෙග්ම තමන්ෙග් නිර්මාණශීලීත්වය තුළින් අලුත් ඵලදායී වැඩසටහන් ජාතියට දායාද කරන්නට ජාතික තරුණ ෙසේවා සභාෙව් සභාපතිතුමා -භාෂ්වර ෙසේනක ගුණරත්න මැතිතුමා- ලබා ෙදන දායකත්වයත් මා ෙම් අවස්ථාෙව්දී ඉතා කෘතෙව්දීව සිහිපත් කරනවා. ඒ වාෙග්ම ෙයොවුන් ෙසේනාංකය ඇති කළා වූ ඒ පරිවර්තනය ඇති කරන්නට ෙයොවුන් ෙසේනාංකෙය් අධɕක්ෂතුමා ලබා දුන්නු දායකත්වය මා ඉතාම කෘතෙව්දීව සිහිපත් කරනවා; ෙමෙනහි කරනවා. ඒ වාෙග්ම ෙම් හැම කටයුත්තකදීම අමාතɕාංශෙය් සුළු ෙසේවකයාෙග් සිට අධɕක්ෂවරුන් දක්වා හැම පුද්ගලයකුම ලබා ෙදන සහෙයෝගය මා ෙමෙනහි ෙනොකළා නම් එය අඩුවක් ෙවනවා. අප ෙගන යන්නා වූ සාර්ථක වැඩසටහන් පිටුපස සිටින ඔවුනට අෙප් ෙගෞරවය මා පුද කරන්නට ඕනෑ.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, අෙප් රටට ජාතික සංවර්ධනයක්, චිර ස්ථීත සංවර්ධනයක් උදා කිරීම සඳහා ෙම් රෙට් තරුණ තරුණියන්, මානව සම්පත ෙයදවීෙම්දී ඔවුන් ඉතා නිර්මාණාත්මකව, ඉතා සියුම්ව ෙමෙහයවමින්, ඔවුන්ෙග් දැනුම හා ආකල්ප, ගුණාංග වැඩිදියුණු කරමින්, ඔවුන්ෙග් කුසලතා, හැකියාවන් ඔප් නංවාලමින් ජාතික සංවර්ධන කියාවලිෙය් නɕාය පතෙය් ජයගාහී ෙකොටස්කරුවන් බවට ෙම් රෙට් තරුණ පරපුර පත් කිරීම සඳහා අෙප් අමාතɕාංශය අද කටයුතු කරෙගන යනවා. ගරු නිෙයෝජɕ සභාපතිතුමනි, උතුරයි, නැ ෙඟනහිරයි, දකුණයි, බටහිරයි කියන හතර ෙකොන ජය ගනිමින් අෙප් රණ විරුවන් ජය ෙඝෝෂා නංවන ෙම් අවස්ථාෙව්දී, ෙම් මාතෘ භූමිෙය් හැම බිම් අඟලක්ම නිදහස් කර ගන්න අතිගරු ජනාධිපතිතුමා නායකත්වය ලබා ෙදන ෙම් අවස්ථාෙව්දී මහා ජයගහණෙයන් පසුව බිහි වන අලුත් ශී ලංකාෙව් ඇති වන ඒ මහා සංවර්ධන සංගාමය ෙවනුෙවන් නිර්මාණශීලි, ඉතා හරවත්, බල සම්පන්න, ජව සම්පන්න තරුණ පරපුරක් දායක කිරීම සඳහා, අෙප් මානව මානවිකාවන් ඒ ෙවනුෙවන් සවිබල ගැන්වීම සඳහා, ෙගොඩ නැඟීම සඳහා ඔබ සියලු ෙදනාෙග්ම සහෙයෝගය ලබා ෙදන්නය කියා ඉල්ලා සිටිමින් මා නිහඬ ෙවනවා. ෙබොෙහොම ස්තුතියි.
+
+[අ.භා. 4.31] ගරු එම්. ෙජෝශප් මයිකල් ෙපෙර්රා මහතා (மாண்ᾗமிகு எம். ேஜாசப் ைமக்கல் ெபேரரா) (The Hon. M. Joseph Michael Perera) ගරු නිෙයෝජɕ සභාපතිතුමනි, අමාතɕාංශ විසිඑකක වැය ශීර්ෂ පුළුල් ෙලස සාකච්ඡා කරලා ඒ වාර්තාව ෙම් ගරු සභාවට ඉදිරිපත් කර තිෙබන අවස්ථාෙව් එයිනුත්, ඒ වාෙග්ම පාර්ලිෙම්න්තුෙව් ෙම් විවාදෙය්දී ෙහළිදරවු වූ කරුණු අනුවත්, ෙපොදු වɕාපාර පිළිබඳ කාරක සභාෙවන් සහ රජෙය් ගිණුම් පිළිබඳ කාරක සභාෙවන් ෙහළි වී තිෙබන කරුණු අනුවත් අද අපට පකාශයක් කරන්න සිද්ධ ෙවලා තිෙබනවා. එක්සත් ජාතික පක්ෂය ෙම් සටන කඩාකප්පල් කරන්න විවිධ මාර්ගවලින් උත්සාහ කරනවාය කියා ෙමහිදී වැරැදි අර්ථ කථන කිහිපයක් දුන්නා. පළමුෙවන්ම ඒ ගැන කියන්න ඕනෑ. අෙප් ගරු ලක්ෂ්මන් ෙසෙනවිරත්න මන්තීතුමා පක්ෂය ෙවනුෙවන් ෙබොෙහොම පැහැදිලිව කිව්වා "යුද්ධය ඉදිරියට කර ෙගන යන ෙලසට තමයි අප ඉල්ලන්ෙන්" කියා. එහි කිසි ෙවනසක් නැති බව මා පැහැදිලිව තමුන්නාන්ෙසේලාට පකාශ කරන්න කැමැතියි. තස්තවාදය මුලින් උපුටා දමන්නට එක්සත් ජාතික පක්ෂෙය් සම්පූර්ණ සහෙයෝගය ෙම් රෙට් හමුදාවලට ලබා ෙදනවාය කියන පතිඥාව පක්ෂය ෙවනුෙවන් මා නැවත වරක් ෙදන්න කැමැතියි. ඒ වාෙග්ම මා ෙම් සුළු කථාව කරන ෙවලාෙව් මහාචාර්ය ජී.එල්. පීරිස් ඇමතිතුමන් ෙම් ස්ථානෙය් සිටීම ඉතාම වැදගත්ය කියායි මා හිතන්ෙන්. ගරු ඇමතිතුමනි, අපි පවෘත්ති පතවලින් දුටුවා, hedging ගිවිසුම පිළිබඳව තමුන්නාන්ෙසේ කියා තිෙබනවා, "එය කැබිනට් එකට ආෙව් නැහැ" කියා. ගරු ඇමතිතුමනි, අපි ඔබතුමා විශ්වාස කරනවා. ඒ වාෙග්ම ෆවුසි ඇමතිතුමාත් පාර්ලිෙම්න්තුෙව්දී පකාශයක් කරමින් කිව්වා, මහ බැංකුෙව් අධිපතිතුමාෙග් පැමිණීම තුළින් ෙම්ක කැබිනට් මණ්ඩලෙය් කථා කරලා ඉතා ඉක්මනින් කියාත්මක කරන ෙලසට එතුමාට උපෙදස් දුන්නාය කියා. ෙමතැනින් ඇති වන විෙශේෂ පශ්නයක් තිෙබනවා. ජී.එල්. පීරිස් ඇමතිතුමා අසතɕ පකාශයක් කළාද? එෙහම නැත්නම් ෆවුසි ඇමතිතුමා අසතɕ පකාශයක් කළාද? එෙහමත් නැත්නම් ෙම් ෙදෙදනාටම ෙහොරා කවුරුත් දන්ෙන් නැති පතිකාවක් කැබිනට් එකට ආවාද? ෙම්ක අපට විශාල පශ්නයක්. ෙම් නිසා ෙම් රෙට් ජනතාවට ඇති වුණු පාඩුව අතිවිශාලයි. එම නිසා ගරු නිෙයෝජɕ සභාපතිතුමනි, අද ෙම් යුද්ධයට අපි ස හෙයෝගය ෙදන අතර, ෙම් රෙට් ඇති ෙව් ෙගන යන මහා මං ෙකොල්ලය, දූෂණය ෙම් රටට ෙහළි කිරීම සඳහා අවස්ථාවක් ලබා ගන්නට අෙප් පක්ෂය ෙවනුෙවන් අද ෙම් ෙයෝජනාව ගරු මහ ෙල්කම්තුමා අතට භාර ෙදනවා. ෙමය දින නියමයක් නැති ෙයෝජනාවක් විධියට නɕාය පතයට ඇතුළත් කරන්නටය කියා ඉල්ලමින් මෙග් වචන ස්වල්පය ෙමයින් අවසන් කරනවා.
+
+පාර්ලිෙම්න්තුව 3321 3322
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) ෙබොෙහොම ස්තුතියි. ගරු පී. චන්දෙසේකරන් ඇමතිතුමා. එතුමා නැහැ.
+
+ඊළඟට ගරු සභානායකතුමා. [අ.භා. 4.34] ගරු නිමල් සිරිපාල ද සිල්වා මහතා (ෙසෞඛɕ ආරක්ෂණ හා ෙපෝෂණ අමාතɕතුමා සහ පාර්ලිෙම්න්තුෙව් සභානායකතුමා)
+
+(மாண்ᾗமிகு நிமல் சிறிபால த சில்வா - சுகாதார நலத்ᾐைற, ேபாசைண அைமச்சᾞம் பாராᾦமன்றச் சைப ᾙதல்வᾞம்)
+
+(The Hon. Nimal Siripala de Silva - Minister of Healthcare and Nutrition and Leader of the House of Parliament)
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, අමාතɕංශ 21ක වැය ශීර්ෂයන් ෙවනුෙවන් මෙග් සභාපතිත්වෙයන් පවත්වන ලද ඒ විෙශේෂ කාරක සභාව මඟින් ඉදිරිපත් කරන ලද වාර්තාව සලකා බැලීම සඳහා අද දවස පුරාම විවාදයක් පැවැත් වුණා. ඒ විවාදෙය්දී අෙප් ආණ්ඩු පක්ෂෙය් ෙමන්ම විපක්ෂෙය් සියලු ෙදනාටම තමන්ෙග් අදහස් පකාශ කිරීම සඳහා ඉතා සීමිත කාල සීමාවක් ලැබුණත් එම කාරක සභාව තුළදී ඒ ඒ වැය ශීර්ෂයන් පිළිබඳව දීර්ඝ වශෙයන් සාකච්ඡා කරන්නට ෙයදුණු බව මා පකාශ කරන්නට කැමතියි. එම නිසා ෙමහිදී අදහස් දැක්වීම අඩු වුණත් එම කාරක සභාව තුළ දී පධාන කාරණාවන් පිළිබඳව සුවිෙශේෂි අදහස් දැක්වීම් රාශියක්ම සිදු කළා. ඒ නිසා එහි වැඩ කටයුතු එක්තරා ආකාරයකට ඉතාම ඵලදායී ෙලස අවසන් වුණාය කියා අප විශ්වාස කරනවා. එෙසේ ඵලදායී ෙලස අවසන් වීෙමන් අනතුරුව අද දින කරන ලද ෙම් සාකච්ඡාව තුළත් ඉදිරිපත් කරන ලද වැදගත් අදහස් පිළිබඳව අෙප් අමාතɕතුමන්ලා සැලකිල්ලට අර ෙගන එන වර්ෂය තුළදී ෙම් වැඩ කටයුතු වඩාත් කාර්යක්ෂම අන්දමින් කිරීමට අධිෂ්ඨාන කර ෙගන සිටින බව පකාශ කරන්නට කැමතියි.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, ෙමම අමාතɕාංශ සඳහා මුදල් ලබා දුන්නත් ඒවා නිසි කලට ෙනොලැබීම හා ඒවා පාවිච්චි ෙනොකිරීම පිළිබඳව ෙමම විවාදෙය් දී විපක්ෂෙය් මන්තීතුමන්ලා විසින් පශ්න රාශියක් මතු කළා. ගරු නිෙයෝජɕ සභාපතිතුමනි, තස්තවාදය මුලිනුපුටා දැමීම සඳහා කර ෙගන යන වැඩ පිළිෙවළ ඔබතුමා දන්නවා. ඒ අනුව අපට අනෙප්ක්ෂිත වියදම් රාශියක් ආරක්ෂක වියදම් ෙවනුෙවන් ෙයොද වන්නට සිදු වුණා. ඒක කාටත් රහසක් ෙනොෙවයි. දැන් ෙගදරක ෙම් ෙම් ආකාරෙයන් වියදම් කරන්නට ඕනෑය කියා සැලසුම් කර තිෙබන අවස්ථාවක ෙකනකුට හදිසි අසනීපයක් හැදුණා නම්, ඔහුව ෙරෝහල් ගත කරන්නට සිදු වුණා නම් අපි අර ෙවනත් කාර්යයන් සඳහා තිෙබන මුදල් වුවත් ඒ සඳහා ඒ අවස්ථාෙව් දී පාවිච්චි කරනවා. ඒක සාමානɕ සම්පදායයක්. එම නිසා අෙප් ජාතික පමුඛතාව පිළිබඳ හැඟීමකින් යුතුව අපට ඒ වැඩ කටයුතු කරන්නට සිදු වුණා. ඒ අවස්ථාවලදී සමහර අංශවලින් මුදල් ගලා ඒෙම් යම් යම් අඩු පාඩුකම් වන්නට ඇති. ඒක ලංකාෙව් විතරක් ෙනොෙවයි. ෙලෝකෙය් හැම තැනකම සිද්ධ ෙවනවා. ෙකොයිම රජයක් තුළින්වත් සමහර විට අවුරුද්ද මුලදී ෙදන ඒ මුදල් පමාණය සියල්ලම ඒ ආකාරෙයන් වියදම් කිරීමට පුළුවන් වන්ෙන්ත් නැහැ. ඒ ආකාරෙයන් මුදල් ගලා එන්ෙන්ත් නැහැ. නමුත් සමස්තයක් වශෙයන් ෙම් රෙට් සංවර්ධනය ගැන බැලුෙවොත් අද ගාමීය සංවර්ධනය සහ මහා පරිමාණෙය් යටිතල පහසුකම් විශාල පමාණයක් අෙප් රජය විසින් ඉෂ්ට කර තිෙබනවා.
+
+එම නිසා ෙම් ඉලක්කම්වලින් තිෙබන ඒ පමාණයන්ට වඩා ගුණාත්මක ෙලස රට තුළ සංවර්ධනය සඳහා කර තිෙබන වැඩ පිළිෙවළ පිළිබඳව අප සිතන්නට ඕනෑ. එම නිසා ෙම් කාරණය පිළිබඳව අපි විෙශේෂ අවධානයක් ෙයොමු කරන්නට ඕනෑ බව මා කියන්නට කැමතියි. රජයක් හැටියට අපට සතුටට පත් වන්නට පුළුවන් වැඩ පිළිෙවළක් අපි කර තිෙබනවා. ඒ වාෙග්ම ෙලෝක
+
+ආර්ථික අවපාතය යටෙත් ෙවනත් රටවල ආර්ථිකයන් කඩා වැෙටද්දී, විරැකියාව සඳහා ෙයොමු වී තිබියදී ශී ලංකාව තුළ ඒ තත්ත්වෙයන් මුදා ගැනීමට; අපට ඒ "ෙෂොක්" එෙකන් ෙබ්ෙරන්නට හැකි වුෙණ් මහින්ද රාජපක්ෂ ජනාධිපතිතුමාෙග් රජය විසින් ෙගන යන ලද ඒ සාර්ථක ආර්ථික වැඩ පිළිෙවළ නිසයි. ඒ නිසා තමයි අපට පුළුවන් වුෙණ්, ෙවනත් රටවලට සිදු වූ බලපෑම් ඒ ආකාරෙයන්ම අෙප් රටට සිද්ධ වන්ෙන් නැතිව ෙබොෙහෝ දුරට ෙබ්රා ගැනීමට. ආර්ථික අභිෙයෝගවලට මුහුණ පාන්න කාටත් සිදු වනවා. ඒෙකන් ගැලෙවන්නට පුළුවන්කමක් නැහැ. අපි ෙකොපමණ ලස්සණට ෙගයක් හදා තිබුණත් ගරු නිෙයෝජɕ සභාපතිතුමනි, සුනාමියක් ආෙවොත්, සුළි සුළඟක් ආෙවොත් ඒෙකන් ඇති වන හානිය අපට වළක්වා ගන්න පුළුවන්කමක් නැහැ. ඒ වාෙග් තමයි, ෙලෝක ආර්ථික අවපාතයක් ඇති ෙවලා ෙම් කටයුතු ෙමෙහම ෙකෙරන ෙකොට, එවැනි ආර්ථික සුනාමියක් ඇති වන ෙකොට ඒෙකන් අපට විතරක් ෙබ්ෙරන්න පුළුවන්කමක් නැහැ. නමුත් අපි ශක්තිමත් ෙලස අෙප් ආර්ථික වැඩ පිළිෙවළ හදා තිබුණු නිසා තමයි, ඒ ඉදිරිෙය් අපට ෙනොසැලී ඉන්නට පුළුවන් වුෙණ්.
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, ඒ බව පකාශ කරමින් ෙම් විවාදයට සහභාගි වූ සියලුම මැති ඇමතිතුමන්ලා හා විපක්ෂෙය් මන්තීතුමන්ලා සියලු ෙදනාටම ස්තුති කරමින් මෙග් කථාව අවසන් කරනවා. ෙබොෙහොම ස්තුතියි.
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) ෙබොෙහොම ස්තුතියි, ගරු සභානායකතුමනි. “101 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 7,02,37,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+101 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 101, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 7,02,37,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 101, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, “That the sum of Rs. 70,237,000 for Head 101, Programme 01, Recurrent Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 101, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩ සටහන - මූලධන වියදම,
+
+රු. 20,57,15,000 நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 20,57,15,000 Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 205,715,000
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva)
+
+ගරු නිෙයෝජɕ සභාපතිතුමනි, අගාමාතɕතුමා, අභɕන්තර පරිපාලන අමාතɕතුමා සහ රාජɕ ආරක්ෂක, මහජන ආරක්ෂාව, නීතිය හා සාමය පිළිබඳ නිෙයෝජɕ අමාතɕතුමා ෙවනුෙවන් මා විසර්ජන පනත් ෙකටුම්පත, 2009 කාරක සභා අවස්ථාෙව්දී 101 වන වැය ශීර්ෂෙය් ෙමෙහයුම් වැඩසටහන 01 යටෙත් පහත සඳහන් සංෙශෝධනය ඉදිරිපත් කරනවා.
+
+2008 ෙදසැම්බර් 05 3323 3324
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) ඒ පිළිබඳව සභාෙව් එකඟත්වය?
+
+මන්තීවරු (மாண்ᾗமிகு உᾠப்பினர்கள்) (Hon. Members) Aye. මතු පළවන ෙයෝජනාව සභා සම්මත විය: தீர்மானிக்கப்பட்டᾐ. Resolved:
+
+“වැඩසටහන 01 - ෙමෙහයුම් වැඩසටහන-මූලධන වියදම්
+
+සඳහා පතිපාදනය රු. 30,57,15,000 දක්වා වැඩි කිරීෙමන් සංෙශෝධනය කළ යුතු ය. (ආගමික කටයුතු හා සදාචාර වර්ධන
+
+අමාතɕතුමාෙග් ෙමම සංෙශෝධනෙය් අභිපාය වනුෙය් ෙමම වැඩසටහෙන් මූලධන වියදම් සඳහා පතිපාදනය රු. 10,00,00,000කින් වැඩි කිරීමය). වɕාපෘතිය 02 - අමාතɕාංශ පරිපාලනය හා ආයතන ෙසේවා
+
+වɕාපෘතිය සම්බන්ධෙයන් පහත සඳහන් පරිදි මූලධන වියදම් වැඩි කළ යුතු ය. වැය විෂයය 2502 - ෙවනත් ආෙයෝජන අයිතමය 12-මතට තිත සහ කිරි ගවයින්
+
+ආරක්ෂා කිරීම සඳහා රුපියල් 10,00,00,000” “101 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 30,57,15,000ක වැඩි කරන ලද මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+101 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සංෙශෝධිකාරෙයන් උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 101, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான அதிகாிக்கப்பட்ட ᾟபா 30,57,15,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 101, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ திᾞத்தப்பட்டவாᾠ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, “That the increased sum of Rs. 305,715,000 for Head 101, Programme 01, Capital Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 101, Programme 01, Capital Expenditure, as amended, ordered to stand part of the Schedule.
+
+201 වන ශීර්ෂය.- ෙබෞද්ධ කටයුතු ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 2,54,55,000 “201 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 2,54,55,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය” යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+201 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 9,57,80,000
+
+“201 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 9,57,80,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය” යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+201 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 37,46,55,000 “201 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 37,46,55,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+201 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+202 වන ශීර්ෂය.- මුස්ලිම් ආගමික හා සංස්කෘතික කටයුතු
+
+ෙදපාර්තෙම්න්තුව
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 3,54,65,000 “202 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 3,54,65,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය” යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+202 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 8,06,75,000
+
+“202 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 8,06,75,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය” යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+202 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+203 වන ශීර්ෂය.- කිස්තියානි ආගමික කටයුතු ෙදපාර්තෙම්න්තුව
+
+02 වන වැඩසටහන. - සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 5,51,65,000
+
+''203 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 5,51,65,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+203 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන. - සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 1,38,40,000 ''203 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 1,38,40,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+203 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+204 වන ශීර්ෂය.- හින්දු ආගමික හා සංස්කෘතික කටයුතු
+
+ෙදපාර්තෙම්න්තුව
+
+02 වන වැඩසටහන. - සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 5,59,95,000 ''204 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 5,59,95,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+204 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන. - සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 6,56,05,000 ''204 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 6,56,05,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+204 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+පාර්ලිෙම්න්තුව 3325 3326
+
+205 වන ශීර්ෂය.- මහා භාරකාර ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන. - ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 2,98,75,000 ''205 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 2,98,75,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+205 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන. - ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 10,40,000 ''205 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 10,40,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+205 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+தைலப்ᾗ 201.- ᾗத்த விவகாரங்கள் திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ்
+
+ெசலᾫ ᾟபா 2,54,55,000 “தைலப்ᾗ 201, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 2,54,55,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 201, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 9,57,80,000 “தைலப்ᾗ 201, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 9,57,80,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 201, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்தி ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ்
+
+ெசலᾫ ᾟபா 37,46,55,000 “தைலப்ᾗ 201, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 37,46,55,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 201, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 202.- ᾙஸ்ᾢம் சமய, கலாசார அᾤவல்கள்
+
+திைணக்களம் நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்தி ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ்
+
+ெசலᾫ ᾟபா 3,54,65,000
+
+“தைலப்ᾗ 202, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 3,54,65,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 202, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்தி ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ
+
+ᾟபா 8,06,75,000 “தைலப்ᾗ 202, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 8,06,75,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 202, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 203.- கிறிஸ்தவ சமய அᾤவல்கள் திைணக்களம் நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்தி ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ்
+
+ெசலᾫ ᾟபா 5,51,65,000 “தைலப்ᾗ 203, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 5,51,65,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 203, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்தி ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ
+
+ᾟபா 1,38,40,000 “தைலப்ᾗ 203 நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 1,38,40,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 203, நிகழ்ச்சித் திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 204.- இந்ᾐ சமய, கலாசார அᾤவல்கல் திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ்
+
+ெசலᾫ ᾟபா 5,59,95,000 “தைலப்ᾗ 204, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 5,59,95,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 204, நிகழ்ச்சித் திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 6,56,05,000 “தைலப்ᾗ 204, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 6,56,05,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 204, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 205.- ெபாᾐ நம்பிக்ைகப் ெபாᾠப்பளர் திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ்
+
+ெசலᾫ ᾟபா 2,98,75,000 “தைலப்ᾗ 205, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 2,98,75,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 205, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 10,40,000 “தைலப்ᾗ 205, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 10,40,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 205, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+2008 ෙදසැම්බර් 05 3327 3328
+
+HEAD 201. - DEPARTMENT OF BUDDHIST AFFAIRS Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 25,455,000 Question, "That the sum of Rs. 25,455,000 for Head 201, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 201, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs. 95,780,000 Question, "That the sum of Rs. 95,780,000 for Head 201, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 201, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Recurrent Expenditure, Rs. 374,655,000 Question, "That the sum of Rs.374,655,000 for Head 201, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 201, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. HEAD 202. - DEPARTMENT OF MUSLIM RELIGIOUS AND CULTURAL AFFAIRS Programme 02. - Development Activities - Recurrent Expenditure, Rs.35,465,000 Question, "That the sum of Rs.35,465,000 for Head 202, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 202, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 80,675,000 Question, "That the sum of Rs.80,675,000 for Head 202, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 202, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. HEAD 203. - DEPARTMENT OF CHRISTIAN RELIGIOUS AND CULTURAL AFFAIRS Programme 02. - Development Activities - Recurrent Expenditure, Rs.55,165,000 Question, "That the sum of Rs.55,165,000 for Head 203, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 203, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 13,840,000 Question, "That the sum of Rs.13,840,000 for Head 203, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 203, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+HEAD 204. - DEPARTMENT OF HINDU RELIGIOUS AND CULTURAL AFFAIRS Programme 02. - Development Activities - Recurrent Expenditure, Rs.55,995,000 Question, "That the sum of Rs.55,995,000 for Head 204, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 204, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 65,605,000 Question, "That the sum of Rs.65,605,000 for Head 202, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 204, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+HEAD 205. - DEPARTMENT OF PUBLIC TRUSTEE Programme 01. - Operational Activities - Recurrent Expenditure, Rs.29,875,000 Question, "That the sum of Rs.29,875,000 for Head 205, Programme 01, Recurret Expenditure, be inserted in the Schedule" put and agreed to. Head 205, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure, Rs. 1,040,000 Question, "That the sum of Rs.1,040,000 for Head 205, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 205, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+''142 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 12,86,15,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+142 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 78,75,000 ''142 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 78,75,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+142 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන. - ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 44,68,15,000 ''142 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 44,68,15,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+142 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+පාර්ලිෙම්න්තුව 3329 3330
+
+“தைலப்ᾗ 142, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 12,86,15,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 142, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 78,75,000 “தைலப்ᾗ 142, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 78,75,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 142, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்தி ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 44,68,15,000 “தைலப்ᾗ 142, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 44,68,15,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 142, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, "That the increased sum of Rs. 128,615,000, for Head 142, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 142, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01.– Operational Activities, Capital Expenditure, Rs. 7,875,000 Question, "That the sum of Rs. 7,875,000 for Head 142, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 142, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02.– Development Activities, Recurrent Expenditure, Rs. 446,815,000 Question, "That the sum of Rs. 446,815,000 for Head 142, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 142, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+02 වන වැඩසටහන.– සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු.150,95,75,000 நிகழ்ச்சித் திட்டம் 02. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 195,95,75,000 Programme 02.– Development Activities, Capital Expenditure,
+
+Rs. 1,509,575,000
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ගරු නිෙයෝජɕ සභාපතිතුමනි, අගාමාතɕතුමා, අභɕන්තර පරිපාලන අමාතɕතුමා සහ රාජɕ ආරක්ෂක, මහජන ආරක්ෂාව, නීතිය හා සාමය පිළිබඳ නිෙයෝජɕ අමාතɕතුමා ෙවනුෙවන් මා විසර්ජන පනත් ෙකටුම්පත, 2009 කාරක සභා අවස්ථාෙව් දී 142 වන වැය ශීර්ෂෙය් සංවර්ධන වැඩසටහන 02 යටෙත් පහත සඳහන් සංෙශෝධන ඉදිරිපත් කරනවා.
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதித் தவிசாளர் அவர்கள்) (The Deputy Chairman) ඒ පිළිබඳව සභාෙව් එකඟත්වය? ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர்கள்) (An hon. Member)
+
+Aye.
+
+මතු පළවන ෙයෝජනාව සභා සම්මත විය. தீர்மானிக்கப்பட்டᾐ. Resolved: වැඩ සටහන 02.- සංවර්ධන වැඩසටහන - මූලධන වියදම් සඳහා පතිපාදනය රුපියල් 155,95,75,000 දක්වා වැඩි කිරීෙමන් සංෙශෝධනය කළ යුතුය. (සංස්කෘතික කටයුතු හා ජාතික උරුමයන් පිළිබඳ අමාතɕතුමාෙග් ෙමම සංෙශෝධනෙය් අභිපාය වනුෙය් ෙමම වැඩසටහෙන් මූලධන වියදම් සඳහා පතිපාදන රු. 5,00,00,000කින් වැඩි කිරීමය.)
+
+වɕාපෘතිය 03 - සමාජ සංස්කෘතිය ඒකාබද්ධතා කටයුතු කිරීම උප වɕාපෘතිය 28 - ආදිවාසී ගම්මාන සංරක්ෂණය වැය විෂයය 2502 - ෙවනත් ආෙයෝජන සඳහා රු. 5,00,00,000 ''142 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 155,95,75,000ක වැඩි කරන ලද මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+142 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සංෙශෝධිතාකාරෙයන් උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 142, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான அதிகாிக்கப்பட்ட ᾟபா 155,95,75,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 142, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, "That the increased sum of Rs. 1,559,575,000 for Head 142, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 142, Programme 02, Capital Expenditure, as amended ordered to stand part of the Schedule.
+
+206 වන ශීර්ෂය .- සංස්කෘතික කටයුතු ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු.4,80,30,000
+
+''206 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 4,80,30,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+206 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම, රු. 20,20,000
+
+''206 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 20,20,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+206 වන ශීර්ෂෙයහි 01 වන වැඩ සටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු.16,74,45,000
+
+"206 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 16,74,45,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+206 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+2008 ෙදසැම්බර් 05 3331 3332
+
+02 වන වැඩ සටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 10,95,20,000
+
+''206 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 10,95,20,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+206 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+207 වන ශීර්ෂය .- පුරා විදɕා ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු.3,52,25,000
+
+''207 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 3,52,25,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+207 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම, රු. 35,25,000
+
+''207 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 35,25,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+207 වන ශීර්ෂෙයහි 01 වන වැඩ සටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 29,76,55,000
+
+''207 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 29,76,55,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+207 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 4,27,00,000 ''207 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 4,27,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+207 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+208 වන ශීර්ෂය.- ජාතික ෙකෞතුකාගාර ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 1,62,89,000
+
+''208 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 1,62,89,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+208 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම, රු.10,10,000
+
+''208 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 10,10,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+208 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 7,00,27,000
+
+“208 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 7,00,27,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+208 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 3,61,50,000
+
+''208 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 3,61,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+208 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+209 වන ශීර්ෂය.- ජාතික ෙල්ඛණාරක්ෂණ ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 1,92,15,000
+
+''209 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 1,92,15,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+209 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 48,75,000
+
+''209 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 48,75,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+209 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 2,60,68,000
+
+''209 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 2,60,68,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+209 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මුලධන වියදම,
+
+රු. 7,98,50,000
+
+''209 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 7,98,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+209 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+පාර්ලිෙම්න්තුව
+
+தைலப்ᾗ 206. - கலாசார அᾤவல்கள் திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 4,80,30,000 “தைலப்ᾗ 206, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 4,80,30,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 206, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+ᾚலதனச் ெசலᾫ ᾟபா 20,20,000 “தைலப்ᾗ 206, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 20,20,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 206, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 16,74,45,000 “தைலப்ᾗ 206, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 16,74,45,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 206, நிகழ்ச்சித் திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+ᾚலதனச் ெசலᾫ ᾟபா 10,95,20,000
+
+“தைலப்ᾗ 206, நிகழ்ச்சித் திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 10,95,20,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 206, நிகழ்ச்சித் திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 207. - ெதால்ெபாᾞளியல் திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 3,52,25,000
+
+“தைலப்ᾗ 207, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 3,52,25,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 207, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+ᾚலதனச் ெசலᾫ ᾟபா 35,25,000
+
+“தைலப்ᾗ 207, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 35,25,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 207, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 29,76,55,000
+
+“தைலப்ᾗ 207, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 29,76,55,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 207, நிகழ்ச்சித் திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+ᾚலதனச் ெசலᾫ ᾟபா 4,27,00,000
+
+“தைலப்ᾗ 207, நிகழ்ச்சித் திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 4,27,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 207, நிகழ்ச்சித் திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 208. - ேதசிய ᾓதனசாைலகள் திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 1,62,89,000
+
+“தைலப்ᾗ 208, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 1,62,89,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 208, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+ᾚலதனச் ெசலᾫ ᾟபா 10,10,000
+
+“தைலப்ᾗ 208, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 10,10,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 208, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 7,00,27,000
+
+“தைலப்ᾗ 208, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 7,00,27,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 208, நிகழ்ச்சித் திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+ᾚலதனச் ெசலᾫ ᾟபா 3,61,50,000
+
+“தைலப்ᾗ 208, நிகழ்ச்சித் திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 3,61,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 208, நிகழ்ச்சித் திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 209. - ேதசிய சுவᾊக்கூடத் திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 1,92,15,000 “தைலப்ᾗ 209, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 1,92,15,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 209, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+ᾚலதனச் ெசலᾫ ᾟபா 48,75,000 “தைலப்ᾗ 209, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 48,75,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 209, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+3333 3334
+
+2008 ෙදසැම්බර් 05 3335 3336
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 2,60,68,000 “ தைலப்ᾗ 209, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 2,60,68,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 209, நிகழ்ச்சித் திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 7,98,50,000 “ தைலப்ᾗ 209, நிகழ்ச்சித் திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 7,98,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 209, நிகழ்ச்சித் திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. HEAD 206. - DEPARTMENT OF CULTURAL AFFAIRS Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 48,030,000 Question, "That the sum of Rs. 48,030,000 for Head 206, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 206, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs. 2,020,000 Question, "That the sum of Rs. 2,020,000 for Head 206, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 206, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Recurrent Expenditure, Rs. 167,445,000 Question, "That the sum of Rs. 167,445,000 for Head 206, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 206, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 109,520,000 Question, "That the sum of Rs. 109,520,000 for Head 206, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 206, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. HEAD 207. - DEPARTMENT OF ARCHAEOLOGY Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 35,225,000 Question, "That the sum of Rs. 35,225,000 for Head 207, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 207, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure, Rs. 3,525,000 Question, "That the sum of Rs. 3,525,000 for Head 207, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 207, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Recurrent Expenditure, Rs. 297,655,000 Question, "That the sum of Rs. 297,655,000 for Head 207, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 207, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 42,700,000 Question, "That the sum of Rs. 42,700,000 for Head 207, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 207, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. HEAD 208. - DEPARTMENT OF NATIONAL MUSEUM Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 16,289,000 Question, "That the sum of Rs. 16,289,000 for Head 208, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 208, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs. 1,010,000 Question, "That the sum of Rs. 1,010,000 for Head 208, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 208, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Recurrent Expenditure, Rs. 70,027,000 Question, "That the sum of Rs. 70,027,000 for Head 208, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 208, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 36,150,000 Question, "That the sum of Rs. 36,150,000 for Head 208, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 208, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. HEAD 209. - DEPARTMENT OF NATIONAL ARCHIVES Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 19,215,000 Question, "That the sum of Rs. 19,215,000 for Head 209, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 209, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. 8 - PL 003633 - (2009/01)
+
+පාර්ලිෙම්න්තුව 3337 3338
+
+Programme 01. - Operational Activities - Capital Expenditure, Rs. 4,875,000 Question, "That the sum of Rs. 4,875,000 for Head 209, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 209, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Recurrent Expenditure, Rs. 26,068,000 Question, "That the sum of Rs. 26,068,000 for Head 209, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 209, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 79,850,000 Question, "That the sum of Rs. 79,850,000 for Head 209, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 209, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. “163 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 6,95,45,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+163 වන ශීර්ෂෙයහි 01වන වැඩසටහන පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 39,50,000
+
+''163 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 39,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+163 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 51,15,00,000
+
+163 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 51,15,00.000ක මුදල උපෙල්ඛනයට ඇතුලත් කළ යුතුය යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+163 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 163, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 6,95,45,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 163, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 39,50,000
+
+“தைலப்ᾗ 163, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 39,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 163, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித்திட்டம் 02. - அபிவிᾞத்தி ெசயற்பாᾌகள்- ᾚலதனச்
+
+ெசலᾫ ᾟபா 51,15,00,000
+
+“தைலப்ᾗ 163, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 51,15,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 163, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, "That the sum of Rs. 69,545,000 for Head 163, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed
+
+to. Head 163, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 3,950,000
+
+Question, "That the sum of Rs. 3,950,000 for Head 163, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 163, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Capital Expenditure,
+
+Rs. 511,500,000
+
+Question, "That the sum of Rs. 511,500,000 for Head 163, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 163, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+“129 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 11,08,62,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+129 වන ශීර්ෂෙයහි 01වන වැඩසටහන. පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+01 0වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු.1,38,50,000
+
+“129 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 1,38,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+129 වන ශීර්ෂෙයහි 01වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු.148,37,50,000
+
+“129 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 148,37,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+129 වන ශීර්ෂෙයහි 02වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු.1,88,58,25,000
+
+“129 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 1,88,58,25,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+129 වන ශීර්ෂෙයහි 02වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+2008 ෙදසැම්බර් 05 3339 3340
+
+215 වන ශීර්ෂය.- කාර්මික අධɕාපන හා පුහුණු කිරීෙම්
+
+ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු.9,53,00,000
+
+“215 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 9,53,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+215 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම, රු.1,03,00,000
+
+“215 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 1,03,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+215 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු.72,28,00,000
+
+“215 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 72,28,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+215 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු.31,77,00,000
+
+“215 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 31,77,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+215 වන ශීර්ෂෙයහි 02වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 129, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 11,08,62,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 129, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 1,38,50,000
+
+“தைலப்ᾗ 129, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 1,38,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 129, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 148,37,50,000
+
+“தைலப்ᾗ 129, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 148,37,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 129, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 188,58,25,000
+
+“தைலப்ᾗ 129, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 188,58,25,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 129, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 215.- ெதரழிᾎட்பக் கல்வி மற்ᾠம் பயிற்சித்
+
+திைணக்களம்
+
+நிகழ்ச்சித்திட்டம் 01.- ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 9,53,00,000
+
+“தைலப்ᾗ 215, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 9,53,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 215, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 1,03,00,000
+
+“தைலப்ᾗ 215, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 1,03,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 215, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 72,28,00,000
+
+“தைலப்ᾗ 215, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 72,28,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 215, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 31,77,00,000
+
+“தைலப்ᾗ 215, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 31,77,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 215, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, “That the sum of Rs. 110,862,000 for Head 129, Programme 01, Recurrent Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 129, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 13,850,000 Question, “That the sum of Rs. 13,850,000 for Head 129, Programme 01, Capital Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 129, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Recurrent Expenditure,
+
+Rs. 1,483,750,000 Question, “That the sum of Rs. 1,483,750,000 for Head 129, Programme 02, Recurrent Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 129, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Capital Expenditure,
+
+Rs. 1,885,825,000 Question, “That the sum of Rs. 1,885,825,000 for Head 129, Programme 02, Capital Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 129, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+පාර්ලිෙම්න්තුව 3341 3342
+
+HEAD 215 - DEPARTMENT OF TECHNICAL EDUCATION AND TRAINING Programme 01 - Operational Activities - Recurrent Expenditure, Rs. 95,300,000 Question, “That the sum of Rs. 95,300,000 for Head 215, Programme 01, Recurrent Expenditure, be inserted in the Schedule” put and agreed to. Head 215, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs. 10,300,000 Question, “That the sum of Rs. 10,300,000 for Head 215, Programme 01, Capital Expenditure, be inserted in the Schedule” put and agreed to. Head 215, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Recurrent Expenditure, Rs. 722,800,000 Question, “That the sum of Rs. 722,800,000 for Head 215, Programme 02, Recurrent Expenditure, be inserted in the Schedule” put and agreed to. Head 215, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 317,700,000 Question, “That the sum of Rs. 317,700,000 for Head 215, Programme 02, Capital Expenditure, be inserted in the Schedule” put and agreed to. Head 215, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. ''110 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 32,72,78,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+110 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 21,19,00,000 ''110 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 21,19,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+110 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන. - සංවර්ධන වැඩසටහන - මුලධන වියදම,
+
+රු. 5,01,00,000 ''110 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මුලධන වියදම සඳහා රු. 5,01,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+110 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මුලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+228 වන ශීර්ෂය - අධිකරණ පරිපාලනය
+
+01 වන වැඩසටහන. - ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 250,41,70,000
+
+''228 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 250,,41,70,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+228 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන. - ෙමෙහයුම් වැඩසටහන - මුලධන වියදම,
+
+රු. 101,74,10,000 ''228 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 101,74,10,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+228 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+229 වන ශීර්ෂය - නීතිපති ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 38,09,10,000 ''229 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු.38,09,10,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+229 වන ශීර්ෂෙයහි 01 වන වැඩ සටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මුලධන වියදම,
+
+රු. 3,35,00,000 ''229 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු.3,35,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+229 වන ශීර්ෂෙයහි 01 වන වැඩ සටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+230 වන ශීර්ෂෙයහි - නීති ෙකටුම්පත් සම්පාදක
+
+ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 4,60,10,000 ''230 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු.4,60,10,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+230 වන ශීර්ෂෙයහි 01 වන වැඩ සටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මුලධන වියදම,
+
+රු. 6,65,00,000 ''230 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු.5,66,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+230 වන ශීර්ෂෙයහි 01 වන වැඩ සටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+231 වන ශීර්ෂය.- ණය සහනදායක මණ්ඩලීය ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු.58,06,000
+
+“231 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 58,06,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+231 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම, රු.1,75,000
+
+“231 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 1,75,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+231 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+2008 ෙදසැම්බර් 05 3343 3344
+
+232 වන ශීර්ෂය.- බන්ධනාගාර ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු.283,17,00,000
+
+“232 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 283,17,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+232 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු.27,82,00,000
+
+“232 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 27,82,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+232 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+233 වන ශීර්ෂය.- රජෙය් රස පරීක්ෂක ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු.6,91,45,000
+
+“233 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 6,91,45,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+233 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 25,67,00,000
+
+“233 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 25,67,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+233 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+234 වන ශීර්ෂය.- ෙශේෂ්ඨාධිකරණෙය් ෙරජිස්ටාර්
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 7,11,06,000
+
+“234 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 7,11,06,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+234 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 1,08,50,000
+
+“234 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 1,08,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+234 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+235 වන ශීර්ෂය.- නීති ෙකොමිෂන් සභා ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 1,09,65,000
+
+“235 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 1,09,65,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+235 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 38,00,000
+
+“235 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 38,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+235 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 110, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 32,72,78,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 110, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+ᾚலதனச் ெசலᾫ ᾟபா 21,19,00,000
+
+“தைலப்ᾗ 110, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 21,19,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 110, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02 - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 5,01,00,000
+
+“தைலப்ᾗ 110, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 5,01,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 110, நிகழ்ச்சித் திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 228. - நீதிமன்ற நிᾞவாகம்
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 250,41,70,000
+
+“தைலப்ᾗ 228, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 250,41,70,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 228, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 101,74,10,000
+
+“தைலப்ᾗ 228, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 101,74,10,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 228, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 229. - சட்டமாஅதிபர் திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 38,09,10,000
+
+“தைலப்ᾗ 229, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 38,09,10,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 229, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+පාර්ලිෙම්න්තුව 3345 3346
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 3,35,00,000 “தைலப்ᾗ 229, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 3,35,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 229, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 230. - சட்டவைரஞர் திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 4,60,10,000
+
+“தைலப்ᾗ 230, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 4,60,10,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 230, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 6,65,00,000
+
+“தைலப்ᾗ 230, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 6,65,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 230, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 231. - கடன் இணக்கச்சைபத் திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 58,06,000
+
+“தைலப்ᾗ 231, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 58,06,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 231, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 1,75,000
+
+“தைலப்ᾗ 231, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 1,75,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 231, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 232. - சிைறச்சாைலகள் திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 283,17,00,000
+
+“தைலப்ᾗ 232, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 283,17,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 232, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 27,82,00,000
+
+“தைலப்ᾗ 232, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 27,82,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 232, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 233. - அரசாங்கப் பகுப்பாய்வாளர் திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 6,91,45,000
+
+“தைலப்ᾗ 233, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 6,91,45,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 233, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 25,67,00,000
+
+“தைலப்ᾗ 233, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 25,67,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 233, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 234. - உயர் நீதிமன்றப் பதிவாளர்
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 7,11,06,000
+
+“தைலப்ᾗ 234, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 7,11,06,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 234, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 1,08,50,000
+
+“தைலப்ᾗ 234, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 1,08,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 234, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 235. - சட்ட ஆைணக்குᾨத் திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 1,09,65,000
+
+“தைலப்ᾗ 235, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 1,09,65,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 235, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+2008 ෙදසැම්බර් 05 3347 3348
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 38,00,000
+
+“தைலப்ᾗ 235, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 38,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 235, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ
+
+Question, "That the sum of Rs. 327,278,000 for Head 110, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 110, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs. 211,900,000 Question, "That the sum of Rs. 211,900,000 for Head 110, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 110, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 50,100,000 Question, "That the sum of Rs. 50,100,000 for Head 110, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 110, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+HEAD 228. - COURTS ADMINISTRATION Programme 01. - Operational Activities - Recurrent Expenditure, Rs.2,504,170,000 Question, "That the sum of Rs. 2,504,170,000 for Head 228, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 228, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs. 1,017,410,000 Question, "That the sum of Rs. 1,017,410,000 for Head 228, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 228, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+HEAD 229. - DEPARTMENT OF ATTORNEY - GENERAL Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 380,910,000 Question, "That the sum of Rs.380,910,000 for Head 229, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 229, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure, Rs.33,500,000 Question, "That the sum of Rs.33,500,000 for Head 229, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 229, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. HEAD 230. - DEPARTMENT OF LEGAL DRAFTMAN Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 46,010,000 Question, "That the sum of Rs.46,010,000 for Head 230, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 230, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs.66,500,000 Question, "That the sum of Rs.66,500,000 for Head 230, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 230, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. HEAD 231. - DEPARTMENT OF DEBT CONCILIATION BOARD Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 5,806,000 Question, "That the sum of Rs.5,806,000 for Head 231, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 231, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs.175,000 Question, "That the sum of Rs.175,000 for Head 231, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 231, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. HEAD 232. - DEPARTMENT OF PRISONS Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 2,831,700,000 Question, "That the sum of Rs.2,831,700,000 for Head 232, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 232, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs.278,200,000 Question, "That the sum of Rs.278,200,000 for Head 232, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 232, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+පාර්ලිෙම්න්තුව 3349 3350
+
+HEAD 233. - DEPARTMENT OF GOVERNMENT ANALYST Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 69,145,000 Question, "That the sum of Rs. 69,145,000 for Head 233, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 233, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs. 256,700,000 Question, "That the sum of Rs. 256,700,000 for Head 233, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 233, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. HEAD 234. - REGISTRAR OF SUPREME COURT Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 71,106,000 Question, "That the sum of Rs. 71,106,000 for Head 234, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 234, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs. 10,850,000 Question, "That the sum of Rs.10,850,000 for Head 234, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 234, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. HEAD 235. - DEPARTMENT OF LAW COMMISION Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 10,965,000 Question, "That the sum of Rs. 10,965,000 for Head 235, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 235, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs. 3,800,000 Question, "That the sum of Rs.3,800,000 for Head 235, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 235, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. ''133 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 14,43,80,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+133 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 97,50,000 ''133 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 97,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+133 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන. - සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 93,53,88,000
+
+''133 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 93,53,88,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+133 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු 200,04,10,000 ''133 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 200,04,10,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+133 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 133, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 14,43,80,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 133, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 97,50,000 “தைலப்ᾗ 133, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 97,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 133, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 93,53,88,000
+
+“தைலப்ᾗ 133, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 93,53,88,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 133, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 200,04,10,000 “தைலப்ᾗ 133, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 200,04,10,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 133, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, "That the sum of Rs. 144,380,000 for Head 133, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 133, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 9,750,000 Question, "That the sum of Rs. 9,750,000 for Head 133, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 133, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+2008 ෙදසැම්බර් 05 3351 3352
+
+Programme 02. - Development Activities - Recurrent Expenditure, Rs. 935,388,000 Question, "That the sum of Rs.935,388,000 for Head 133, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 133, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 2,000,410,000 Question, "That the sum of Rs.2,000,410,000 for Head 133, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 133, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. ''134 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 10,88,30,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය. 134 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී. “தைலப்ᾗ 134, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 10,88,30,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 134, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. Question, "That the sum of Rs.108,830,000 for Head 134, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 134, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 5,81,00,000 நிகழ்ச்சித்திட்டம் 01.- ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 5,81,00,000
+
+Programme 01.– Operational Activities - Capital Expenditure,
+
+Rs. 58,100,000
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා ( மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ගරු නිෙයෝජɕ සභාපතිතුමනි, අගාමාතɕතුමා, අභɕන්තර පරිපාලන අමාතɕතුමා සහ රාජɕ ආරක්ෂක, මහජන ආරක්ෂාව, නීතිය හා සාමය පිළිබඳ නිෙයෝජɕ අමාතɕතුමා ෙවනුෙවන් මා විසර්ජන පනත් ෙකටුම්පත, 2009 කාරක සභා අවස්ථාෙව් දී 134 වන වැය ශීර්ෂෙය් ෙමෙහයුම් වැඩසටහන අංක 01 යටෙත් පහත සඳහන් සංෙශෝධනය ඉදිරිපත් කරනවා.
+
+නිෙයෝජɕ සභාපතිතුමා (தவிசாளர் அவர்கள்) (The Deputy Chairman)
+
+ඒ පිළිබඳව සභාෙව් එකඟත්වය? ගරු මන්තීවරු (மாண்ᾗமிகு உᾠப்பினர்கள்) (Hon. Members) Aye.
+
+මතු පළවන ෙයෝජනාව සභා සම්මත විය.: தீர்மானிக்கப்பட்டᾐ : Resolved: “වැඩසටහන් 01 - ෙමෙහයුම් වැඩසටහන - මූලධන වියදම් සඳහා පතිපාදනය රු. 10,81,00,000 දක්වා වැඩි කිරීෙමන් සංෙශෝධනය කළ යුතු ය.” (ආණ්ඩුකම වɕවස්ථා හා ජාතික ඒකාබද්ධතා අමාතɕතුමාෙග් ෙමම සංෙශෝධනෙය් අභිපාය වනුෙය් ෙමම වැඩසටහෙන් මූලධන වියදම් සඳහා පතිපාදනය රු. 5,00,00,000කින් වැඩි කිරීමය.) වɕාපෘතිය 02 - පරිපාලනය සහ ආයතනික ෙසේවා වɕාපෘතිය සම්බන්ධෙයන් පහත සඳහන් පරිදි මූලධන වියදම් වැඩි කළ යුතු ය. උප වɕාපෘතිය 2 - ජාතික භාෂා අධɕාපන සහ පුහුණු මධɕස්ථානය වැය විෂයය 2201 - රාජɕ ආයතන සඳහා රුපියල් 5,00,00,000 ”
+
+“134 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 10,81,00,000ක වැඩි කරන ලද මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+134 වන ශීර්ෂෙයහි 01 වන වැඩසටහන මූලධන වියදම සංෙශෝධිතාකාරෙයන් උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුය යි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 134, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 10,81,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 134, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ
+
+Question, "That the increased sum of Rs. 108,100,000 for Head 134, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 134, Programme 01, Capital Expenditure, as amended, ordered to stand part of the Schedule.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 6,24,70,000 “134 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 6,24,70,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+134 වන ශීර්ෂෙයහි 02 වන වැඩසටහන පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුය යි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 1,12,75,000
+
+“134 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 1,12,75,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+134 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුය යි නිෙයෝග කරන ලදී.
+
+நிகழ்ச்சித் திட்டம் 02.- அபிவிᾞத்திச் ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ்
+
+ெசலᾫ ᾟபா 6,24,70,000 “தைலப்ᾗ 134, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 6,24,70,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 134, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+පාර්ලිෙම්න්තුව 3353 3354
+
+நிகழ்ச்சித் திட்டம் 02.- அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 1,12,75,000 “தைலப்ᾗ 134, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ ᾟபா 1,12,75,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 134, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Programme 02.– Development Activities - Recurrent Expenditure, Rs. 62,470,000 “Question, "That the sum of Rs. 62,470,000 for Head 134, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 134, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02.– Development Activities - Capital Expenditure, Rs. 11,275,000 “Question, "That the sum of Rs. 11,275,000 for Head 134, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 134, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+236 වන ශීර්ෂය.- රාජɕ භාෂා ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 5,80,85,000
+
+“236 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 5,80,85,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+236 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම, රු.4,91,50,000
+
+“236 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 4,91,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+236 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+தைலப்ᾗ 236.- அரச கᾞம ெமாழிகள் திைணக்கனம்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 5,80,85,000
+
+“தைலப்ᾗ 236, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 5,80,85,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 236, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித்திட்டம் 01. -ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 4,91,50,000
+
+“தைலப்ᾗ 236, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 4,91,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 236, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+HEAD 236. - DEPARTMENT OF OFFICIAL LANGUAGES
+
+Programme 01. - Operational Activities - Recurrent Expenditure,
+
+Rs. 58,085,000
+
+Question, "That the sum of Rs. 58,085,000 for Head 236, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 236, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 49,150,000
+
+Question, "That the sum of Rs. 49,150,000 for Head 236, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 236, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+“140 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 10,57,50,000ක වැඩි කරන ලද මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+140 වන ශීර්ෂෙයහි 01 වන වැඩසටහන පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී. 01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 2,44,65,000
+
+"140 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මුලධන වියදම සඳහා රු.2,44,65,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+140 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩ සටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු.1,33,45,000
+
+''140 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු.1,33,45,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+140 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු.35,39,00.000
+
+''140 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු.35,39,00.000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+140 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+292 වන ශීර්ෂය.- සත්ව නිෂ්පාදන හා ෙසෞඛɕ ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 7,73,00,000
+
+''292 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 7,73,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+292 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 2,25,00,000 ''292 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 2,25,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+292 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+2008 ෙදසැම්බර් 05 3355 3356
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 20,54,35,000
+
+''292 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 20,54,35,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+292 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 55,91,00,000
+
+''292 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 55,91,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+292 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 140, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 10,57,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 140, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 2,44,65,000
+
+“தைலப்ᾗ 140, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 2,44,65,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 140, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 1,33,45,000
+
+“தைலப்ᾗ 140, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 1,33,45,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 140, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 35,39,00,000
+
+“தைலப்ᾗ 140, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 35,39,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 140, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 292.- விலங்கு உற்பத்தி சுகாதார திைணக்களம்
+
+நிகழ்ச்சித்திட்டம் 01.- ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 7,73,00,000
+
+“தைலப்ᾗ 292, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 7,73,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 292, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 2,25,00,000
+
+“தைலப்ᾗ 292, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 2,25,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 292, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 20,54,35,000
+
+“தைலப்ᾗ 292, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 20,54,35,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 292, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 55,91,00,000
+
+“தைலப்ᾗ 292, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 55,91,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 292, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, “That the sum of Rs. 105,750,000 for Head 140, Programme 01, Recurrent Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 140, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 24,465,000 Question, “That the sum of Rs. 24,465,000 for Head 140, Programme 01, Capital Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 140, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Recurrent Expenditure,
+
+Rs. 13,345,000 Question, “That the sum of Rs. 113,345,000 for Head 140, Programme 02, Recurrent Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 140, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Capital Expenditure,
+
+Rs. 353,900,000 Question, “That the sum of Rs. 353,900,000 for Head 140, Programme 02, Capital Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 140, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+HEAD 292 - DEPARTMENT OF ANIMAL PRODUCTION AND
+
+HEALTH
+
+Programme 01 - Operational Activities - Recurrent Expenditure,
+
+Rs. 77,300,000
+
+Question, “That the sum of Rs. 77,300,000 for Head 292, Programme 01, Recurrent Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 292, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 22,500,000 Question, “That the sum of Rs. 22,500,000 for Head 292, Programme 01, Capital Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 292, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+පාර්ලිෙම්න්තුව 3357 3358
+
+Programme 02. - Development Activities - Recurrent Expenditure, Rs. 205,435,000 Question, “That the sum of Rs. 205,435,000 for Head 292, Programme 02, Recurrent Expenditure, be inserted in the Schedule” put and agreed to. Head 292, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 559,100,000 Question, “That the sum of Rs. 559,100,000 for Head 292, Programme 02, Capital Expenditure, be inserted in the Schedule” put and agreed to. Head 292, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. ''169 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 6,01,30,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+169 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 84,58,000 ''169 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 84,58,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+169 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 3,60,00,000 ''169 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 3,60,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+169 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 5,00,00,000 ''169 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 5,00,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+169 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+309 වන ශීර්ෂය.- ෙගොඩනැඟිලි ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන. - ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 5,05,40,000 ''309 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 5,05,40,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+309 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන. - ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 78,00,000 ''309 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 78,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+309 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 14,44,19,000 ''309 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 14,44,19,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+309 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම
+
+රු. 2,03,00,000 ''309 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 2,03,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+309 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+310 වන ශීර්ෂය.- රජෙය් කර්මාන්ත ශාලාව
+
+01 වන වැඩසටහන. - ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 2,73,78,000 ''310 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 2,73,78,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+310 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන. - ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 1,17,50,000 ''310 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 1,17,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+310 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 2,11,35,000 ''310 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 2,11,35,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+310 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 96,00,000
+
+''310 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 96,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+310 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 169, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 6,01,30,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 169, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைநச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 84,58,000
+
+“தைலப்ᾗ 169, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 84,58,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 169, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+2008 ෙදසැම්බර් 05 3359 3360
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 3,60,00,000 “தைலப்ᾗ 169, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 3,60,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 169, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 5,00,00,000 “தைலப்ᾗ 169, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 5,00,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 169, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 309.- கட்டடங்கள் திைணக்களம்
+
+நிகழ்ச்சித்திட்டம் 01.- ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 5,05,40,000
+
+“தைலப்ᾗ 309, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 5,05,40,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 309, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 78,00,000
+
+“தைலப்ᾗ 309, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 78,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 309, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 14,44,19,000
+
+“தைலப்ᾗ 309, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 14,44,19,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 309, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 2,03,00,000
+
+“தைலப்ᾗ 309, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 2,03,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 309, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 310.- அரசாங்க ெதரழிற்சாைல
+
+நிகழ்ச்சித்திட்டம் 01.- ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 2,73,78,000
+
+“தைலப்ᾗ 310, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 2,73,78,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 310, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 1,17,50,000
+
+“தைலப்ᾗ 310, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 1,17,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 310, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 2,11,35,000
+
+“தைலப்ᾗ 310, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 2,11,35,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 310, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 96,00,000
+
+“தைலப்ᾗ 310, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 96,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 310, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, "That the sum of Rs. 61,130,000 for Head 169, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 169, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 8,458,000
+
+Question, "That the sum of Rs. 8,458,000 for Head 169, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 169, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Recurrent Expenditure,
+
+Rs. 36,000,000
+
+Question, "That the sum of Rs. 36,000,000 for Head 169, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 169, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Capital Expenditure,
+
+Rs. 50,000,000
+
+Question, "That the sum of Rs. 50,000,000 for Head 169, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 169, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+HEAD 309. - DEPARTMENT OF BUILDINGS Programme 01. - Operational Activities - Recurrent Expenditure,
+
+Rs. 50,540,000
+
+Question, "That the sum of Rs. 50,540,000 for Head 309, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 309, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+පාර්ලිෙම්න්තුව 3361 3362
+
+Programme 01. - Operational Activities - Capital Expenditure, Rs. 7,800,000 Question, "That the sum of Rs. 7,800,000 for Head 309, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 309, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Recurrent Expenditure, Rs. 144,419,000 Question, "That the sum of Rs. 144,419,000 for Head 309, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 309, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 20,300,000 Question, "That the sum of Rs. 20,300,000 for Head 309, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 309, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. HEAD 310. - GOVERNMENT FACTORY Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 27,378,000 Question, "That the sum of Rs. 27,378,000 for Head 310, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 310, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs. 11,750,000 Question, "That the sum of Rs. 11,750,000 for Head 310, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 310, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Recurrent Expenditure, Rs. 21,135,000 Question, "That the sum of Rs. 21,135,000 for Head 310, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 310, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 9,600,000 Question, "That the sum of Rs. 9,600,000 for Head 310, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 310, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. ''108 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 8,16,35,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+108 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 1,29,52,000 ''108 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 1,29,52,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+108 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 2,00,00,000 ''108 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 2,00,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+108 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 7,50,00,000 ''108 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මුලධන වියදම සඳහා රු. 7,50,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+108 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මුලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+308 වන ශීර්ෂය.- තැපැල් ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන. - ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 672,10,10,000 ''308 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 672,10,10,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+308 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන. - ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 15,40,90,000 ''308 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 15,40,90,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+308 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 108, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 8,16,35,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 108, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 1,29, 52,000
+
+“தைலப்ᾗ 108, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 1,29,52,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 108, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02 - அபிவிᾞத்திச் ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ்
+
+ெசலᾫ ᾟபா 2,00,00,000
+
+“தைலப்ᾗ 108, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 2,00,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 108, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+2008 ෙදසැම්බර් 05 3363 3364
+
+நிகழ்ச்சித் திட்டம் 02 - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 7,50,00,000 “தைலப்ᾗ 108, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 7,50,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 108, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 308.- அஞ்சல் திைணக்களம்
+
+நிகழ்ச்சித்திட்டம் 01.- ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 672,10,00,000
+
+“தைலப்ᾗ 308, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 672,10,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 308, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 15,40,90,000
+
+“தைலப்ᾗ 308, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 15,40,90,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 308, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, “That the sum of Rs. 81,635,000, for Head 108, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 108, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 12,952,000
+
+Question, “That the sum of Rs. 12,952,000 for Head 108, Programme 01, Capital Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 108, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Recurrent Expenditure,
+
+Rs. 20,000,000
+
+Question, “That the sum of Rs. 20,000,000 for Head 108, Programme 02, Recurrent Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 108, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Capital Expenditure,
+
+Rs. 75,000,000
+
+Question, “That the sum of Rs. 75,000,000 for Head 108, Programme 02, Capital Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 108, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+HEAD 308 - DEPARTMENT OF POSTS
+
+Programme 01 - Operational Activities - Recurrent Expenditure,
+
+Rs. 6,721,000,000 Question, “That the sum of Rs. 6,721,000,000, for Head 308, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 308, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 154,090,000
+
+Question, “That the sum of Rs. 154,090,000 for Head 308, Programme 01, Capital Expenditure, be inserted in the Schedule” put and agreed to.
+
+Head 308, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+''172 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු.7,44,25,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+172 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 1,00,75,000 ''172 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු.1,00,75,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+172 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන. - සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 9,55,00,000
+
+''172 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු.9,55,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+172 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු.10,50,00,000 ''172 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු.10,50,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+172 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 172, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 7,44,25,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 172, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 1,00,75,000 “தைலப்ᾗ 172, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 1,00,75,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 172, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 9,55,00,000
+
+“தைலப்ᾗ 172, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 9,55,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 172, நிகழ்ச்சித் திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+පාර්ලිෙම්න්තුව 3365 3366
+
+நிகழ்ச்சித் திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 10,50,00,000
+
+“தைலப்ᾗ 172, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 10,50,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 172, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. Question, "That the sum of Rs.74,425,000 for Head 172, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 172, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs.10,075,000 Question, "That the sum of Rs.10,075,000 for Head 172, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 172, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Recurrent Expenditure, Rs.95,500,000 Question, "That the sum of Rs.95,500,000 for Head 172, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 172, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs.105,000,000 Question, "That the sum of Rs.105,000,000 for Head 172, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 172, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. ''168 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු.7,97,81,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය. 168 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී. 01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම, රු.1,08,00,000 ''168 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු.1,08,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය. 168 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී. “தைலப்ᾗ 168, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 7,97,81,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 168, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 1,08,00,000
+
+“தைலப்ᾗ 168, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 1,08,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 168, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, "That the sum of Rs.79,781,000 for Head 168, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 168, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs.10,800,000 Question, "That the sum of Rs.10,800,000 for Head 168, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 168, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+“149 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු.11,24,10,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+149 වන ශීර්ෂෙයහි 01වන වැඩසටහන පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 1,18,00,000
+
+''149 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු.1,18,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+149 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 7,77,40,000
+
+"149 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු.7,77,40,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+149 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩ සටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 89,06,00,000
+
+''149 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු.89,06,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+140 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+303 වන ශීර්ෂය .- ෙප්ෂකර්මාන්ත ෙදපාර්තෙම්න්තුව
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 15,52,21,000
+
+''303 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 15,52,21,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+303 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම, රු. 2,44,25,000
+
+''303 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 2,44,25,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+303 වන ශීර්ෂෙයහි 02 වන වැඩ සටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+2008 ෙදසැම්බර් 05 3367 3368
+
+“தைலப்ᾗ 149, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 11,24,10,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 149, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள்- ᾚலதனச் ெசலᾫ ᾟபா 1,18,00,000 “தைலப்ᾗ 149, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 1,18,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 149, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. நிகழ்ச்சித்திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 7,77,40,000 “தைலப்ᾗ 149, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 7,77,40,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 149, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. நிகழ்ச்சித்திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள்- ᾚலதனச் ெசலᾫ ᾟபா 89,06,00,000 “தைலப்ᾗ 149, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 89,06,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 149, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 303.- ᾗைடைவக் ைகத்ெதாழில் திைணக்களம்
+
+நிகழ்ச்சித்திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 15,52,21,000
+
+“தைலப்ᾗ 303, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 15,52,21,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 303, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித்திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 2,44,25,000 “தைலப்ᾗ 303, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 2,44,25,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 303, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, "That the sum of Rs. 112,410,000 for Head 149, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 149, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 11,800,000
+
+Question, "That the sum of Rs. 11,800,000 for Head 149, Programme 01, Capital Expenditure, be inserted in the Schedule " put and agreed to.
+
+Head 149, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Recurrent Expenditure,
+
+Rs. 77,740,000
+
+Question, "That the sum of Rs. 77,740,000 for Head 149, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 149, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Capital Expenditure,
+
+Rs. 890,600,000
+
+Question, "That the sum of Rs. 890,600,000 for Head 149, Programme 02, Capital Expenditure, be inserted in the Schedule " put and agreed to.
+
+Head 149, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+HEAD 303. - DEPARTMENT OF TEXTILE INDUSTRIES
+
+Programme 02. - Development Activities - Recurrent Expenditure,
+
+Rs. 155,221,000
+
+Question, "That the sum of Rs. 155,221,000 for Head 303, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 303, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Capital Expenditure,
+
+Rs. 24,425,000
+
+Question, "That the sum of Rs. 24,425,000 for Head 303, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 303, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+“128 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 44,83,30,000ක වැඩි කරන ලද මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+128 වන ශීර්ෂෙයහි 01වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 3,84,50,000
+
+''128 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 3,84,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+128 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 13,30,00,000
+
+"128 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 13,30,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+128 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+9 - PL 003633 - (2009/01)
+
+පාර්ලිෙම්න්තුව 3369 3370
+
+“தைலப்ᾗ 128, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 44,83,30,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 128, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள்- ᾚலதனச் ெசலᾫ ᾟபா 3,84,50,000 “தைலப்ᾗ 128, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 3,84,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 128, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. நிகழ்ச்சித்திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 13,30,00,000 “தைலப்ᾗ 128, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 13,30,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 128, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. Question, "That the sum of Rs. 448,330,000 for Head 128, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 128, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs. 38,450,000 Question, "That the sum of Rs. 38,450,000 for Head 128, Programme 01, Capital Expenditure, be inserted in the Schedule " put and agreed to. Head 128, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 133,000,000 Question, "That the sum of Rs. 133,000,000 for Head 128, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 128, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. ''143 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 29,29,75,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+143 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 3,45,50,000
+
+''143 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 3,45,50,000 මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+143 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 143, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 29,29,75,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 143, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள்- ᾚலதனச்
+
+ெசலᾫ ᾟபா 3,45,50,000
+
+“தைலப்ᾗ 143, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 3,45,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 143, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, "That the sum of Rs. 292,975,000 for Head 143, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 143, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 34,550,000
+
+Question, "That the sum of Rs. 34,550,000 for Head 143, Programme 01, Capital Expenditure, be inserted in the Schedule " put and agreed to.
+
+Head 143, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+“104 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 11,32,25,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+104 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුය යි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 1,11,25,000 “104 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 1,11,25,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+104 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුය යි නිෙයෝග කරන ලදී.
+
+280 වන ශීර්ෂය.- විෙද්ශාධාර හා අයවැය අධීක්ෂණ
+
+ෙදපාර්තෙම්න්තුව
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 5,04,70,000 “280 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 5,04,70,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+280 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුය යි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 2,00,50,000 “280 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 2,00,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+280 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුය යි නිෙයෝග කරන ලදී.
+
+2008 ෙදසැම්බර් 05 3371 3372
+
+“தைலப்ᾗ 104, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 11,32,25,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 104, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ
+
+நிகழ்ச்சித்திட்டம் 01. -ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 1,11,25,000 “தைலப்ᾗ 104, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 1,11,25,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 104, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ
+
+தைலப்ᾗ 280.- ெவளிநாட்ᾌ உதவி, வரᾫ ெசலᾫத்திட்டக்
+
+கண்காணிப்ᾗத் திைணக்களம்
+
+நிகழ்ச்சித்திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 5,04,70,000
+
+“தைலப்ᾗ 280, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 5,04,70,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 280, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித்திட்டம் 02. -அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 2,00,50,000
+
+“தைலப்ᾗ 280, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 2,00,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 280, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, "That the sum of Rs.113,225,000 for Head 104, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 104, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01.– Operational Activities - Capital Expenditure,
+
+Rs.11,125,000
+
+Question, "That the sum of Rs.11,125,000 for Head 104, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 104, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+HEAD 280.– DEPARTMENT OF FOREIGN AID AND BUDGET
+
+MONITORING
+
+Programme 02.– Development Activities - Recurrent Expenditure,
+
+Rs.50,470,000
+
+Question, "That the sum of Rs.50,470,000 for Head 280, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 280, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 02.– Development Activities - Capital Expenditure,
+
+Rs.20,050,000
+
+Question, "That the sum of Rs.20,050,000 for Head 280, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 280, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+''138 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 15,03,99,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+138 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 10,28,50,000 ''138 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 10,28,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+138 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන. - සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 10,40,00,000
+
+''138 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 10,40,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+138 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+220 වන ශීර්ෂය-ආයුර්ෙව්ද ෙදපාර්තෙම්න්තුව 01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු.18,21,56,000 ''220 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 18,21,56,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+220 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 3,34,00,000 ''220 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 3,34,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+220 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු.46,49,89,000
+
+''220 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 46,49,89,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+220 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 138, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 15,03,99,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 138, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+පාර්ලිෙම්න්තුව 3373 3374
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 10,28,50,000 “தைலப்ᾗ 138, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 10,28,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 138, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. நிகழ்ச்சித் திட்டம் 02 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 10,40,00,000 “தைலப்ᾗ 138, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக் கான ᾟபா 10,40,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 138, நிகழ்ச்சித் திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 220.- ஆᾜர்ேவத திைணக்களம்
+
+நிகழ்ச்சித் திட்டம் 01, - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 18,21,56,000
+
+“தைலப்ᾗ 220, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 18,21,56,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 220, நிகழ்ச்சித் திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01, - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 3,34,00,000
+
+“தைலப்ᾗ 220, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 3,34,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 220, நிகழ்ச்சித் திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02, - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 46,49,89,000
+
+“தைலப்ᾗ 220, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக் கான ᾟபா 46,49,89,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 220, நிகழ்ச்சித் திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, "That the sum of Rs. 150,399,000 for Head 138, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 138, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 102,850,000 Question, "That the sum of Rs. 102,850,000 for Head 138, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 138, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Capital Expenditure,
+
+Rs. 104,000,000
+
+Question, "That the sum of Rs.104,000,000 for Head 138, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 138, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+HEAD 220—DEPARTMENT OF AYURVEDA Programme 01. - Operational Activities - Recurrent Expenditure,
+
+Rs. 182,156,000
+
+Question, "That the sum of Rs.182,156,000 for Head 220, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 220, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 33,400,000
+
+Question, "That the sum of Rs. 33,400,000 for Head 220, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 220, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Recurrent Expenditure,
+
+Rs. 464,989,000
+
+Question, "That the sum of Rs. 464,989,000 for Head 220, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 220, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 76,18,45,000 நிகழ்ச்சித் திட்டம் 02 - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 76,18,45,000 Programme 02 - Development Activities - Capital Expenditure, Rs.
+
+761,845,000 ගරු නිමල් සිරිපාල ද සිල්වා මහතා ( மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ගරු නිෙයෝජɕ සභාපතිතුමනි, අගාමාතɕතුමා, අභɕන්තර පරිපාලන අමාතɕතුමා සහ රාජɕ ආරක්ෂක, මහජන ආරක්ෂාව, නීතිය හා සාමය පිළිබඳ නිෙයෝජɕ අමාතɕතුමා ෙවනුෙවන් මා විසර්ජන පනත් ෙකටුම්පත, 2009 කාරක සභා අවස්ථාෙව් දී 220 වන වැය ශීර්ෂෙය් සංවර්ධන වැඩසටහන 02 යටෙත් පහත සඳහන් සංෙශෝධනය ඉදිරිපත් කරනවා.
+
+නිෙයෝජɕ සභාපතිතුමා (பிரதிச் தவிசாளர் அவர்கள்) (The Deputy Chairman) ඒ පිළිබඳව සභාෙව් එකඟත්වය? ගරු මන්තීවරු (மாண்ᾗமிகு உᾠப்பினர்கள் ) (Hon. Members)
+
+Aye. මතු පළවන ෙයෝජනාව සභා සම්මත විය. தீர்மானிக்கப்பட்டᾐ : Resolved.
+
+2008 ෙදසැම්බර් 05 3375 3376
+
+“වැඩසටහන 02 - සංවර්ධන වැඩසටහන - මුලධන වියදම සඳහා පතිපාදනය රු. 86,18,45,000 දක්වා වැඩි කිරීෙමන් සංෙශෝධනය කළ යුතුය.’’
+
+(ෙද්ශීය ෛවදɕ අමාතɕතුමාෙග් ෙමම සංෙශෝධනෙය් අභිපාය වනුෙය් ෙමම වැඩසටහෙන් මූලධන වියදම් සඳහා පතිපාදනය රු. 10,00,00,000 කින් වැඩි කිරීමය.)
+
+වɕාපෘතිය 03 - පර්ෙය්ෂණ වɕාපෘතිය සම්බන්ධෙයන් පහත සඳහන් පරිදි මූලධන වියදම් වැඩිකළ යුතු ය. වැය විෂයය 2502 - ෙවනත් ආෙයෝජන සඳහා රු. 10,00,00,000 අයිතමය 01 - ෙද්ශීය ෛවදɕ පර්ෙය්ෂණ වැඩි දියුණු කිරීම සඳහා රුපියල් 10,00,00,000’’ “220 වන ශීර්ෂෙයහි 02 වන වැඩසටහන මූලධන වියදම සංෙශෝධිතාකාරෙයන් උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුය යි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 220, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான அதிகாிக்கப்பட்ட ᾟபா 86,18,45,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 220, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ திᾞத்தப்பட்டவாᾠ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, “That the increased sum of Rs. 861,845,000 for Head 220, Programme 02, Capital Expenditure, be inserted in the Schedule’’ put and agreed to.
+
+Head 220, Programme 02, Capital Expenditure, as amended, ordered to stand part of the Schedule.
+
+''124 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 23,38,54,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+124 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන. - ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 2,39,00,000 ''124 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 2,39,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+124 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන. - සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 14,70,02,000 ''124 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 14,70,02,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+124 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 13,03,00,000 ''124 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු.13,03,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+124 වන ශීර්ෂෙයහි 02 වන වැඩ සටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+216 වන ශීර්ෂය - සමාජ ෙසේවා ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 8,47,77,000 ''216 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු.8,47,77,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+216 වන ශීර්ෂෙයහි 01 වන වැඩ සටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 2,29,00,000 ''216 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු.2,29,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+216 වන ශීර්ෂෙයහි 01 වන වැඩ සටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 20,35,75,000 ''216 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු.20,35,75,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+216 වන ශීර්ෂෙයහි 02 වන වැඩ සටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 2,70,50,000 ''216 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු.2,70,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+216 වන ශීර්ෂෙයහි 02 වන වැඩ සටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 124, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 23,38,54,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 124, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 2,39,00,000
+
+“தைலப்ᾗ 124, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 2,39,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 124, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02 - அபிவிᾞத்திச் ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ்
+
+ெசலᾫ ᾟபா 14,70,02,000
+
+“தைலப்ᾗ 124, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 14,70,02,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 124, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித் திட்டம் 02 - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 13,03,00,000
+
+“தைலப்ᾗ 124, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 13,03,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 124, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 216.- சᾚக ேசைவகள் திைணக்களம்
+
+நிகழ்ச்சித்திட்டம் 01.- ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 8,47,77,000
+
+“தைலப்ᾗ 216, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 8,47,77,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 216, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+පාර්ලිෙම්න්තුව 3377 3378
+
+நிகழ்ச்சித் திட்டம் 01 - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச் ெசலᾫ ᾟபா 2,29,00,000 “தைலப்ᾗ 216, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 2,29,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. தைலப்ᾗ 216, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. நிகழ்ச்சித்திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 20,35,75,000
+
+“தைலப்ᾗ 216, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 20,35,75,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 216, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. நிகழ்ச்சித்திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -ᾚலதனச் ெசலᾫ ᾟபா 2,70,50,000
+
+“தைலப்ᾗ 216, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 2,70,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப் பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 216, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ. Question, “That the sum of Rs. 233,854,000, for Head 124, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 124, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs. 23,900,000 Question, “That the sum of Rs. 23,900,000 for Head 124, Programme 01, Capital Expenditure, be inserted in the Schedule” put and agreed to. Head 124, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Recurrent Expenditure, Rs. 147,002,000 Question, “That the sum of Rs. 147,002,000 for Head 124, Programme 02, Recurrent Expenditure, be inserted in the Schedule” put and agreed to. Head 124, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 130,300,000 Question, “That the sum of Rs. 130,300,000 for Head 124, Programme 02, Capital Expenditure, be inserted in the Schedule” put and agreed to. Head 124, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. HEAD 216 - DEPARTMENT OF SOCIAL SERVICES Programme 01 - Operational Activities - Recurrent Expenditure, Rs. 84,777,000 Question, “That the sum of Rs. 84,777,000, for Head 216, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 216, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure, Rs. 22,900,000 Question, “That the sum of Rs. 22,900,000 for Head 216, Programme 01, Capital Expenditure, be inserted in the Schedule” put and agreed to. Head 216, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Recurrent Expenditure, Rs. 203,575,000 Question, “That the sum of Rs. 203,575,,000 for Head 216, Programme 02, Recurrent Expenditure, be inserted in the Schedule” put and agreed to. Head 216, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 27,050,000 Question, “That the sum of Rs. 27,050,000 for Head 216, Programme 02, Capital Expenditure, be inserted in the Schedule” put and agreed to. Head 216, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. “120 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 20,08,40,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය” යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+120 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 13,25,50,000
+
+“120 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 13,25,50,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය” යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+120 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 64,49,27,000 “120 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 64,49,27,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+120 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 9,96,10,000 “120 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 9,96,10,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+120 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+217 වන ශීර්ෂය.- පරිවාස හා ළමාරක්ෂක ෙසේවා
+
+ෙදපාර්තෙම්න්තුව
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 1,19,94,000 “217 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 1,19,94,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය” යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+217 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+2008 ෙදසැම්බර් 05 3379 3380
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 8,25,000
+
+“217 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 8,25,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය” යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+217 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 12,90,47,000 “217 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 12,90,47,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+217 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 72,25,000 “217 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 72,25,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+217 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 120, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 20,08,40,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 120, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள்- ᾚலதனச்
+
+ெசலᾫ ᾟபா 13,25,50,000
+
+“தைலப்ᾗ 120, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 13,25,50,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 120, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித்திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - மீண்ᾌவᾞஞ்
+
+ெசலᾫ ᾟபா 64,49,27,000
+
+“தைலப்ᾗ 120, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 64,49,27,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 120, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித்திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள்- ᾚலதனச்
+
+ெசலᾫ ᾟபா 9,96,10,000
+
+“தைலப்ᾗ 120, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 9,96,10,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 120, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+தைலப்ᾗ 217.- நன்னடத்ைதப் பாᾐகாவல், சிᾠவர் கவனிப்ᾗச்
+
+ேசைவத் திைணக்களம்
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 1,19,94,000
+
+“தைலப்ᾗ 217, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 1,19,94,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 217, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித்திட்டம் 01. - ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 8,25,000
+
+“தைலப்ᾗ 217, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 8,25,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 217, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித்திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 12,90,47,000
+
+“தைலப்ᾗ 217, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 12,90,47,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 217, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+நிகழ்ச்சித்திட்டம் 02. - அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 72,25,000 “தைலப்ᾗ 217, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 72,25,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 217, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ.
+
+Question, "That the sum of Rs. 200,840,000 for Head 120, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 120, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01. - Operational Activities - Capital Expenditure,
+
+Rs. 132,550,000
+
+Question, "That the sum of Rs. 132,550,000 for Head 120, Programme 01, Capital Expenditure, be inserted in the Schedule " put and agreed to.
+
+Head 120, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+Programme 02. - Development Activities - Recurrent Expenditure,
+
+Rs. 644,927,000
+
+Question, "That the sum of Rs. 644,927,000 for Head 120, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 120, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+පාර්ලිෙම්න්තුව 3381 3382
+
+Programme 02. - Development Activities - Capital Expenditure, Rs. 99,610,000 Question, "That the sum of Rs. 99,610,000 for Head 120, Programme 02, Capital Expenditure, be inserted in the Schedule " put and agreed to. Head 120, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. HEAD 217. - DEPARTMENT OF PROBATION AND CHILD CARE SERVICES Programme 01. - Operational Activities - Recurrent Expenditure, Rs. 11,994,000 Question, "That the sum of Rs. 11,994,000 for Head 217, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 217, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 01. - Operational Activities - Capital Expenditure, Rs. 825,000 Question, "That the sum of Rs. 825,000 for Head 217, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 217, Programme 01, Capital Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Recurrent Expenditure, Rs. 129,047,000 Question, "That the sum of Rs. 129,047,000 for Head 217, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to. Head 217, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule. Programme 02. - Development Activities - Capital Expenditure, Rs. 7,225,000 Question, "That the sum of Rs. 7,225,000 for Head 217, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to. Head 217, Programme 02, Capital Expenditure, ordered to stand part of the Schedule. “164 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 5,87,10,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+164 වන ශීර්ෂෙයහි 01වන වැඩසටහන පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතු යයි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 4,00,000
+
+''164 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 4,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+164 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 30,00,00,000
+
+"164 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 30,00,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය'' යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+164 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුයයි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 164, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 5,87,10,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 164, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ
+
+நிகழ்ச்சித்திட்டம் 01. -ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 4,00,000
+
+“தைலப்ᾗ 164, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 4,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 164, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ
+
+நிகழ்ச்சித்திட்டம் 02. -அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 30,00,00,000
+
+“தைலப்ᾗ 164, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 30,00,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 164, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ
+
+Question, "That the sum of Rs. 58,710,000 for Head 164, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 164, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01.– Operational Activities - Capital Expenditure,
+
+Rs. 400,000
+
+Question, "That the sum of Rs. 400,000 for Head 164, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 164, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+Programme 02.– Development Activities - Capital Expenditure,
+
+Rs. 300,000,000
+
+Question, "That the sum of Rs. 300,000,000 for Head 164, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 164, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+“156 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 1,79,20,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+156 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුය යි නිෙයෝග කරන ලදී.
+
+01 වන වැඩසටහන.- ෙමෙහයුම් වැඩසටහන - මූලධන වියදම,
+
+රු. 25,00,000 “156 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 25,00,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+156 වන ශීර්ෂෙයහි 01 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුය යි නිෙයෝග කරන ලදී.
+
+2008 ෙදසැම්බර් 05 3383 3384
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - පුනරාවර්තන වියදම,
+
+රු. 61,57,23,000 “156 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම සඳහා රු. 61,57,23,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+156 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, පුනරාවර්තන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුය යි නිෙයෝග කරන ලදී.
+
+02 වන වැඩසටහන.- සංවර්ධන වැඩසටහන - මූලධන වියදම,
+
+රු. 111,95,75,000 “156 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම සඳහා රු. 111,95,75,000ක මුදල උපෙල්ඛනයට ඇතුළත් කළ යුතුය" යන පශ්නය විමසන ලදින් සභා සම්මත විය.
+
+156 වන ශීර්ෂෙයහි 02 වන වැඩසටහන, මූලධන වියදම උපෙල්ඛනෙයහි ෙකොටසක් හැටියට තිබිය යුතුය යි නිෙයෝග කරන ලදී.
+
+“தைலப்ᾗ 156, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 1,79,20,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 156, நிகழ்ச்சித்திட்டம் 01, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ
+
+நிகழ்ச்சித்திட்டம் 01. -ெசயல்ᾙைறச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 25,00,000
+
+“தைலப்ᾗ 156, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫக்கான ᾟபா 25,00,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 156, நிகழ்ச்சித்திட்டம் 01, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ
+
+நிகழ்ச்சித்திட்டம் 02.— அபிவிᾞத்திச் ெசயற்பாᾌகள் -
+
+மீண்ᾌவᾞஞ் ெசலᾫ ᾟபா 61,57,23,000
+
+“தைலப்ᾗ 156, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫக்கான ᾟபா 61,57,23,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 156, நிகழ்ச்சித்திட்டம் 02, மீண்ᾌவᾞஞ் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ
+
+நிகழ்ச்சித்திட்டம் 02.—அபிவிᾞத்திச் ெசயற்பாᾌகள் - ᾚலதனச்
+
+ெசலᾫ ᾟபா 111,95,75,000
+
+“தைலப்ᾗ 156, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫக்கான ᾟபா 111,95,75,000 அட்டவைணயிற் ேசர்க்கப்பᾌமாக” எᾔம் வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக் ெகாள்ளப்பட்டᾐ.
+
+தைலப்ᾗ 156, நிகழ்ச்சித்திட்டம் 02, ᾚலதனச் ெசலᾫ அட்டவைணயின் பகுதியாக இᾞக்கக் கட்டைளயிடப்பட்டᾐ
+
+Question, "That the sum of Rs. 17,920,000 for Head 156, Programme 01, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 156, Programme 01, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 01.– Operational Activities - Capital Expenditure,
+
+Rs. 2,500,000
+
+Question, "That the sum of Rs. 2,500,000 for Head 156, Programme 01, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 156, Programme 01, Capital Expenditure, ordered to stand part of the Schedule.
+
+Programme 02.– Development Activities - Recurrent Expenditure,
+
+Rs. 615,723,000
+
+Question, "That the sum of Rs. 615,723,000 for Head 156, Programme 02, Recurrent Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 156, Programme 02, Recurrent Expenditure, ordered to stand part of the Schedule.
+
+Programme 02.– Development Activities - Capital Expenditure,
+
+Rs. 1,119,575,000
+
+Question, "That the sum of Rs. 1,119,575,000 for Head 156, Programme 02, Capital Expenditure, be inserted in the Schedule" put and agreed to.
+
+Head 156, Programme 02, Capital Expenditure, ordered to stand part of the Schedule.
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) “කාරක සභාව පගතිය වාර්තා කළ යුතු යයිද, නැවත රැස්වීම සඳහා අවසර ගත යුතුය”යි ද මා ෙයෝජනා කරනවා.
+
+පශ්නය විමසන ලදින්, සභා සම්මත විය. வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. Question put, and agreed to.
+
+අ. භා. 4.50ට පාර්ලිෙම්න්තුවට පගතිය වාර්තා කරනු පිණිස නිෙයෝජɕ සභාපතිතුමා මූලාසනෙයන් ඉවත් විය. කාරක සභාව පතගිය වාර්තා කරයි. නැවත රැස්වීම 2008 ෙදසැම්බර් 8 වන සඳුදා.
+
+பி.ப. 4.50 க்கு குᾨவின் பாிசீலைன பற்றி அறிவிக்கும் ெபாᾞட்ᾌ பிரதித் தவிசாளர் அவர்கள் அக்கிரானத்திᾢᾞந்ᾐ அகன்றார்கள்.
+
+குᾨவினᾐ பாிசீலைன அறிவிக்கப்பட்டᾐ ; மீண்ᾌம் கூᾌவᾐ 2008 ᾊசம்பர் 8, திங்கட்கிழைம.
+
+At 4.50 p.m. the Deputy Chairman of Committee left the Chair to report Progress. Committee report Progress: to sit again on Monday 8th December, 2008.
+
+වීර ෙපොදුජන පදනම (සංස්ථාගත කිරී ෙම්)
+
+පනත් ෙකටුම්පත குᾊமக்களின் ᾪரச்ெசயல்கᾦக்கான மன்றம்
+
+(கூட்ᾊைணத்தல்) சட்டᾚலம் FOUNDATION FOR CIVILIAN BRAVERY (INCORPORATION)
+
+BILL
+
+පනත් ෙකටුම්පත (ස්ථාවර කාරක සභාව දී) සංෙශෝධනය කළ ආකාරෙයන් සලකා බැලීෙම් නිෙයෝගය කියවන ලදී.
+
+[நிைலக் குᾨவில்] திᾞத்தப்பட்டவாᾠ சட்டᾚலத்ைதப் பாிசீᾢத்தற்கான கட்டைள வாசிக்கப்பட்டᾐ.
+
+Order for consideration of Bill, as amended (in the Standing Committee)read.
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) වීර ෙපොදුජන පදනම (සංස්ථාගත කිරීෙම්) පනත් ෙකටුම්පත පිළිබඳ ස්ථාවර කාරක සභාෙව් වාර්තාව පිළිගත යුතුය”යි මම ෙයෝජනා කරමි.
+
+පශ්නය විමසන ලදින්, සභා සම්මත විය. வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. Question put, and agreed to.
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) “පනත් ෙකටුම්පත සංෙශෝධිතාකාරෙයන් දැන් තුන් වන වර කියවිය යුතුය”යි මා ෙයෝජනා කරනවා. පශ්නය විමසන ලදින්, සභා සම්මත විය. පනත් ෙකටුම්පත ඊට අනුකූලව සෙශෝධිතාකාරෙයන්, තුන් වන වර කියවා සම්මත කරන ලදී.
+
+வினா விᾌக்கப்பட்ᾌ, ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. அதன்பᾊ, சட்டᾚலம் திᾞத்தப்பட்டவாᾠ ᾚன்றாம் ᾙைறயாக மதிப்பிடப்பட்ᾌ நிைறேவற்றப்பட்டᾐ.
+
+Question put, and agreed to. Bill, as amended, accordingly read the Third time and passed.
+
+පාර්ලිෙම්න්තුව 3385 3386
+
+කල්තැබීම
+
+ஒத்திைவப்ᾗ ADJOURNMENT ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, “පාර්ලිෙම්න්තුව දැන් කල් තැබිය යුතුය”යි මා ෙයෝජනා කරනවා.
+
+පශ්නය සභාභිමුඛ කරන ලදී. வினா எᾌத்தியம்பப்ெபற்றᾐ. Question proposed.
+
+නිෙයෝජɕ කාරක සභාපතිතුමා ( குᾨக்களின் பிரதிச் தவிசாளர் அவர்கள்) (The Deputy Chairman of Committees) සභාව කල් තබන අවස්ථාෙව් ෙයෝජනාව ඉදිරිපත් කිරීම ගරු දයාසිරි ජයෙසේකර මන්තීතුමා.
+
+“ලීඩර්” චිතපටය කප්පාදුවට ලක් කිරීම
+
+“லீடர்” திைரப்படத் தணிக்ைக
+
+CENSOR OF FILM “LEADER”
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekera) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, අද දින සභාව කල් තබන අවස්ථාෙව්දී මා පහත සඳහන් ෙයෝජනාව ඉදිරිපත් කරනවා.
+
+“පවීණ චිතපට අධɕක්ෂ සහ රංගන ශිල්පී රංජන් රාමනායක මහතා විසින් අධɕක්ෂණය කරන ලද “ලීඩර්” චිතපටය ෙම් වන විට පසිද්ධ රැඟුම් පාලක මණ්ඩලය ෙවතින් කප්පාදුවට ලක් ෙවමින් තිෙබ්. ෙමම චිතපටය අධɕක්ෂණය කිරීමට පථම අදාළ පිටපත චිතපට සංස්ථාව මඟින් අනුමත ෙකොට ඇති අතර, නිෂ්පාදනය කිරීම සඳහා චිතපට සංස්ථාෙවන් ණය මුදලක් ද පදානය ෙකොට ඇතත්, සියල්ල නිම වූ පසු ෙත්මා ගීතය සහ දර්ශන ෙකොටස 07ක් කප්පාදු කර පදර්ශනය කිරීමට කටයුතු කරන ෙලස දක්වා ඇත. ෙකොටස් ඉවත් කළ ෙහොත් ෙමම චිතපටෙය් පදර්ශනය කිරීමට කිසිවක් ෙනොමැති අතර, ෙමය සාහසික ෙද්ශපාලන මැදිහත් වීමක පතිඵලයක් ෙලස අදහස් කරමි. ෙමය “සුළං කිරිල්ලී, අක්ෂරය, පුරහඳ කඵවර” වැනි සිනමා කෘති සඳහා රාජɕ හස්තෙය් මැදිහත් වීමට සමාන තත්ත්වයකි. කලාව තුළට ෙද්ශපාලනික මැදිහත් වීම සිදු ෙකොට කලාෙව් ස්වාධීනත්වය දඬුඅඬුවකට ලක් කිරීෙම් තත්ත්වයක් බව ද පැහැදිලිය. පසිද්ධ ෙව්දිකාවල ගායනා කරන ගීතයක් සඳහා පවා ෙපර අවසරයක් ලබා ගැනීමට නීති සම්පාදනය ෙකෙරමින් පවතින ෙමම වකවානුව තුළ “ලීඩර්” චිතපටය සඳහා ෙගන ඇති ෙමම තීරණය හුෙදක් ෙද්ශපාලනික වුවමනාවක් සඳහා ගත් තීන්දුවක් බව ෙපනී යයි.
+
+ෙමම චිතපටය සඳහා පනවන්නට ෙයදී ඇති එම තහනම ඉවත් ෙකොට එම චිතපටය පදර්ශනය කිරීමට අවශɕ අවසරය ලබා දීමට ෙමම ගරු සභාවට ෙයෝජනා කර සිටිමි.”
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ඇත්ත වශෙයන්ම ෙම් කාරණය ගැන කතා කරන ෙකොට “ලීඩර්” චිතපටයට අද සිද්ධ ෙවලා තිෙබන ෙද් එක්කම සමස්ත සිනමාව තුළ ඇති ෙවලා තිෙබන තත්ත්වය පැහැදිලි කරන්නත් මා බලාෙපොෙරොත්තු වනවා. විෙශේෂෙයන්ම රන්ජන් රාමනායක මැතිතුමා චිතපට ක්ෙෂේතෙය්ත්, නාටɕ ක්ෙෂේතෙය්ත් ජනපිය නළුවකු විධියට අද වන ෙතක් වැඩ කර ෙගන යනවා. ඔහු අධɕක්ෂණය කළ චිතපට ගණනාවක් පසු ගිය කාල වකවානුෙව් ලංකාෙව් පදර්ශනය කළා. පළමුෙවන්ම “වන්ෙෂොට්” චිතපටය හැදුවා. ඊළඟට “පාර්ලිමන්ට් ෙජෝක්ස්” චිතපටය හැදුවා. ඊළඟට තමයි ෙම් “ලීඩර්” කියන චිතපටය හැදුෙව්. ඇත්තටම ෙම් චිතපට ෙද්ශපාලන පහසන. අෙප් ෆීලික්ස් ෙපෙර්රා මැතිතුමා ෙහොඳ කලාකරුෙවක්. ෙම්ක ෙද්ශපාලන පහසනයක්. අපි කවුරුත් දන්නවා ෙම්වා serious චිතපට ෙනොෙවයි කියන එක. ෙම්වා jokes. ෙම්වාට කියන්ෙන් comedy films කියලායි. ඒ වාෙග් තත්ත්වයට ෙම්ක පත් කර තිෙබනවා. ඇත්තටම “වන්ෙෂොට්” චිතපටය ගත්තාම චන්දිකා මැතිනියෙග්
+
+Sorbonne certificate එක ගැන, එතුමියෙග් ඒ සහතිකය ගැන ඒ චිතපටෙයන් පශ්න කරනවා. හැබැයි, එතෙකොට ඒක අනුමත කරන්ෙන් කවුරුවත් ෙනොෙවයි මහාචාර්ය ෙසෝමරත්න බාලසූරිය. චන්දිකා මැතිනියත් එක්ක ෙසෝෙබෝන් විශ්වවිදɕාලෙය් එකට ඉෙගන ගත් මහාචාර්යවරයා, චන්දිකා මැතිනියෙග් රැඟුම් පාලක මණ්ඩලෙය් සභාපතිවරයා ඒක අනුමත කරනවා. පශ්නයක් තිබුෙණ් නැහැ. ඒ කාලෙය් ඒ චිතපටය සම්බන්ධව වාරණයක් කෙළේ නැහැ.
+
+ඊට පස්ෙසේ, විෙශේෂෙයන් “පාර්ලිමන්ට් ෙජෝක්ස්” කියන චිතපටෙය් මීහරක් තුන් ෙදෙනක් නැත්නම් ෙහොරු තුන් ෙදෙනක් පාර්ලිෙම්න්තුවට ඇවිල්ලා පාර්ලිෙම්න්තුව තුළ කරන විනාශය ගැන ඔහු පැහැදිලිව තමන්ෙග් ෙද්ශපාලන පහසනය ඉදිරිපත් කළා. තහනම් කෙළේ නැහැ. ඊළඟට තමයි ෙම් “ලීඩර්” චිතපටය එන්ෙන්. දැන් බලන්න, ෙලෝකෙය් ෙද්ශපාලන නායකෙයෝ ගැන විශාල විෙව්චන කළ චිතපට ලංකාෙව් විතරක් ෙනොෙවයි ෙලෝක ඉතිහාසය තුළින් අපට දැක ගන්නට පුළුවන්. උදාහරණයක් විධියට ෙම් මෑතක තිබුණු ඒවා මම කියන්නම්. “ෆැරන්හයිට් නයින් ඉෙලවන්” කියන චිතපටය ෙජෝර්ජ් බුෂ් ජනාධිපතිවරයාට එෙරහිව හදපු චිතපටයක්. ඒ වාෙග්ම ඔලිවර් ස්ෙටෝන් විසින් අධɕක්ෂණය කරන ලද “ඩබ්ලිව්” කියන චිතපටෙයන් ඉතාම නරක විධියට ෙජෝර්ජ් ඩබ්ලිව්. බුෂ්ෙග් විෙද්ශ පතිපත්තිය, යුදමය කියා මාර්ග සියල්ල ෙහළා දැක තිබුණා. ඒ විතරක් ෙනොෙවයි. “යර්ස් මිනිස්ටර්” කියන එක එංගලන්තෙය් පටිගත කරන ලද ෙටලිනාටɕයක්. ඒෙකන් ඉතාම නරක විධියට ෙටෝනි බ්ෙලයාර් අගමැතිතුමාට පහර ෙදන තත්ත්වයක් ඇති කර තිබුණා. සමස්ත එංගලන්ත පාර්ලිෙම්න්තු කමයම විවාදයට ලක් වන විධියටයි හදලා තිබුෙණ්. “හයිඩ් පාර්ක් ෙකෝනර්” කියලා තවත් චිතපටයක් තිබුණා. අපි දන්නවා. විෙශේෂෙයන් අෙප් විෙද්ශ ඇමතිතුමා ෙමතැන ඉන්නවා. එතුමාත් දන්නවා, එංගලන්තෙය් ලන්ඩන් නුවර හයිඩ්පාර්ක් ෙකෝනර් එකට ගියාම පවුම් පහක් දමලා ඕනෑ තරම් ආණ්ඩුවට බැණලා එන්න පුළුවන් බව. ඕනෑ ෙදයක් කියලා එන්න පුළුවන්. එෙහම නිදහසක්, සුපිරි පජාතන්තවාදයක් තිෙබන රටවල තිබුණ තත්ත්වය ඒකයි. එෙහම සුපිරි පජාතන්තවාදයක් අෙප් රෙට් තිබිය යුතුය කියලා මම කියන්ෙන් නැහැ. එෙහම අවශɕතාවකුත් නැහැ. මම කියන්ෙන් සාමානɕෙයන් ෙම් රෙට් නිර්මාණ කරන, ෙද්ශපාලන පහසනය කරන, නැත්නම් යම් කිසි කාරණා පිළිබඳව ජනතාවෙග් මතය ෙහළි දක්වන කලාකරුවන්ෙග් කලා නිර්මාණ ෙම් විධියට හාසɕයට ලක් කිරීම නැත්නම් කපා දැමීම තනිකර ෙද්ශපාලන වුවමනාවක් මත සිද්ධ වුණු ෙදයක් කියලායි.
+
+විෙශේෂෙයන්ම අෙශෝක ෙසේරසිංහ මැතිතුමා චිතපට සංස්ථාෙව් හිටපු සභාපතිවරෙයක්. එතුමා ඉන්න කාලෙය් ෙම් චිතපටය අනුමත කරලා, ෙම් චිතපටය හදන්න රුපියල් ලක්ෂ 40ක් ෙදනවා. ෙම් චිතපටය ෙබොෙහොම ජනපිය චිතපටයක් බවට පත් ෙවයි කියලා ඒ අය බලාෙපොෙරොත්තු ෙවනවා. ඒ නිසා ෙම්කට රුපියල් ලක්ෂ 40ක ආධාර මුදලක් ෙදන්නත් ඉඩ ෙදනවා. බලන්න, නිර්ෙද්ශිත කරුණු කියලා ගත්තාම ෙද්ශීය චිතපට වර්ගීකරණ වාර්තාව අනුව “ලීඩර්” චිතපටෙය් කියාදාම හා හාසɕ ජනක සිදුවීම් ඇතුළත්ව නිර්මාණය කළ චිතපටයක් බැවින් ආදායම් ලැබීෙම් ශකɕතාවක් පවතී. දැනට ලබා දී ඇති රුපියල් ලක්ෂ 20ක ණය මුදලට අමතරව තවත් රුපියල් විසිලක්ෂයක් ඒකට ෙදනවා. චිතපට සංස්ථාෙවන්ම රුපියල් ලක්ෂ 40ක් දීලා නිෂ්පාදනය කරපු චිතපටය, ඊට කලින් චිතපට සංස්ථාෙවන් පිටපත බලලා, ෙම්ක ෙහොඳයි, ෙම්ෙක් තිබුණු සින්දු ෙහොඳයි කියලා ඒ ඔක්ෙකොම අනුමත කළාට පස්ෙසේ අෙශෝක ෙසේරසිංහ මහත්මයාෙග් රැඟුම් පාලක මණ්ඩලෙය් කපන කතුරට අහු ෙවලා ෙම් මුළු චිතපටෙය් කෑලි ගණනාවක් කපා දමනවා. ෙම්ෙක් තිෙබන්ෙන් ෙවනත් පශ්නයක් ෙනොෙවයි. ෙම්ෙක් තිෙබනවා ජනාධිපතිතුමා රා ෙබොන දර්ශනයක්. ඒක ෙහොඳ නැත්නම් කිරි ෙබොනවා කියලා දමන්න පුළුවන්. කිරි ෙබෝතලයක් කෙට් හලා ගන්න දර්ශනයක් තිෙබනවා. තව තැනක ෙගෝඨාභය රාජපක්ෂ මහත්මයා ගැන කියනවා. තවත් තැනක බැසිල් රාජපක්ෂ මහත්මයා ගැන කියනවා. චන්දිකා මැතිනියව විෙව්චනය කරලා තිෙබනවා. රනිල් විකමසිංහ මහත්මයා ටකරම් කෙර් තබා ෙගන යන දර්ශනයක්
+
+2008 ෙදසැම්බර් 05 3387 3388
+
+තිෙබනවා, ෙම් චිතපටෙය්. ෙම් හැම තැනක්ම විෙව්චනය කරලා තිෙබනවා. ජනතා විමුක්ති ෙපරමුණ විෙව්චනය කරලා තිෙබනවා. Plug එක ගහ ෙගන ඉන්න දර්ශනයක් තිෙබනවා. ඒ ඔක්ෙකොම ෙම් චිතපටය ඇතුෙළේ තිෙබනවා. ෙම්ක ෙම් සියලු ෙද්ශපාලනඥයන්ට පහර ෙදන චිතපටයක්. ෙම්ක ඇතුෙළේ ඇති යමක් නැහැ. ෙම් රෙට් ජන විඥානය ෙවනස් ෙවලා, ෙහට උෙද් ෙම් ආණ්ඩුවට විරුද්ධව මහා දැවැන්ත රැල්ලක් ඇති වන, මහා දැවැන්ත චිතපටයක් ෙනොෙවයි ෙම් “ලීඩර්” චිතපටය. ෙම්ක ෙද්ශපාලන පහසනයක්. ෙම්කටත් බය ෙවලා. දැන් “පුරහඳ කළුවර” වාෙග් චිතපටයක් ගත්තාම අපි දකිනවා, ඒක සමහර ෙවලාවට ඉතාම නරක විධියට ජනතාවෙග් මානසිකත්වයට බලපාන්නට පුළුවන් කියලා. ෙමොකද, ඒෙක එක තැනක තිෙබනවා, ඔහු මිනි ෙපට්ටිය හැරලා බලන ෙකොට තිෙබන්ෙන් කකුල් ෙදක ෙනොෙවයි ෙකෙසල් ෙකොට ෙදකක්. එතෙකොට සමහර ෙවලාවට ෙම්ක දැකපුවාම ෙම් යුද්ධය පිළිබඳව මානසිකත්වය කඩා වැෙටන්නට පුළුවන්. නමුත් ෙම් “ලීඩර්" චිතපටය බලලා, ලංකාෙව් ජන මානසිකත්වය ෙවනස් ෙවලා, හදිසිෙය් ෙම් ආණ්ඩුවට විරුද්ධව මහා දැවැන්ත රැල්ලක් එයි කියලා හිතනවා ඇති. නමුත් එෙහම වන්ෙන් නැහැ. ෙද්ශපාලන ෙහංචයියලා ෙම් වාෙග් සුළුපටු කාරණා ෙම්ක ඇතුළට දමා ෙගන, ඒ ෙද්ශපාලන ෙහංචයියලාෙග් වුවමනා එපාකම් අනුව ෙම් විධියට වැඩ කරන්න ඉඩ තබන්ෙන් ඇයි කියලායි මා අහන්ෙන්. එතෙකොට දැන් බලන්න, ෙසෝමරත්න බාලසූරිය මැතිතුමා සිටින කාලෙය් සමහර චිතපට තිබුණා. එතෙකොට දැන් මා ෙම්ක සමාන කරනවා, “අබා” චිතපටයත් එක්ක. “අබා” චිතපටය ජැක්සන් ඇන්තනි මහත්මයායි කෙළේ. එතුමා දක්ෂ කලාකරුෙවක්. අපි එතුමාට ගරු කරනවා. එතුමාෙග් “අබා” චිතපටය ෙවනුෙවන් ෙම් ආණ්ඩුව වියදම් කළ මුදල ෙකොපමණද කියලා අපි ඇහුෙවොත්, අෙනක් නිෂ්පාදකයන් ෙවනුෙවන් ෙම් මුදල වියදම් කරලා නැත්ෙත් ඇයි? “අබා” චිතපටයට මුදල් ෙවන් කරලා දීලා තිෙබනවා. එතෙකොට ඊට අමතරව “ෙටලිෙකොම්” එෙකන් සල්ලි දීලා තිෙබනවා, ෙම් චිතපටය පදර්ශනය කරන්න අවශɕ පචාරක කටයුතු සඳහා. ඊට අමතරව රූපවාහිනිෙය් උෙද් ඉඳලා රෑ ෙවනකම් ජැක්සන් ඇන්තනි මහත්මයාවයි, නළු නිළිෙයොයි ඔක්ෙකොම ෙගන්වලා ඒෙක කථා කරනවා. එතැනින් පසුව අයිටීඑන් එෙකන් ෙගන්වලා “රිදම් චැට්” ද අර “චැට්” ද, ෙම් “චැට්” ද ඔක්ෙකොම “චැට්” වල දමනවා. ඒ, “අබා” චිතපටෙය් සිටින නළු නිළියන් ටික ෙගන්වලා. ඒ ලබා ෙදන සහෙයෝගය ෙම් රෙට් අෙනකුත් චිතපට කලාකරුවන්ට නැත්ෙත් ඇයි? මා අහන්ෙන් ඒකයි. “අබා” චිතපටෙය් අවසානෙය් පණ්ඩුකාභය රජ්ජුරුවන්ෙග් චරිතය විධියට රඟපාන කැහැටු ෙකොල්ෙලක් ඇවිල්ලා කියනවා, “මම ෙද්ශය රැක ගනිමි. මම ෙද්ශ ෙපේමිත්වය ෙවනුෙවන් ෙපනී සිටිමි. මම මවු බිම ෙබ්රා ගනිමි” කියලා. අවසාන වශෙයන් කියනවා, යුද්ධ කරන්නට එන්නය කියලා. ඒ කෑල්ලට තමයි ෙම් “අබා” චිතපටයට ඔය තරම් ෙගව්ෙව්. තව ඕෙක කෑලි ෙදකක් අ ඩුයි. ඒ කෑලි ෙදක තමයි, “මහින්ද රාජපක්ෂ මහත්මයාට ජය ෙව්වා, ෙපොදු ෙපරමුණට ජය ෙව්වා” කියලා කිව්වා නම් ඔන්න ඒක තවත් ෙහොඳයි. ඒ කෑලි ෙදක ඒෙක තිබුෙණ් නැහැ. ඒක තමයි ෙනොකියා කියන්ෙන්. ඉතින් ෙමන්න ෙම්කට තමයි “අබා” චිතපටයට ෙම්ච්චර සැලකිලි ලැෙබන්ෙන්. දැන් බලන්න, ෙම් ලංකාෙව් දක්ෂ අධɕක්ෂකවරුන් සිටිනවා. ෙලස්ටර් ෙජ්ම්ස් පීරිස් මහත්මයාෙග් ඉඳලා ගත්තාම දැවැන්ත සිනමාකරුවන් ගණනාවක් සිටින රටක් ෙම්ක. ඉතින් ෙම් රෙට් නිෂ්පාදනය කරන හැම චිතපටයකටම ඒ වාෙග් සලකන්ෙන් නැත්ෙත් ඇයි? [බාධා කිරීමක්] නැහැ, ඒ කිසිම ෙදයක් නැහැ, ගරු අතාවුද ෙසෙනවිරත්න ඇමතිතුමනි. මා ඒ චිතපටය බැලුවා. මට ඇවිල්ලා ෙපන්වුවා. සම්පූර්ණ අසතɕ කථාවක්. ෙම් වාෙග්ම කාරණා තව තිෙබනවා. දැන් බලන්න, සුළං කිරිල්ලි චිතපටය. [බාධා කිරීමක්] නැහැ, ඒක තමයි. මීට වඩා කුණු හරුප ෙම් රෙට් ෙපන්වනවා ෙන් ඇමතිතුමනි. [බාධා කිරීමක්] ඔව්, ඒක තමයි. ෙම් රෙට් මීට වඩා කුණු හරුප අපි දවස ගණෙන් දකිනවා.
+
+දැන් “ෙහජින්” එක ගැන ගත්ෙතොත් ඒක මහ කුණු හරුපයක්. ඒවා කරන්න ෙහොඳයි කැබිනට් මණ්ඩලයට. [බාධා කිරීමක්] මා කියන්ෙනත් ඒක තමයි. “ෙහජින්” එකත් කුණු හරුපයක් තමයි. “ෙහජින්” හරි, “ජිජින්” හරි. එතෙකොට ෙම් කුණු හරුප ෙපන්වන්න ෙහොඳයි. නමුත් මා කියන්ෙන් ෙම් “ලීඩර්” කියන චිතපට ෙය් ඇති එකක් නැහැයි කියලායි. මහජන මතය ෙවනස් කරන, රෙට් ජනතාවෙග් හිතට කාවද්දලා අෙනක් පැත්තට හරවන, මහා ෙලොකු පිපිරීමක් කරන, අන්න එෙහම වැඩ පිළිෙවළක් ෙනොෙවයි ෙම්ක ඇතුෙළේ තිෙබන්ෙන්. ෙම්ක හාසɕජනක චිතපටයක්. ඇයි, ෙම් චිතපටයට ෙමෙහම කරන්ෙන්? අෙප් ඇමතිතුමාත් දැන් ෙම් ගරු සභාෙව් සිටිනවා. දැන් බලන්න, රංජන් රාමනායක මහත්මයා එක්සත් ජාතික පක්ෂය ෙවනුෙවන් ෙද්ශපාලනය කිරීම නිසා තමයි ෙම් පශ්නය තිෙබන්ෙන්. ෙම් පශ්නය ඊට කලින් විජය කුමාරතුංග මහත්මයාටත් තිබුණා. අපි එය ෙහළා දකිනවා. එය වැරැදියි. එක්සත් ජාතික පක්ෂ ආණ්ඩු කාලෙය්ත් ෙම්වා තිබුණා. ඒවා වැරැදියි. දැන් තමුන්නාන්ෙසේලා ඇවිල්ලා තිෙබන්ෙන් අලුත් ශී ලංකාවක් හදන්නයි. ඉතින් අලුත් ශී ලංකාෙව් ෙමෙහම එකක්වත් කරන්න ෙදන්ෙන් නැත්නම්, ෙමොකටද ෙම් රට තිෙබන්ෙන්? ඒ කාලෙය් නන්දා මාලනී මහත්මියෙග් සින්දු පචාරය කරන්න දුන්ෙන් නැහැ. විජය කුමාරතුංග මහත්මයාෙග් සින්දු පචාරය කරන්න දුන්ෙන් නැහැ. කපුෙග් මහත්මයාෙග් සින්දු පචාරය කරන්න දුන්ෙන් නැහැ. ඒවා කපලා වාරණය කළා. අපි ඒවාට විරුද්ධයි. ඒ විරුද්ධතාව තියා ෙගන කලාව ෙවනුෙවන් අප කැප ෙවලා වැඩ කරනවා. අප කලාෙව් උන්නතිය ෙවනුෙවන් හඬක් නඟනවා. අද තමුන්නාන්ෙසේලා අලුත් ශී ලංකාවක් තුළ ෙමොකක්ද කරන්ෙන්? රන්ජන් රාමනායක මහත්මයා ශී ලංකා නිදහස් පක්ෂෙය් ෙද්ශපාලනය කළා නම් සමහර විට ලීඩර් චිතපටය අරෙගන -
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees) ගරු මන්තීතුමනි, කථාව අවසන් කරන්න.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, අෙප් පක්ෂෙය් අෙනක් මන්තීතුමාෙග් කාලෙයන් මම විනාඩි කිහිපයක් ගන්නවා. එතුමා කථා කරන්ෙන් නැහැ.
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees) විනාඩි පහෙළොව ඉවරයි.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) [බාධා කිරීමක්] ඒක තමයි. ඒ ගැන කථා කරන්න පුළුවන්. ඔබතුමාට ඒ ගැන විරුද්ධව කථා කරන්න පුළුවන්. ඒ ෙගොල්ලන්ෙග් වැෙඩ්ත් අප අනුමත කරන්ෙන් නැහැ. ඔබතුමාත්, මමත් ඉන්ෙන් එක මතයකයි. අන්ධානුකරණෙයන් කාවවත් ආරක්ෂා කරන්න මම නම් එක විනාඩියක්වත් ලෑස්ති නැහැ. අප ඒ මතෙය් ඉඳිමු.
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees) ෙව්ලාව ඉවරයි. අවසන් කරන්න.
+
+පාර්ලිෙම්න්තුව 3389 3390
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) තව විනාඩි කිහිපයක් ගන්නවා. නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees) අවසන් කරන්න. ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙමතුමාට ෙයෝජනාව ස්ථීර කරන්න ඕනෑ වන්ෙන් තත්පර කිහිපයක් විතරයි.
+
+දැන් බලන්න, රන්ජන් රාමනායක මැතිතුමා එක්සත් ජාතික පක්ෂෙයන් ඡන්දය ඉල්ලන නිසා ෙමොකද වුෙණ්? 2007, 2008 ජනපියම නළුවා විධියට එතුමා වැඩි ඡන්ද තුන්දහස් අටසිය ගණනක් අරෙගන තිෙබනවා. තමුන්නාන්ෙසේලා ෙමොකද කෙළේ? ''සරසවි'' සම්මාන උෙළල cancelled. ''සරසවි'' සම්මාන උෙළලම ඉවරයි. ෙහේතුව ෙමොකක්ද? රන්ජන් රාමනායක ජනපිය නළුවා විධියට සම්මානය ගන්න එක. බලන්න, ෙම්ක ෙමොන තරම් කුහකකමක්ද කියලා. ආණ්ඩුවක් ෙම් වාෙග් කුහකකම් කරනවා ද? ඒකයි මම කියන්ෙන්, ෙම් පක්ෂ ෙද්ශපාලනයට කත් අදින නළු නිළියන්ව උඩට උස්සන, ඊට විරුද්ධව සමාජෙය් හඬ නඟන මිනිසුන්ව පහතට තල්ලු කරන, ඒ මිනිසුන්ෙග් චිතපට කප්පාදු කරන ෙම් වාෙග් ෙද්ශපාලන ෙහංචයියලාව තියා ගන්න එපාය කියා මා ඔබතුමාෙගන් ෙගෞරවෙයන් ඉල්ලනවා. අප දන්නවා, ඔබතුමා කලාකරුවන්ට ෙබොෙහොම ආදරය කරන බව. කරුණාකර, ෙම් පිළිබඳව පියවරක් ගන්න. ෙමොකද, ෙම්ක ෙම් රෙට් කලාවට ඉතා දැවැන්ත ෙඛ්දජනක තත්ත්වයක්.
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees) හරි, අවසන් කරන්න. ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, දැන් ෙව්ලාව ප.ව. 5.00යි. 5.30 වනකම් ෙව්ලාව තිෙබනවා.
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees) විනාඩි 15යි ෙදන්ෙන්. ඔබතුමාෙග් විනාඩි 15 ඉවරයි. ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) අද ෙම් වාරණය ඇති ෙවලා තිෙබන්ෙන් එක පුද්ගලයකුට විතරක් ෙනොෙවයි. ෙම් රෙට් එක්සත් ජාතික පක්ෂෙය් ෙද්ශපාලනය කරන, ෙම් රෙට් අසාධාරණය ගැන කථා කරන සියලුම කලාකරුවන්ට තමුන්නාන්ෙසේලාෙග් ෙම් ආණ්ඩුව යටෙත් ඇති ෙවලා තිෙබන්ෙන් ඉතාම ෙඛ්දජනක ඉරණමක්. ඒ නිසා කරුණාකරලා ෙද්ශපාලන වශෙයන් අෙශෝක ෙසේරසිංහ මහත්මයා ෙගන තිෙබන ෙම් තීන්දුව අෙහෝසි කරලා ''ලීඩ ර්'' චිතපටය නිවැරදි විධියට ෙපන්වන්න ඉඩ ෙදන්න. ඔබතුමාෙග් අවසරය ඒකට ලබා ෙදන්නය කියලා ෙගෞරවෙයන් ඉල්ලා සිටිමින් මාෙග් වචන ස්වල්පය අවසන් කරනවා.
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees) ෙබොෙහොම ස්තුතියි. ෙයෝජනාව ස්ථීර කරන්න.
+
+ගරු ගයන්ත කරුණාතිලක මහතා (மாண்ᾗமிகு கயந்த கᾞணாதிலக்க) (The Hon. Gayantha Karunatileka) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ගරු දයාසිරි ජයෙසේකර මන්තීතුමා විසින් ෙගෙනන ලද කල් තැබීෙම් ෙයෝජනාව මා ස්ථීර ක රමින් කාලය පිළිබඳව තිෙබන පශ්නය නිසා අෙනක් මන්තීතුමන්ලාට කථා කරන්නට අවස්ථාව ලබා ෙදනවා.
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees) ෙබොෙහොම ස්තුතියි. මීළඟට ගරු ෆීලික්ස් ෙපෙර්රා ඇමතිතුමා. ගරු ෆීලික්ස් ෙපෙර්රා මහතා (ධීවර හා ජලජ සම්පත් අමාතɕතුමා)
+
+(மாண்ᾗமிகு பீᾢக்ஸ் ெபேரரா - கடற்ெறாழில், நீரக வளᾚலங்கள் அைமச்சர்)
+
+(The Hon. Felix Perera - Minister of Fisheries and Aquatic Resources)
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, මෙග් මිතයාෙග් කථාෙවන් පස්ෙසේ මට ක්ෂණිකව කථා කරන්න හිතුණා.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ඒ ඔබතුමා කලාකාරයකු නිසායි. ගරු ෆීලික්ස් ෙපෙර්රා මහතා (மாண்ᾗமிகு பீᾢக்ஸ் ெபேரரா) (The Hon. Felix Perera) කලාව මම දන්ෙන් නැහැ. ෙකොෙහොම වුණත් රන්ජන් රාමනායක කියන්ෙන් මෙග් ෙහොඳ හිත මිතෙයක්. එතුමා ෙද්ශපාලන වශෙයන් ඉස්ෙසල්ලාම උදවු කෙළේ මටයි. 1988 මැතිවරණෙය්දී මෙග් රැස්වීම් කිහිපයක ෙව්දිකාවල එතුමා කථා කළා. එතුමා වාමාංශික අදහස් තිබුණු ෙකෙනක්. විෙශේෂෙයන්ම විජයෙග් නෑදෑකම නිසා එතුමාට ෙලොකු පිළිගැනීමක් තිබුණා ඒ පෙද්ශෙය්. ෙකෙසේ ෙවතත්, මමත් චිතපටයක් ගැහුවා, ''රජ වංශෙය් එෙකක්'' කියලා. ඒ චිතපටිෙය් පධාන නළුවා වශෙයන් මා ෙතෝරා ගත්ෙත් රන්ජන් රාමනායක මහතායි. ඒ නිසා එතුමා ගැන මා ෙහොඳට දන්නවා. නමුත් එතුමාට ෙපොඩ්ඩක් දැන් පශ්නය පැටළිලා. ''ඔවා ෙදනු පර හට - තමා සම්මතෙයහි පිහිටා සිට'' කියලා කියමනක් තිෙබනවා ෙන්. තමුන් නිවැරදි ෙවලායි අෙනක් අයට උපෙදස් ෙදන්න ඕනෑ. එතුමාෙග් චිතපටවල තිෙබන ෙලොකුම දර්ශනය තමයි පාර්ලිෙම්න්තුව සමච්චලයට පත් කිරීම. ෙම් පාර්ලිෙම්න්තුව ඇතුෙළේ තමුන්නාන්ෙසේලාත් ඉන්නවා, මමත් ඉන්නවා. ෙම් පාර්ලිෙම්න්තුෙව්ම ගාමිනී ෙෆොන්ෙසේකා මහත්මයා නිෙයෝජɕ කථානායකවරයා වශෙයන් කියා කළා. එතුමා ෙබොෙහොම ෙගෞරවයට ලක් වුණු ෙපෞරුෂත්වයක් තිබුණු ෙකෙනක්. එපමණක් ෙනොෙවයි, රවීන්ද රන්ෙදණිය මහත්මයාත් ඒ වාෙගයි. ඒ මහත්මයා ඒ පැත්ෙත් ඉඳලා ඒ පැත්ත එපා ෙවලා ෙම් පැත්තට ආවා. ෙම් රෙට් එක්ෙකෝටි අනූලක්ෂයක් ජනතාවෙගන් 225 ෙදනාටයි ෙමතැනට එන්න පුළුවන්. එයිනුත් විවිධ හැකියාවන් තිෙබන අයට තමයි එන්න පුළුවන්. ෙම් ෙසේරම සමච්චලයට පත් කරන්න තරම් රන්ජන් රාමනායක මහතා සුදුස්ෙසක්ද කියන එකයි මෙග් පශ්නය. අන්න ඒකයි ෙමතැන තිෙබන වැරැද්ද. හරකුන්ට, ඌරන්ට, කුකුළන්ට, jokerලාට ජනාධිපතිවරයකු පත් කරන්න පුළුවන් ද? ජනාධිපතිවරයාෙග් පතිරූපය මත තමයි ෙම් රෙට් අනාගතෙය් ශක්තිය සහ රණ විරුවන්ෙග් අභිමානය රැඳී පවතින්ෙන්. ජනාධිපතිතුමාව හෑල්ලුවට ලක් කරනවා නම්, ෙගෝඨාභය රාජපක්ෂ මහත්මයාව මරන්න ගිහින් අනූ නවෙයන් ෙබ්රිලා, ෙමපමණ සටනක් කරමින් තස්තවාදය නැති කරන්න උදවු කරන එක හෑල්ලුවට ලක් කරනවා නම් ඒක හරිද? තමුන්නාන්ෙසේත් කලාකාරෙයක්. තමුන්නාන්ෙසේෙග් ෙනෝනා මහත්මයා කලා පවුලක දියණියක්.
+
+2008 ෙදසැම්බර් 05 3391 3392
+
+ඒ නිසා ෙම්වා හෑල්ලුවට පත් කරන්න ෙදන්න එපා. ඒ ෙවනුෙවන් කථා කරන්නත් එපා. තමුන්නාන්ෙසේත් කලාකාරෙයක්. එතුමා මෙග් මිතයා බව මම දන්නවා. හැබැයි සමස්ත පාර්ලිෙම්න්තුවම හෑල්ලුවට ලක් කරන්න එතුමාට අයිතියක් නැහැයි කියන එක මතක් කරන්න ඕනෑ. ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ඇමතිතුමා බැලුෙව් නැහැ ෙන්. ගරු ෆීලික්ස් ෙපෙර්රා මහතා (மாண்ᾗமிகு பீᾢக்ஸ் ெபேரரா) (The Hon. Felix Perera) බලන්න ෙදයක් නැහැ. කියාෙවන් ෙපෙනනවා ෙන්. පාර්ලිෙම්න්තුවට එන්න හදන එක් ෙකනා "පාර්ලි මන්ට් ෙජෝක්ස්" කියලා චිතපටයක් හදනවා. ෙපොඩ්ඩක් ඉන්න ෙකෝ. කථා කරන්න ඕනෑ නැහැ. පාර්ලිමන්ට් ෙජෝක්ස් කියලා පාර්ලිෙම්න්තුවටම පහර ගහලා ඒකටම එන්න ලැහැස්ති ෙවනවා. ෙද්ශපාලනඥෙයෝ අවඥාවට ලක් කරලා, හෑල්ලුවට ලක් කරලා කථා කරනවා. ෙමතැන කී ෙදෙනක් ඉන්නවාද, උගත් බුද්ධිමත් අය. ආචාර්යවරු, මහාචාර්යවරු ෙමතැන ඉන්නවා. ජී.එල්. පීරිස් මහත්මයා බලන්න. දයාසිරි ජයෙසේකර මන්තීතුමාෙග් නායකයා.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ෙජෝකර්ලාත් ඉන්නවා ෙන්. ගරු ෆීලික්ස් ෙපෙර්රා මහතා (மாண்ᾗமிகு பீᾢக்ஸ் ெபேரரா) (The Hon. Felix Perera) ෙජෝකර්ලා හැම පැත්තකම ඉන්නවා ෙන්. රංෙග බණ්ඩාර [මූලාසනෙය් අණ පරිදි ඉවත් කරන ලදී.] [அக்கிராசனக் கட்டைளப்பᾊ அகற்றப்பட்ᾌள்ளᾐ] [Expunged on the order of the Chair.] ඊෙය් ගණිකා නිවාසයක් අල්ලා ගත්තාට පස්ෙසේ කිව්ෙව් ඒ ගණිකා නිවාසය මෙග් ෙගෝලෙයක් කරනවාය කියා. එළිෙයදි හමු වුණා නම් මම දන්නවා එයාට ෙමොනවාද කරන්ෙන් කියා. ෙම් වාෙග්
+
+[මූලාසනෙය් අණ පරිදි ඉවත් කරන ලදී.] [அக்கிராசனக் கட்டைளப்பᾊ அகற்றப்பட்ᾌள்ளᾐ] [Expunged on the order of the Chair.] අන්තිමට නමක් දමනවා, මෙග් ෙගෝලෙයක් කියලා. මෙග් දරුෙවො පල්ලා මම ෙමොකුත් දන්ෙන් නැහැ. ෙගෝලෙයක් තියා මම ඒ පැත්තක්වත් දැකලා නැහැ අඩු තරමින්, සිංහෙලන්ම කියනවා නම්. එෙහම ෙජෝකර්ලා ඉන්න පැත්තක් ෙම්ක. ඒ නිසා අෙප් ජනාධිපතිතුමා විහිළුවට ලක් කරන්න, ෙගෝඨාභය රාජපක්ෂ මහත්මයා විහිළුවට ලක් කරන්න එතුමාට එෙහම සුදුසුකමක් නැහැයි කියන එක මතක් කරන්න ඕනෑ, මමත් ගම්පහ දිස්තික්කෙය් සිටින ෙකෙනක් වශෙයන්. ෙම්ක, විජය කුමාරණතුංග මහත්මයා වාෙග් ෙශේෂ්ඨ මනුෂɕයකුෙග් ඥාතිෙයක් ෙවලාත් එතුමාටත් කරන අෙගෞරවයක්. එතුමාවත් විකුණා ගත්තා ෙම් ඡන්දෙය්දී. අපි කවුරුවත් විකුණා ගන්ෙන් නැහැ. මෙග් ෙද්ශපාලනෙය්දී, විජයෙග් ෙද්ශපාලනෙය්දී ආගම් විකුණලාත් නැහැ. මිනිසුන්ට ගරහලාත් නැහැ. මිනිසුන්ව පාච්චලයට ලක් කරලාත් නැහැ. හෑල්ලුවට ලක් කරලාත් නැහැ. හැබැයි අපි ෙද්ශපාලනය කරනවා. අන්න ඒ ටික තමයි මට අද කියන්න හිතුෙණ් එක පාරම, කනගාටුෙවන් වුවත් ඔබතුමා ෙවනුෙවන්. ඔබතුමාට මම ගරු කරනවා. ඔබතුමා ෙහොඳ මනුෂɕෙයක්. අද යූඑන්පී එකට කථිකෙයෝ නැති ෙවලාෙව් ඔබතුමා තමයි දැන් ඉන්නා එකම කථිකයා. යූඑන්පී එකට ෙලොකු සුනාමියක් ඇවිල්ලා. ඒ සුනාමිෙයන් ෙබ්රා ගන්න ඉන්ෙන් එක් ෙකනායි;
+
+one-man show. අපි සන්ෙතෝෂයි. අෙප් යාළුවා; සංගීතඥයා; ගායකයා. ලස්සනට සින්දු කියන එක් ෙකනා. අමරෙද්ව මරනවා. සමා ෙවන්න. මරනවා ෙනොෙවයි. මරන්ෙන් නැතිව ෙහොඳට කියනවා. මරන්ෙන් නැතිව ලස්සනට සින්දු කියනවා. ෙමතුමාෙග් ගායනයක් ඇහුවා නම් පිස්සු හැෙදනවා අපට. එෙහම මනුෂɕෙයක්. ඔබතුමා ෙපොඩ්ඩක් ඔළුව ෙහෝදා ගන්න. මම ඔබතුමාට කියන්ෙන් වැඩිහිටිෙයක් වශෙයන්. ආරක්ෂා කර ගන්න එපා, කරුණාකර එතුමාට ෙම්වා කියන්න. මම තමයි ඉස්ෙසල්ලාම "සාජන්ට් නල්ලතම්බි" නාටɕ මැද ෙපරදිග ෙගන ගිහින් ෙපන්වූෙය්. ෙකොෙහන් හරි ෙම්කට අෙපත් සම්බන්ධයක් තිෙබනවා. එම නිසා අපි ගරහන්ෙන් නැහැ. පාච්චල් කරන්ෙන් නැහැ. පාර්ලිෙම්න්තුව පාච්චල් කරන්ෙන් ෙකොෙහොමද, ෙමතුමාත් ඉන්නවා ෙන් ෙම්ෙක්. තමුන්නාන්ෙසේලාෙග් නායකයාත් - රනිල් විකමසිංහ මැතිතුමාත් - ඉන්නවා ෙන්. පාර්ලිෙම්න්තුව joke එකක් ද? ෙමතැන jokes කථා කරන්නද එන්ෙන්? ඒ නිසා මතක් කරලා පතිපත්ති ආරක්ෂා කරන්න, ගරහන්න එපා, ජරා කථා කියන්න එපා, සාධාරණය ඉෂ්ට කරන්න කියලා -
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ඇමතිතුමා, දැන් “පාර්ලිමන්ට් ෙජෝක්ස්” චිතපටියටත් වඩා හපන්.
+
+ගරු ෆීලික්ස් ෙපෙර්රා මහතා (மாண்ᾗமிகு பீᾢக்ஸ் ெபேரரா) (The Hon. Felix Perera) නැහැ, නැහැ. අපි ෙමතැන කථා කරලා එළිෙය් ගහ ගන්නවාද? මිනිස්සු අපි ෙවනුෙවන් එළිෙය් මරා ගන්නවා. [බාධා කිරීමක්] තත්පරයක් ඉන්න ෙකෝ. අපි ෙමතැනට ඇවිල්ලා කථා කරලා, කරට අත දමා ෙගන ගිහිල්ලා කැන්ටින් එෙකන් කාලා, අනික් පැත්ෙතන් එක වාහනෙය් නැගලා යනවා. අෙප් මිනිස්සු එළිෙය් ෙවඩි තියා ෙගන මරා ගන්නවා. ෙම් joke එක නතර කරන්න. හැම ෙදනාටම කියන්න අපි සහෙයෝගෙයන් ඉන්නවා, සමාදානෙයන් ඉන්නවාය කියා. අපි සියලු ෙදනාම එකතු ෙවලා පාර්ලිෙම්න්තුෙව් ෙගෞරවය ආරක්ෂා කරන්න කටයුතු කරමුය කියා ඉල්ලා සිටිමින් ෙම් අවස්ථාව ලබා දීම ගැන ගරු නිෙයෝජɕ කාරක සභාපතිතුමාට ස්තුතිවන්ත ෙවමින්, එක පාරටම මට ෙම් ගැන කථා කරන්නට සිතුණු එක ගැන මටම පශංසා කර ගනිමින් මා නිහඬ ෙවනවා.
+
+ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (සංස්කෘතික කටයුතු අමාතɕතුමා)
+
+(மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன - கலாசார அᾤவல்கள் அைமச்சர்)
+
+(The Hon. Mahinda Yapa Abeywardene - Minister of Cultural Affairs)
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, දයාසිරි ජයෙසේකර මන්තීතුමා කිව්වා, ෙම් චිතපටය තහනම් කර තිෙබනවාය කියා. පළමුෙවන්ම කියන්න ඕනෑ, එෙහම එකක් කර නැති බව. තහනම් කර නැහැ. ෙම් චිතපටෙය් නිෂ්පාදක රන්ජන් රාමනායක මැතිතුමායි, අෙශෝක ෙසේරසිංහ මැතිතුමායි ඊෙය් රාතිෙය් මැක්ස් රූපවාහිනිෙය් ෙම් සම්බන්ධව මුහුණට මුහුණ වාදයක් කර ගත්තා. මුල ඉඳලා අගටම මම ඒක බලා ෙගන සිටියා. ඊෙය් ඒ වාදෙය්දී රන්ජන් රාමනායක මැතිතුමා පිළිගත්තා, එයාට ෙම් චිතපටය හදන්න ෙද්ශපාලන ෙභ්දයකින් ෙතොරව චිතපට සංස්ථාෙවන් රුපියල් ලක්ෂ 40ක් ණය දුන්නාය කියා. ඉතින් එෙහම නම් ෙද්ශපාලනයක් ෙකොෙහේද ෙමතැන තිෙබන්ෙන්? ෙමතැන ෙද්ශපාලනයක් නැහැ.
+
+ගරු ෆීලික්ස් ෙපෙර්රා මහතා (மாண்ᾗமிகு பீᾢக்ஸ் ெபேரரா) (The Hon. Felix Perera) ඒකත් අරෙගන පාර්ලිෙම්න්තුවට ගරහනවා.
+
+පාර්ලිෙම්න්තුව 3393 3394
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) චිතපට සංස්ථාෙව් සභාපතිතුමාෙග් තීරණය අනුව එතුමා ඒක දුන්නා. එතැනින් පස්ෙසේ තමයි කැපිල්ල පටන් ගත්ෙත්. ඒකයි මම ෙම් කියන්ෙන්. එතෙකොට ෙමතුමා ඡන්දය ඉල්ලලා තිබුෙණ් නැහැ. ඒකයි මම කියන්ෙන්.
+
+ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன) (The Hon. Mahinda Yapa Abeywardene) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ඡන්දය ඉල්ලලා තිබුෙණ් නැති වුණාට එතුමා ඒ වන ෙකොට එක්සත් ජාතික පක්ෂෙය් කටාන ආසනෙය් සංවිධායක.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) නැහැ, නැහැ. ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன) (The Hon. Mahinda Yapa Abeywardene) එෙහම ෙකොෙහොමද කියන්ෙන්? ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) රුපියල් ලක්ෂ 40 ගන්න ෙකොට නිෙයෝජɕ කාරක සභාපතිතුමනි -
+
+ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன) (The Hon. Mahinda Yapa Abeywardene) ඔබතුමා කරුණාකරලා ෙම් සභාව ෙනොමඟ යවන්න එපා. ෙම් රුපියල් ලක්ෂ 40ක ණය මුදල දුන්ෙන් 2007 ඔක්ෙතෝබර් මාසෙය් 04 වන දා. [බාධා කිරීමක්] එතෙකොට එතුමා කටාන ආසනෙය් එක්සත් ජාතික පක්ෂෙය් සංවිධායක. ඒක එතුමා ඊෙය් පිළිගත්තා. [බාධා කිරීමක්]
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) රංජන් රාමනායක මහත්තයා ඡන්දය ඉල්ලුවා ෙන්. ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன) (The Hon. Mahinda Yapa Abeywardene) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, මම ෙම්කට කරුණු එකතු කරලා ෙනොෙවයි කියන්ෙන්. ඊෙය් මැක්ස් රූපවාහිනිෙය් ෙම් ෙදෙදනාම ෙපනී සිටින සාකච්ඡාවක් තිබුණා. අෙශෝක ෙසේරසිංහ කියලා කියන්ෙන් චිතපට සංස්ථාෙව් හිටපු සභාපතිතුමා. එතුමා අද රැඟුම් පාලක මණ්ඩලෙය් සභාපතිතුමා. රන්ජන් රාමනායක මැතිතුමාෙග් නීතිඥ මහත්මයා. ෙම් ෙවන කවුරුවත් ෙනොෙවයි. රන්ජන් රාමනායක මහත්මයාෙග් නඩුවලට ෙපනී සිටිය නීතිඥ මහත්මයායි, අෙශෝක ෙසේරසිංහ කියලා කියන්ෙන්. ෙම් ෙදෙදනා ඊෙය් ෙම්සය ෙදපැත්ෙත් ඉඳ ෙගන විවාදයක් කර ගත්තා, ෙම් පශ්නය ගැන. ඒ ෙවලාෙව් ඒක මම බලා ෙගන සිටියා. නැත්නම් ඔය දින වකවානු මම දන්ෙන් නැහැ. 2007 ඔක්ෙතෝබර් මාසෙය් 04 වන දා තමයි එතුමාට ණය මුදල දීලා තිෙබන්ෙන්. එතුමා කටාන ආසනෙය් සංවිධායක ෙවලා තිෙබන්ෙන් 2007 මැයි මාසෙය්. ඉතින් ඔබතුමා ඒක ගැන ෙම් සභාව ෙනොමඟ යවන්න උත්සාහ කරන්න එපා.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙම්ෙක් ෙද්ශපාලනයක් නැහැ. ගරු ෆීලික්ස් ෙපෙර්රා ඇමතිතුමා කිව්වා වාෙග් මතයක් ෙමතැන තිෙබන එක ඇත්ත. ෙම් චිතපටය මම බැලුෙවත් නැහැ. මම බලන්න උනන්දු වුෙණ් නැහැ. ෙමොකද, මම බලලා ෙම්කට තීන්දුවක් දුන්නා නම් කියයි, ෙම්ක ෙද්ශපාලනඥ ෙයෝ තුන් හතර ෙදෙනක් බලලා තීන්දුවක් ගත්තායි කියලා. එෙහම එකක් ෙම්ෙක් නැහැ. රැඟුම් පාලක මණ්ඩලෙය් ෙදොෙළොස් ෙදෙනක් ෙම් චිතපටය බැලුවා. ෙදොෙළොස් ෙදෙනක් බලලා, දහ ෙදෙනක් ෙම් ෙයෝජනාවන්වලට එකඟ වුණා. රැඟුම් පාලක මණ්ඩලෙය් ඉන්න සියලු ෙදනාම ෙද්ශපාලනඥෙයෝ ෙනොෙවයි. ඒෙක් ඉන්ෙන් ෙම් රෙට් පබුද්ධෙයෝ, ෙම් විෂයය ගැන අව ෙබෝධයක් තිෙබන සමාජෙය් පිළිගත් පුද්ගලෙයෝ. ඒ ෙදොෙළොස් ෙදනාෙගන් දහ ෙදෙනක් අත්සන් කරලා තීන්දුවක් දීලා තිෙබනවා, ෙම් කරපු ෙයෝජනාවන් සාධාරණයි කියලා. යම් දර්ශන කීපයක් ඉවත් කරන්න කියලා විතරයි කියන්ෙන්. චිතපටයට ෙමොකුත් හානියක් ෙවලා නැහැ.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) හානියක් ෙනොෙවයි ගරු මන්තීතුමා, ඒක කපපුවාම චිතපටය ඉවරයි.
+
+ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன) (The Hon. Mahinda Yapa Abeywardene) ඒ තමුන්නාන්ෙසේ දකින හැටි. මම හිතන්ෙන් නැහැ එෙහම. රන්ජන් රාමනායක මහත්තයාත් ඇවිත් මාව මුණ ගැහුණා. ඇවිත් මාත් එක්ක කථා කළා. එතුමා කැමැති වුෙණ් නැහැ, ෙම් සින්දුව අයින් කරන්න. සින්දුව තිබුණාට අපට පශ්නයක් නැහැ, ඒ සින්දුවට සම්බන්ධ දර්ශන කීපයක් තිෙබනවා. අන්න ඒ දර්ශන ටික ඉවත් කරන්න තමයි රැඟුම් පාලක මණ්ඩලය තීන්දු කරලා තිෙබන්ෙන්. “පාර්ලිමන්ට් ෙජෝක්ස්” කියලා චිතපටයක් හදලා ෙම් රෙට් සියලුම ෙදනා බැලුවා. ඒක වි ෙනෝදය සඳහා කරපු නිර්මාණයක්. ඒ ගැන අෙප් පශ්නයක් නැහැ. නමුත් ෙමතැනදී මහින්ද රාජපක්ෂ ජනාධිපතිතුමාෙග් නමට ෙකළින්ම කථා කරනවා; ෙගෝඨාභය රාජපක්ෂ මහත්මයාෙග් නමට ෙකළින්ම කථා කරනවා; බැසිල් රාජපක්ෂ මහත්මයාෙග් නමට ෙකළින්ම කථා කරනවා. එෙහම චිතපට හදනවාද, ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි? ඒකට ෙවන නමක් දමන්න තිබුණා ෙන්.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) අමාතɕතුමා එෙහම කරන්න බැරිද? ෙලෝකෙය් අෙනක් චිතපටවල බලන්න. මම ඒකයි ඔබතුමාට කිව්ෙව්. “ෆැරන්හයිට් නයින් ඉෙලවන්" චිතපටය බලන්න. ෙජෝර්ජ් බුෂ් මහත්තයාෙග් නම ෙනොෙවයි, බාප්පාෙග්, පුංචි අම්මාෙග් නම් පවා කියනවා.
+
+ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன) (The Hon. Mahinda Yapa Abeywardene) අපි ඉන්ෙන් ඇෙමරිකාෙව් ෙනොෙවයි ෙන් මන්තීතුමා. අපි ඉන්ෙන් ශී ලංකාෙව්. ඕක තමයි අපට ෙවලා තිෙබන පශ්නය. අපි ඉන්න තැන ෙකොතැනද කියලා අපට මතක නැහැ, ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි. අපි ඉන්න තැන අපි දන්ෙන් නැහැ. අපි කරන්ෙන් ෙමොනවාද කියලා අපි දන්ෙන් නැහැ. ෙමන්න ෙම් වාෙග් ගැටලුවකුයි ෙමතැන තිෙබන්ෙන්. ෙම්කට අපි මැදිහත් ෙවන්න අවශɕ නැහැ. ෙද්ශපාලනයක් ෙමතැන නැහැ. රන්ජන් රාමනායක මහත්තයා මාව මුණ ගැහුණාම මම කිව්ෙව්, එතුමාෙග් ඉල්ලීම සම්බන්ධෙයන් නීතිමය වශෙයන් මට ගන්න පුළුවන් එක පියවරයි තිෙබන්ෙන්, මට ෙමය තවත් විද්වත් මණ්ඩලයකට ෙයොමු කරන්න පුළුවන් කියන එකයි. ඒ විද්වත් මණ්ඩලය ගන්නා තීරණය කුමක්ද කියන එක පසිද්ධ කරලා ඒ සම්බන්ධෙයන් අපට තීරණයක් ගන්න පුළුවන්. ඉතින් ඒ තත්ත්වය තවමත් තිෙබනවා. චිතපටයට කිසිම හානියක්, කිසිම බාධාවක් නැහැ.
+
+2008 ෙදසැම්බර් 05 3395 3396
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, අපි ඉෙගන ගන්නා කාලෙය් සිට අහලා තිෙබන කියමනක් තිෙබනවා, “කලාව තිෙබන්න ඕනෑ කලාව සඳහා පමණයි” කියා. කලාව, කලාව සඳහායි. කලාව මුදල් සඳහාත් ෙනොෙවයි, කලාව ෙද්ශපාලනය සඳහාත් ෙනොෙවයි. ඒකයි කලාව කියලා කියන්ෙන්. ඒ නිසා කලාව විකෘති කරලා ෙකොතැනක දී ෙහෝ ෙද්ශපාලන වුවමනාවකට යනවා නම් ෙකොතැනක දී ෙහෝ ෙම් බාධාව එනවා. ෙමතැනදී ෙනොෙවයි නම් ෙවන තැනකදී එනවා. ඒක කවුරුත් ෙත්රුම් ගන්න ඕනෑ. මන්තීතුමා අර “අක්ෂරය” ගැන කථා කළා. අපි ඉතා කනගාටුෙවන් තමයි යම් යම් තීරණ ගත ්ෙත්. මන්තීතුමා හිතන්න එපා ඒ චිතපටය ගැන ද්ෙව්ෂෙයන්, ෙකෝධෙයන් එෙහම කළාය කියා. යම් යම් තැන්වලදී අෙප් සංස්කෘතියට ඒක ගළපන්න බැහැ කියා සද්භාවෙයන් යුතුව අපි විශ්වාස ෙකරුවා. සමහර විට පබුද්ධ, අතිවිශාල දියුණු මනසක් තිෙබන ෙකනකුට ඒ චිතපටෙය් හරයක් ෙපෙනන්ෙන් නැති ෙවන්න පුළුවන්. නමුත් ඕක අෙප් ගෙම් කුඩා දරුෙවක් බැලුෙවොත් - එම චිතපටය වැඩිහිටියන්ට පමණයි කියා සීමා කර නැහැ - වැටෙහන්ෙන් කුමක්ද කියන එකයි රැඟුම් පාලක මණ්ඩලය වශෙයනුත් ඒ වාෙග්ම සංස්කෘතික කටයුතු අමාතɕාංශය වශෙයනුත් අපිට බලන්න තිෙබන්ෙන්. ඒ අනුවයි අපි බැලුෙව්. එෙහම නැතිව ඒ කලාකරුවාෙග කලා කුසලතාවට හානි කරන්න, ඒ කලා කුසලතාව හෑල්ලු කරන්න, ඒකට නිගා කරන්න හිතලා කළා ෙනොෙවයි. අෙප් ෙයෝජනාව වුෙණ් එක දර්ශනයක් විතරක් ඉවත් කරන්නයි. චිතපටයට කිසිම හානියක් කරන්ෙන් නැතිව ඒ දර්ශනය ඉවත් කරන්න ඉඩ තිබුණා. ඒක කෙළේ නැතිව තමයි ෙම්ක මහා අවුලක් දක්වා ඇදුෙණ්. මම විතරක් ෙනොෙවයි අන්තිෙම්දී අධිකරණයත් තීන්දු කළා, අපි ගත්ත තීරණය නිවැරදියි කියා. අධිකරණය එෙහම තීන්දු කරන තත්ත්වයට වැටුෙණ් ඒ ෙහේතුව නිසායි. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, එක දර්ශනයක් ඉවත් කළා නම් ෙම් චිතපටයටත් කිසිම හානියක් වන්ෙන් නැහැ. ඔය කියන ෙද්ශපාලනයක් ෙමතැන නැහැ. ඔය කියන ෙද්ශපාලනඥෙයෝ ෙම් ගැන දන්ෙන්වත් නැහැ. මම දන්ෙනත් ෙම් පශ්නය මතු වුණාට පසුව තමයි. මා ළඟට ඇවිත් කථා කළාට පසුව තමයි මම දැන ගත්ෙත්. එදා උෙද් ෙවනත් උත්සවයකදී මට රැඟුම් පාලක මණ්ඩලෙය් සභාපතිතුමා හම්බ වුණා. එහිදී එතුමා මට කිව්වා, "ෙමෙහම පශ්නයක් තිෙබනවා. සමහර විට ඔබතුමා මුණ ගැෙහන්න එයි" කියා. එතෙකොට තමයි විස්තරය ටිකක් ෙහෝ මම දැන ගත්ෙත්. සවස රන්ජන් රාමනායක මැතිතුමා ඇවිත් මා මුණ ගැසුණා. පැය එකහමාරකට වැඩිය එතුමා මාත් එක්ක කථා කර කර සිටියා. ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ඔබතුමා කරන්ෙන් නැහැ. ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன) (The Hon. Mahinda Yapa Abeywardene) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, මම කියන්ෙන් ෙම්කයි. ෙම් හැම ෙදයකදීම ෙද්ශපාලනයට යන්න එපා. ඒවා පාවිච්චි කරන්න එපා. ෙද්ශපාලනය කරන්න පුළුවන් තැන් තිෙබනවා. නමුත් ෙම් ෙසේරම ෙද්ශපාලනය තුළින් කරන්න ගියාම එක්ෙකෝ ෙද්ශපාලනය විනාශ ෙවයි. එෙහම නැත්නම් කලාව විනාශ ෙවයි.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ඔබතුමා එෙහම කරන්ෙන් නැහැ. ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன) (The Hon. Mahinda Yapa Abeywardene) ඔය ෙදකින් එකක් ෙවයි.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) සභාපතිතුමා තමයි,-
+
+ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன) (The Hon. Mahinda Yapa Abeywardene) ඔබතුමා කියන්ෙන් මම එෙහම කරන්ෙන් නැහැ කියලායි. අෙප් ආයතනෙය් කිසිම ෙකෙනක් එෙහම ෙද්වල් කරන්ෙන් නැහැ. එෙහම කරනවා නම් මම දන්නවා. මම කියනවා, මම ෙනොදැනුවත්ව අෙප් ආයතනෙය් කිසි ෙදයක් සිද්ධ ෙවන්න විධියක් නැහැ කියා. ෙම්ක වුණාට පසුව ෙම් ෙගොල්ෙලෝ තීරණයක් අරෙගන ඉවර ෙවලා මට දැන්වූවා. එදා උෙද් තමයි එෙහම දැන්වූෙව්.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) සරසවි චිතපට උෙළලට ෙමොකද වුෙණ්?
+
+ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன) (The Hon. Mahinda Yapa Abeywardene) ඔබතුමා මෙගන් ඇහුවාට ඒක මෙග් අමාතɕාංශයට අයිති ෙදයක් ෙනොෙවයි ෙන්. මෙග් අමාතɕාංශය සරසවි චිතපට උෙළල සංවිධානය කරන්ෙන් නැහැ. [බාධා කිරීමක්] නැහැ, නැහැ. මා හිතන්ෙන් ඒක චිතපට සංස්ථාෙවන් කරන්ෙන්. සරසවි චිතපට උෙළල මෙග් අමාතɕාංශෙයන් සංවිධානය ෙකෙරන්ෙන් නැහැ. ඒකත් ඔබතුමන්ලා වැරදි ෙකෝණයකින් තමයි බලන්ෙන්. එෙහම බලන්න එපා. පශ්නයක් තිෙබනවා නම් කථා කරන්න. එහි යථාර්ථයක් තිෙබනවා.
+
+ගහන්න ඕනෑ නම් ගහන්න. මහින්ද රාජපක්ෂ ජනාධිපතිතුමා ට ඕනෑ තරම් ඔය ගහන්ෙන්; ෙමතැනදීත් ගහන්ෙන්. ෙගෝඨාභය රාජපක්ෂ මහත්මයා ෙම් රට ෙබ්රා ගන්න ෙමච්චර වැඩක් කරද්දී, දන්න ෙසල්ලම් ෙසේරම දමලා රට ෙබ්රා ගන්න කටයුතු කරද්දී ෙමතැනදී ගහන්ෙන්. ඕක ෙන් ෙලෝක ස්වභාවය. ඕක ෙන් ෙද්ශපාලනය කියලා කියන්ෙන්. ඒත් කමක් නැහැ. බැසිල් රාජපක්ෂ මැතිතුමා රට පුරාම සංවර්ධනය සඳහා දුව ඇවිදිනවා. ඒත් ඔය ගහන්ෙන්. එෙහම ගහනවාට අපි විරුද්ධ නැහැ. ගහන්න. ඕකට ෙන් තමුන්නාන්ෙසේලා ඉන්ෙන්. එෙහම ෙනොගැහුෙවොත් ෙමතැනදී අපිටත් ඇඟට අමාරුයි වාෙග්; කිසි ෙජොලියක් නැහැ වාෙගයි. ඒ නිසා ගහන්න.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara චමල් රාජපක්ෂ මැතිතුමාට?
+
+ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன) (The Hon. Mahinda Yapa Abeywardene) කාටත් ගහන්න. [බාධා කිරීමක්] ඉතින් එයාටත් ගහනවා ෙන්. තමුන්නාන්ෙසේලා ෙග් වගකීම ෙන්. ඒක කරන්න. ඒකට කමක් නැහැ.
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara බැසිල් රාජපක්ෂ මැතිතුමාට?
+
+පාර්ලිෙම්න්තුව
+
+ගරු මහින්ද යාපා අෙබ්වර්ධන මහතා (மாண்ᾗமிகு மஹிந்த யாப்பா அேபவர்தன) (The Hon. Mahinda Yapa Abeywardene) නමුත් ෙම් වාෙග් බාල මට්ටමට වැෙටන්න එපා. චිතපටයක් හදලා ඒකත් ෙගන එනවා ෙම්කට ගහන්න. ගහන්න පුළුවන් අතට අහු වන හැම එෙකන්ම ගහනවා. අතට අහු වන්ෙන් ෙමොකක්ද? ඒ හැම එෙකන්ම ගහනවා. ෙම් ගැහිල්ල කළාට කමක් නැහැ. ඒක තමයි ෙද්ශපාලනය කියලා කියන්ෙන්. නමුත් ඒකට ෙම් කලාව පෙයෝජනයට ගන්න එපා. කලාව තිෙයන්ෙන් -මම කලින් කිව්වා වාෙග්- කලාව සඳහා පමණයි. කලා රසයක් විඳින්ෙන් කලා හදවතක් තිෙබන ෙකනකු පමණයි. කලාව ෙවනුෙවන් කැප වුණු අය ඉතිහාසෙයත් අෙප් රෙට් ඉඳලා තිෙබනවා. ඒ නිසා ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙම් ෙචෝදනා සියල්ලම මම පතික්ෙෂේප කරනවා. ෙමෙහම ෙදයක් නැහැ. ෙම් පශ්නය ඉතා සුළු පශ්නයක්. ෙම් දර්ශනය චිතපටෙයන් ඉවත් කළා නම් ඒ පශ්නය එතැනින් අවසානයි කියා පකාශ කරමින් මා මාෙග් වචන ස්වල්පය හමාර කරනවා.
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees) ෙබොෙහොම ස්තුතියි, ඇමතිතුමා. පශ්නය විමසන ලදින්, සභා සම්මත විය. வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. Question put, and agreed to.
+
+පාර්ලිෙම්න්තුව ඊට අනුකූලව අ. භා. 5.18ට, 2008 ෙනොවැම්බර් 27 වන දින සභාසම්මතිය අනුව, 2008 ෙදසැම්බර් මස 08 සඳුදා පූ.භා. 9.30 වන ෙතක් කල් ගිෙය්ය.
+
+அதன்பᾊ பி. ப. 5.18 மணிக்கு பாராᾦமன்றம், அதனᾐ 2008 நவம்பர் 27ஆம் திகதிய தீர்மானத்திற்கிணங்க, 2008 ᾊசம்பர் 08, திங்கட்கிழைம ᾙ.ப. 9.30 மணிவைர ஒத்திைவக்கப்பட்டᾐ.
+
+Adjourned accordingly at 5.18 p.m. until 9.30 a.m. on Monday, 08th December, 2008,
+
+pursuant to the Resolution of Parliament of 27th November, 2008.
+
+3397 3398
+
+குறிப்ᾗ
+
+உᾠப்பினர் இᾠதிப் பதிப்பிற் ெசய்யவிᾞம்ᾗம் பிைழ திᾞத்தங்கைளத் தமᾐ பிரதியில் ெதளிவாகக் குறித்ᾐ அதைனப் பிைழ
+
+திᾞத்தப்படாத பிரதி கிைடத்த இᾞ வாரங்கᾦள் ஹன்சாட் பதிப்பாசிாியᾞக்கு அᾔப்ᾗதல் ேவண்ᾌம்.
+
+සැ.යු.
+
+ෙමම වාර්තාෙව් අවසාන මුදණය සදහා ස්වකීය නිවැරදි කළ යුතු තැන් දක්වනු රිසි මන්තීන් මින් පිටපතක් ෙගන නිවැරදි කළ යුතු ආකාරය එහි පැහැදිලිව ලකුණු ෙකොට, පිටපත ලැබී ෙදසතියක් ෙනොඉක්මවා හැන්සාඩ් සංස්කාරක ෙවත ලැෙබන ෙසේ එවිය යුතුය.
+
+NOTE
+
+Corrections which Members suggest for the Final Print should be clearly marked in their copy and sent to be Editor of HANSARD within two weeks of
+
+receipt of the uncorrected copy.
+
+Contents of Proceedings : From 9.30 a.m. to 5.18 p.m. on 05.12.2008 Final set of manuscripts Received from Parliament : 6.00 p.m. on 02.02.2009 Printed copies dispatched : 11.02.2009 Morning
+
+சந்தா ; ஹன்சாட் அதிகார அறிக்ைகயின் வᾞடாந்த சந்தா ᾟபா 2,178. ஹன்சாட் தனிப்பிரதி ᾟபா 18.15. தபாற்
+
+ெசலᾫ ᾟபா 2.50. வᾞடாந்த சந்தா ᾙற்பணமாக அத்தியட்சகர், அரசாங்க ெவளியீட்டᾤவலகம், இல. 132,
+
+மாயா அெவனிᾜ, கிᾞளப்பைன, ெகாᾨம்ᾗ 5 என்ற விலாசத்திற்கு அᾔப்பி பிரதிகைளப்
+
+ெபற்ᾠக்ெகாள்ளலாம். ஒவ்ேவாராண்ᾌம் நவம்பர் 30 ஆந் ேததிக்கு ᾙன் சந்தாப் பணம்
+
+அᾔப்பப்பட ேவண்ᾌம். பிந்திக் கிைடக்கும் சந்தா விண்ணப்பங்கள்
+
+ஏற்ᾠக்ெகாள்ளப்படமாட்டா.
+
+දායක මුදල්: පාර්ලිෙම්න්තු විවාද වාර්තාවල වාර්ෂික දායක මිල රු.2178කි. පිටපතක් ෙගන්වා ගැනීම අවශɕ
+
+නම් ගාස්තුව රු. 18.15කි. තැපැල් ගාස්තුව රු. 2.50කි. ෙකොළඹ 5, කිරුළපන, මායා මාවත. අංක 132
+
+රජෙය් පකාශන කාර්යාංශෙය් අධිකාරී ෙවත සෑම වර්ෂයකම ෙනොවැම්බර් 30දා ට පථම
+
+දායක මුදල් ෙගවා ඉදිරි වර්ෂෙය් දායකත්වය ලබාෙගන විවාද වාර්තා ලබාගත හැකිය.
+
+නියමිත දිෙනන් පසුව එවනු ලබන දායක ඉල්ලුම්පත් භාරගනු ෙනොලැෙබ්.
+
+Subscriptions : The annual subscription for Official Report of Hansard is Rs. 2,178. A single copy of Hansard is available for
+
+Rs. 18.15. (Postage Rs. 2.50) Copies can be obtained by remitting in advance an annual subscription fee to the
+
+SUPERINTENDENT, GOVERNMENT PUBLICATIONS BUREAU, No. 132, Maya Avenue,
+
+Kirulapone, Colombo 5. The fee should reach him on or before November 30 each year .
+
+Late applications for subscriptions will not be accepted.
+
+ශී ලංකා රජෙය් මුදණ ෙදපාර්තෙම්න්තුෙව් මුදණය කරන ලදී.

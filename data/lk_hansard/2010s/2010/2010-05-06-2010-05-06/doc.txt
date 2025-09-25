@@ -1,0 +1,1753 @@
+පාර්ලිෙම්න්තු විවාද
+
+(හැන්සාඩ්) பாராᾦமன்ற விவாதங்கள்
+
+(ஹன்சாட்)
+
+PARLIAMENTARY DEBATES
+
+(HANSARD)
+
+නිල වාර්තාව அதிகார அறிக்ைக
+
+OFFICIAL REPORT
+
+(අෙශෝධිත පිටපත/பிைழ திᾞத்தப்படாதᾐ/Uncorrected)
+
+2010 මැයි 06 වන බහස්පතින්දා
+
+2010 ேம 06, வியாழக்கிழைம
+
+Thursday, 06th May, 2010
+
+188 වන කාණ්ඩය - 3 වන කලාපය
+
+ெதாகுதி 188 - இல. 3 Volume 188 - No. 3
+
+අන්තර්ගත පධාන කරුණු
+
+பிரதான உள்ளடக்கம்
+
+2 — PL 004841 — 1,600 — (2010/05)
+
+PRINCIPAL CONTENTS
+
+ெதாிᾫக் குᾨவினᾐ அறிக்ைக இறக்குமதிகள், ஏற்ᾠமதிகள் (கட்ᾌப்பாட்ᾌச்) சட்டம் : ஒᾨங்குவிதிகள் ஒத்திைவப்ᾗப் பிேரரைண: சர்வேதச நாணய நிதியக் கடன் வசதி இைடநிᾠத்தம்
+
+REPORT OF COMMITTEE OF SELECTION IMPORTS AND EXPORTS (CONTROL) ACT:
+
+Regulations ADJOURNMENT MOTION: Suspension of IMF Loan Facility
+
+ෙත්රීම් කාරක සභාෙව් වාර්තාව ආනයන හා අපනයන (පාලන) පනත:
+
+නිෙයෝග කල් තැබීෙම් ෙයෝජනාව: ජාතɕන්තර මූලɕ අරමුදෙල් ණය පහසුකම අත් හිටුවීම
+
+2010 මැයි 06
+
+පාර්ලිෙම්න්තුව
+
+பாராᾦமன்றம் PARLIAMENT
+
+2010 මැයි 06 වන බහස්පතින්දා
+
+2010 ேம 06, வியாழக்கிழைம
+
+Thursday, 06th May, 2010
+
+පූ. භා. 9.30ට පාර්ලිෙම්න්තුව රැස් විය. කථානායකතුමා [ගරු චමල් රාජපක්ෂ මහතා] මූලාසනාරූඪ විය.
+
+பாராᾦமன்றம் ᾙ.ப. 9.30 மணிக்குக் கூᾊயᾐ. சபாநாயகர் அவர்கள் [மாண்ᾗமிகு சமல் ராஜபக்ஷ] தைலைம வகித்தார்கள்.
+
+The Parliament met at 9.30 a.m., MR . SPEAKER [THE HON. CHAMAL RAJAPAKSA] in the Chair.
+
+ලිපි ෙල්ඛනාදිය පිළිගැන්වීම
+
+சமர்ப்பிக்கப்பட்ட பத்திரங்கள்
+
+PAPERS PRESENTED 1998 අංක 21 දරන හිමිකම් ලියාපදිංචි කිරීෙම් ප නෙත් 60 සහ 62 වැනි වගන්ති සමඟ කියවිය යුතු එකී පනෙත් 67 වැනි වගන්තිය යටෙත් නිෙයෝග. - [ඉඩම් හා ඉඩම් සංවර්ධන අමාතɕ ගරු ජනක බණ්ඩාර ෙතන්නෙකෝන් මහතා ෙවනුවට ගරු දිෙන්ෂ් ගුණවර්ධන මහතා]
+
+සභාෙම්සය මත තිබිය යුතුයයි නිෙයෝග කරන ලදී. சபாபீடத்தில் இᾞக்கக் கட்டைளயிடப்பட்டᾐ. Ordered to lie upon the Table.
+
+ෙත්රීම් කාරක සභාෙව් වාර්තාව
+
+ெதாிᾫக் குᾨவினᾐ அறிக்ைக REPORT OF COMMITTEE OF SELECTION කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) පහත සඳහන් ෙත්රීම් කාරක සභාෙව් වාර්තාව ෙමම ගරු සභාවට මම ඉදිරිපත් කරමි:
+
+1. 104 සහ 121 වන ස්ථාවර නිෙයෝග සහ පාර්ලිෙම්න්තුව විසින් සම්මත
+
+කර ඇති ෙයෝජනා පකාරව ඔබ කාරක සභාව ගෘහɕ කාරක සභාව, ස්ථාවර නිෙයෝග පිළිබඳ කාරක සභාව, පාර්ලිෙම්න්තු කටයුතු පිළිබඳ කාරක සභාව, රජෙය් ගිණුම් පිළිබඳ කාරක සභාව, ෙපොදු වɕාපාර පිළිබඳ කාරක සභාව, වරපසාද පිළිබඳ කාරක සභාව, මහජන ෙපත්සම් පිළිබඳ කාරක සභාව, උසස් නිලතල පිළිබඳ කාරක සභාව, උපෙද්ශක කාරක සභා සහ වɕවස්ථාදායක ස්ථාවර කාරක සභා සංයුක්ත විය යුතු අන්දම සලකා බලා ඒ පිළිබඳ ස්වකීය මතය පාර්ලිෙම්න්තුවට මතු සඳහන් වන අන්දමින් වාර්තා කරයි. ස්ථාවර නිෙයෝග 122, 123, 124, 125, 126, 127, 128 හා 128(අ) හි කුමක් සඳහන්ව තිබුණද, ඉහත කී කාරක සභාවන්ෙග් සංයුතිය පහත සඳහන් පරිදි විය යුතු යැයි ඔබ කාරක සභාව විසින් තීරණය කරන ලදී. • ගෘහɕ කාරක සභාව - ගරු කථානායකතුමා සහ ෙත්රීම් කාරක සභාව
+
+විසින් නම් කළ යුතු තවත් මන්තීන් දස (10) ෙදෙනකුෙගන් සමන්විත විය යුතුය. • ස්ථාවර නිෙයෝග පිළිබඳ කාරක සභාව - ගරු කථානායකතුමා,
+
+නිෙයෝජɕ කථානායකතුමා, නිෙයෝජɕ කාරක සභාපතිතුමා සහ ෙත්රීම් කාරක සභාව විසින් නම් කරනු ලබන තවත් මන්තීන් දස (10) ෙදෙනකුෙගන් සමන්විත විය යුතුය. • පාර්ලිෙම්න්තු කටයුතු පිළිබඳ කාරක සභාව - ගරු කථානායකතුමා,
+
+නිෙයෝජɕ කථානායකතුමා, නිෙයෝජɕ කාරක සභා සභාපතිතුමා, සභානායකතුමා, විපක්ෂ නායකතුමා, ආණ්ඩු පක්ෂෙය් පධාන සංවිධායකතුමා, විපක්ෂෙය් පධාන සංවිධායකතුමා සහ ෙත්රීම් කාරක සභාව විසින් නම් කරනු ලබන තවත් මන්තීන් විසිහතර (24) ෙදෙනකුෙගන් සමන්විත විය යුතුය. • රජෙය් ගිණුම් පිළිබඳ කාරක සභාව - ෙත්රීම් කාරක සභාව විසින් නම්
+
+කරනු ලබන මන්තීන් තිස් එක් (31) ෙදෙනකුෙගන් සමන්විත විය යුතුය.
+
+• ෙපොදු වɕාපාර පිළිබඳ කාරක සභාව - ෙත්රීම් කාරක සභාව විසින් නම්
+
+කරනු ලබන මන්තීන් තිස් එක් (31) ෙදෙනකුෙගන් සමන්විත විය යුතුය. • වරපසාද පිළිබඳ කාරක සභාව - ෙත්රීම් කාරක සභාව විසින් නම් කරනු
+
+ලබන මන්තීන් පහෙළොස් (15) ෙදෙනකුෙගන් සමන්විත විය යුතුය. • මහජන ෙපත්සම් පිළිබඳ කාරක සභාව - ෙත්රීම් කාරක සභාව විසින්
+
+නම් කරනු ලබන මන්තීන් විසිනව (29) ෙදෙනකුෙගන් සමන්විත විය යුතුය. • උසස් නිලතල පිළිබඳ කාරක සභාව - ෙත්රීම් කාරක සභාව විසින් නම්
+
+කරනු ලබන මන්තීන් දහනව (19) ෙදෙනකුෙගන් සමන්විත විය යුතුය. 2. (අ) මතු දැක්ෙවන උපෙද්ශක කාරක සභා හතළිස්පහක් (45) පත් කළ
+
+යුතුය. 1. බුද්ධ ශාසන හා ආගමික කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 2. රාජɕ කළමනාකරණ පතිසංස්කරණ පිළිබඳ උපෙද්ශක කාරක සභාව 3. වාරිමාර්ග හා ජලසම්පත් කළමනාකරණ කටයුතු පිළිබඳ උපෙද්ශක
+
+කාරක සභාව 4. ආපදා කළමනාකරණ කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 5. ෙසෞඛɕ කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 6. ඛනිජ ෙතල් කර්මාන්ත කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 7. ජල සම්පාදන හා ජලාපවහන කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 8. සම්පදායික කර්මාන්ත හා කුඩා වɕවසාය සංවර්ධන කටයුතු පිළිබඳ
+
+උපෙද්ශක කාරක සභාව 9. පළාත් පාලන හා පළාත් සභා කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 10. පුනරුත්ථාපන හා බන්ධනාගාර පතිසංස්කරණ කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 11. කර්මාන්ත හා වාණිජ කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 12. ඉදිකිරීම්, ඉංජිෙන්රු ෙසේවා, නිවාස හා ෙපොදු පහසුකම් කටයුතු පිළිබඳ
+
+උපෙද්ශක කාරක සභාව 13. විදුලිබල හා බලශක්ති කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 14. ආර්ථික සංවර්ධන කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 15. රාජɕ සම්පත් හා වɕවසාය සංවර්ධන කටයුතු පිළිබඳ උපෙද්ශක කාරක
+
+සභාව 16. විෙද්ශ කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 17. රාජɕ පරිපාලන හා ස්වෙද්ශ කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 18. පාර්ලිෙම්න්තු කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 19. නැවත පදිංචි කිරීෙම් කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 20. තැපැල් හා විදුලි සංෙද්ශ කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 21. ජාතික උරුමයන් හා සංස්කෘතික කටයුතු පිළිබඳ උපෙද්ශක කාරක
+
+සභාව 22. පරිසර කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 23. ළමා සංවර්ධන හා කාන්තා කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 24. අධිකරණ කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 25. කම්කරු සබඳතා හා ඵලදායිතා පවර්ධන කටයුතු පිළිබඳ උපෙද්ශක
+
+කාරක සභාව 26. අධɕාපන කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 27. වැවිලි කර්මාන්ත පිළිබඳ උපෙද්ශක කාරක සභාව 28. ධීවර හා ජලජ සම්පත් සංවර්ධන කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 29. ෙද්ශීය ෛවදɕ කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 30. ජාතික භාෂා හා සමාජ ඒකාබද්ධතා කටයුතු පිළිබඳ උපෙද්ශක කාරක
+
+සභාව 31. ඉඩම් සහ ඉඩම් සංවර්ධන කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 32. සමාජ ෙසේවා කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 33. කීඩා කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 34. කෘෂිකර්ම කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 35. පවාහන කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 36. ෙයෞවන කටයුතු පිළිබඳ උපෙද්ශක කාරක සභාව 37. සමුපකාර හා අභɕන්තර ෙවළඳ කටයුතු පිළිබඳ උපෙද්ශක කාරක
+
+සභාව 38. තාක්ෂණ හා පර්ෙය්ෂණ පිළිබඳ උපෙද්ශක කාරක සභාව 39. මුදල් හා කම සම්පාදන පිළිබඳ උපෙද්ශක කාරක සභාව 40. ජනමාධɕ හා පවෘත්ති පිළිබඳ උපෙද්ශක කාරක සභාව 41. පජා සංවර්ධන හා පශු සම්පත් පිළිබඳ උපෙද්ශක කාරක සභාව 42. රාජɕ ආරක්ෂක පිළිබඳ උපෙද්ශක කාරක සභාව 43. වරාය හා ගුවන් ෙසේවා පිළිබඳ උපෙද්ශක කාරක සභාව 44. මහාමාර්ග පිළිබඳ උපෙද්ශක කාරක සභාව 45. උසස් අධɕාපන පිළිබඳ උපෙද්ශක කාරක සභාව
+
+(ආ) එක් එක් උපෙද්ශක කාරක සභාව පස් ෙදෙනකුට (5) ෙනොඅඩු විසිපස් (25) ෙදෙනකුට ෙනොවැඩි මන්තීවරුන් සංඛɕාවකින් සමන්විත විය යුතුය. (ඇ) එක් එක් උපෙද්ශක කාරක සභාවක ගණපූරණය මන්තීන් තිෙදෙනකු (3) විය යුතුය. 3. (අ) “ඒ" ස්ථාවර කාරක සභාව යනුෙවන්ද, “බී” ස්ථාවර කාරක සභාව
+
+යනුෙවන්ද හැඳින්විය යුතු වɕවස්ථාදායක ස්ථාවර කාරක සභා ෙදකක් පත් කළ යුතුය.
+
+273 274
+
+පාර්ලිෙම්න්තුව 275 276
+
+(ආ) එම කාරක සභාවල කාර්ය භාරය 52 වන ස්ථාවර නිෙයෝගය යට ෙත් පාර්ලිෙම්න්තුව විසින් ඊට පවරනු ලබන පනත් ෙකටුම්පත් සලකා බැලීම විය යුතුය. (ඇ) කාරක සභා ෙදෙකහිම, එකක මන්තීන් තිස් එක් (31) ෙදෙනකු බැගින් සිටිය යුතුය. යම් කිසි විෙශේෂ පනත් ෙකටුම්පතක් සලකා බැලීම පිණිස අතිෙර්ක වශෙයන් මන්තීන් පහෙළොවකට ෙනොවැඩි ගණනක් එක කාරක සභාවකට පත් කිරීමට කථානායකතුමාට බලය තිබිය යුතුය. (ඈ) එක් එක් ස්ථාවර කාරක සභාවක ගණපූරණය මන්තීන් හතර ෙදෙනකු (04) විය යුතුය. එම වාර්තාව සභාෙම්සය මත තිබිය යුතුයයි නිෙයෝග කරන ලදී. இவ்வறிக்ைக சபாபீடத்தில் இᾞக்கக் கட்டைளயிடப்பட்டᾐ. Ordered that the said Report do lie upon the Table.
+
+පාර්ලිෙම්න්තුෙව් කටයුතු
+
+பாராᾦமன்ற அᾤவல் BUSINESS OF THE PARLIAMENT ගරු නිමල් සිරිපාල ද සිල්වා මහතා (වාරිමාර්ග හා ජල සම්පත් කළමනාකරණ අමාතɕතුමා සහ පාර්ලිෙම්න්තුෙව් සභානායකතුමා )
+
+(மாண்ᾗமிகு நிமல் சிறிபால த சில்வா - நீர்ப்பாசன, நீர்வள ᾙகாைமத்ᾐவ அைமச்சᾞம் பாராᾦமன்றச் சைப ᾙதல்வᾞம்)
+
+(The Hon. Nimal Siripala de Silva - Minister of Irrigation and Water Resources Management and Leader of the House of Parliament)
+
+ගරු කථානායකතුමනි, මා පහත සඳහන් ෙයෝජනාව ඉදිරිපත් කරනවා:
+
+"නɕාය පතෙය් පධාන කටයුතුවල අංක 1, 2 සහ 3 දරන විෂයයන් පිළිබඳ වැඩ අද දින රැස්වීෙම්දී අංක 23 දරන ස්ථාවර නිෙයෝගෙයහි විධිවිධානයන්ෙගන් නිදහස් විය යුතු ය."
+
+පශ්නය විමසන ලදින්, සභා සම්මත විය. வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. Question put, and agreed to.
+
+පාර්ලිෙම්න්තුෙව් රැස්වීම්
+
+பாராᾦமன்ற அமர்ᾫ SITTINGS OF THE PARLIAMENT ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ගරු කථානායකතුමනි, මා පහත සඳහන් ෙයෝජනාව ඉදිරිපත් කරනවා:
+
+"ස්ථාවර නිෙයෝග 7 හි විධිවිධානවල සහ 2010.05.04 වැනි දින පාර්ලිෙම්න්තුව විසින් සම්මත කරන ලද ෙයෝජනාෙව් කුමක් සඳහන්ව තිබුණද, 2010 මැයි මස 07 වැනි සිකුරාදා රැස්වීම් පැවැත්ෙවන කාල ෙව්ලා පූ. භා. 9.30 සිට අ. භා. 12.30 දක්වා ද, අ. භා. 1.00 සිට අ. භා. 4.30 දක්වා ද විය යුතු ය. අ. භා. 3.30 ට ස්ථාවර නිෙයෝග 7(5) කියාත්මක විය යුතු ය."
+
+පශ්නය විමසන ලදින්, සභා සම්මත විය. வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. Question put, and agreed to. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ඊළඟට, අද දින නɕාය පතෙය් සඳහන් අංක 1, 2 සහ 3 දරන ආනයන හා අපනයන (පාලන) පනත යටෙත් නිෙයෝග තුන සම්මත කිරීම. ගරු අමාතɕතුමා, එම ෙයෝජනා ඉදිරිපත් කරන්න.
+
+ආනයන හා අපනයන (පාලන) පනත :
+
+නිෙයෝග இறக்குமதிகள், ஏற்ᾠமதிகள் (கட்ᾌப்பாட்ᾌச்)
+
+சட்டம் : ஒᾨங்குவிதிகள் IMPORTS AND EXPORTS (CONTROL) ACT:
+
+REGULATIONS
+
+I ගරු (මහාචාර්ය) ජී. එල්. පීරිස් මහතා (විෙද්ශ කටයුතු අමාතɕතුමා)
+
+(ெகளரவ(ேபராசிாியர்) ஜீ. எல். பீாிஸ் - ெவளிநாட்டᾤவல்கள் அைமச்சர்)
+
+(The Hon. (Prof.) G. L. Peiris - Minister of External Affairs) ගරු කථානායකතුමනි, අගාමාතɕතුමා සහ බුද්ධ ශාසන හා ආගමික කටයුතු අමාතɕතුමා ෙවනුෙවන් මා පහත සඳහන් ෙයෝජනාව ඉදිරිපත් කරනවා:
+
+"ආණ්ඩුකම වɕවස්ථාෙව් 44(2) වැනි වɕවස්ථාව සහ 1969 අංක 1 දරන ආනයන හා අපනයන (පාලන) පනෙත් 4 වැනි වගන්තිෙය් (3) වැනි උප වගන්තිය සහ 14 වැනි වගන්තිය සමග කියවිය යුතු, එම පනෙත් 20 වැනි වගන්තිය යටෙත් ජනාධිපතිතුමා විසින් සාදන ලදුව, 2009 ෙනො වැම්බර් මස 09 වැනි දිනැති, අංක 1627/1 දරන අති විෙශේෂ ගැසට් පතෙය් පළ කරනු ලැබ, 2010.05.04 වැනි දින ඉදිරිපත් කරන ලද නිෙයෝග අනුමත කළ යුතු ය."
+
+ගරු කථානායකතුමනි, ෙමම ෙරගුලාසි පාර්ලිෙම්න්තුෙව් අනුමැතිය සඳහා මම ෙගෞරව පූර්වකව ඉදිරිපත් කරනවා. ෙම් ෙරගුලාසිවල අරමුණ වන්ෙන් ගරු කථානායකතුමනි, ෙම් රටට විටින් විට ෙගෙනන භාණ්ඩ සම්බන්ධෙයන් පනවනු ලබන බදු පිළිබඳවත්, ඒ බදු ඉහළ යාම පහළ යාම පාලනය කිරීම සඳහාත් වɖහයක් සකස් කර ගැනීමටයි. අෙප් රෙට් නිෂ්පාදන විශාල ෙලස තිෙබන අවස්ථාවලදී අපි ෙද්ශීය කෘෂි කර්මය, ෙද්ශීය කර්මාන්ත ආරක්ෂා කර ගැනීම සඳහා බදු ඉහළ දමනවා. අෙනක් අතට ෙම් නිෂ්පාදන පිළිබඳ හිඟයක් තිෙබන අවස්ථාවලදී ඒ බදු අඩු කර, ඒ බදු අඩු කිරීම තුළින් ඒ භාණ්ඩ රටට ෙගන ඒම වඩා පහසු කිරීම තමයි රජෙය් පතිපත්තිය ෙවලා තිෙබන්ෙන්. මා හිතන විධියට ඒ පිළිබඳ ගැටලුවක් නැහැ. ඒක පාෙයෝගික කියා පටිපාටියක්ය කියා ෙම් ගරු සභාෙව් සියලුම මන්තීවරු අනුමත කරාවි. ගරු කථානායකතුමනි, රජය ෙවනුෙවන් මා ෙම් අවස්ථාෙවන් පෙයෝජන ගන්නට බලාෙපොෙරොත්තු වනවා. දැන් රෙට් තිරසාර සාමයක් තිෙබන අවස්ථාවකදී, තස්තවාදය පරාජය කර තිෙබන ෙමොෙහොතකදී අෙප් රෙට් ආර්ථිකය ඉදිරියට ෙගන යාමට රජය බලාෙපොෙරොත්තු වන පිළිෙවළ පිළිබඳව යමක් ෙම් උත්තරීතර පාර්ලිෙම්න්තුවට පකාශ කිරීමට මා ෙමය අවස්ථාව කර ගන්නවා.
+
+ගරු කථානායකතුමනි, දැන් තස්තවාදය අවසානයි. ඒ තුළින් අෙප් රෙට් ආර්ථික සංවර්ධනය ශීඝ ෙලස ඉදිරියට ෙගන යන්නට අවුරුදු විස්සකට ෙම් රටට ෙනොතිබුණු අද්වීතිය අවස්ථාවක් උදා වී තිෙබනවා. ඇත්ත වශෙයන්ම තස්තවාදය ෙම් විධියට අවසාන කරන්නට පුළුවන් ෙව්ය කියා කවුරුවත් විශ්වාස කෙළේ නැහැ. මුළු ෙලොවම මවිතයට පත් කරමින් අතිගරු ජනාධිපතිතුමා හා රජය ඒ කර්තවɕය ඉෂ්ට කර තිෙබනවා. දැන් ස්වාභාවික ෙලස ආර්ථිකය පිළිබඳ යම් කිසි ධාරිතාවක් අප පැහැදිලිව දකිනවා. සංචාරක කර්මාන්ත ක්ෙෂේතෙයන් ඉතාමත් පැහැදිලිව ඒක ෙප්නවා. දිෙනන් දින ෙම් රටට පැමිෙණන සංචාරකයන්ෙග් සංඛɕාව විශාල ෙලස වැඩි වනවා. ඒක අෙප් රෙට් ආර්ථිකයට විෙද්ශ විනිමය ලබා ගැනීම සම්බන්ධෙයන් අතිවිශාල ශක්තියක් වුණා. එම නිසා ගරු කථානායකතුමනි, ෙම් අවස්ථාෙව්දී අෙප් රෙට් ආර්ථිකෙය් අනාගතය පිළිබඳව අපට සුභවාදී ආකල්පයක් සුදුසු වනවා. ගරු කථානායකතුමනි, බටහිර රටවල් අෙප් රජයට විරුද්ධයි කියා යම් කිසි මතයක් තිෙබනවා. සමහර අය ඒ විෙව්චනය ඉදිරිපත් කරනවා. ඒෙක් කිසිම සතɕයක් නැහැ. ගරු කථානායකතුමනි, දවස් ෙදකකට ෙපර ඇෙමරිකානු එක්සත් ජනපදෙය් විෙද්ශ කටයුතු පිළිබඳ රාජɕ ෙල්කම් හිලරි ක්ලින්ටන් මැතිනිය මට ලියුමක් එව්වා, ඉතාමත් උණුසුම් ෙලස සුබ පාර්ථනා
+
+[ගරු කථානායකතුමා]
+
+2010 මැයි 06 277 278
+
+කරමින්. "Full support" -"අපිට පූර්ණ සහෙයෝගය"- කියන වචනය හිලරි ක්ලින්ටන් මැතිනිය ඒ ලිපිෙය් සඳහන් කරලා තිෙබනවා. එතුමියෙග් පූර්ණ සහෙයෝගය අෙප් ජනාධිපතිතුමාටත්, රජයටත් ලබා ෙදන බව හිලරි ක්ලින්ටන් මැතිනිය පැහැදිලිව පකාශ කරනවා. එතුමියෙග් ස්වාමිපුරුෂයා වන ඇෙමරිකානු එක්සත් ජනපදෙය් හිටපු ජනාධිපති බිල් ක්ලින්ටන් මැතිතුමා හා මම මහා බිතානɕෙය් ඔක්ස්ෆර්ඩ් විශ්වවිදɕාලෙය් ෙරෝඩ්ස් ශිෂɕත්වලාභිෙයක්. ෙරෝඩ්ස් ශිෂɕත්වය ලබා ගත් ශිෂɕයන් හැටියට එකට ඉෙගන ගත්තා. දැන් මාස කිහිපයකට ෙපර අතිගරු ජනාධිපතිතුමා නිෙයෝජනය කරමින් මම ෙහොංෙකොං නගරයට ගිය අවස්ථාවකදි බිල් ක්ලින්ටන් මැතිතුමා මට යළි හමු වුණා. එතුමා සිහිපත් කළා, සුනාමි වɕවසනෙයන් පසු එතුමා ෙම් රටට පැමිණ කරපු වැඩ ෙකොටස ගැන. ඇෙමරිකානු එක්සත් ජනපදෙය් හිටපු ජනාධිපති බිල් ක්ලින්ටන් මැතිතුමා ඒ අවස්ථාෙව්දී මට කිව්වා ෙම් රට ගැන ෙලොකු ඇල්මක්, උනන්දුවක් එතුමා තුළ තිෙබනවායි කියලා. ඇෙමරිකානු එක්සත් ජනපදයට, එතුමාට, ෙමොනවා හරි කරන්න පුළුවන් තත්ත්වයක් තිෙබනවා නම් පැකිළීමකින් ෙතොරව එතුමාට කථා කරන්න යැයි කියලා බිල් ක්ලින්ටන් මැතිතුමා ෙහොංෙකොං නගරෙය්දී ඒ අවස්ථාෙව් මට කිව්වා.
+
+ගරු කථානායකතුමනි, ඒ වාෙග්ම 16 වන සාර්ක් සමුළුවට සහභාගි වීම සඳහා අතිගරු ජනාධිපති මහින්ද රාජපක්ෂ මැතිතුමා ගිය සතිෙය් බූතාන් රෙට් තිම්පු නගරයට ගියා. ඒ අවස්ථාෙව් එතුමා සාකච්ඡාවක් කළා, ඉන්දියාෙව් අගාමාතɕ ආචාර්ය මන්ෙමෝහන් සිං මැතිතුමාත් සමඟ. ආචාර්ය මන්ෙමෝහන් සිං, ඉන්දියාෙව් අගාමාතɕතුමා ඉතාමත් පැහැදිලිව අෙප් ජනාධිපතිතුමාට ෙම් කරුණු කිව්වා. එම සාකච්ඡාව කරන ෙකොට මමත් ජනාධිපතිතුමා සමඟ සිටියා. එතුමා කිව්වා, අද ආර්ථික පුනර්ජීවනයක් ෙම් දකුණු ආසියානු කලාපෙය් සිදු ෙවලා තිෙබනවාය කියලා. ඉන්දියාෙව් ආර්ථිකය අද දැවැන්ත ෙලස ඉදිරියට යන පවණතාවක් තිෙබනවා. ආචාර්ය මන්ෙමෝහන් සිං මැතිතුමා අෙප් ජනාධිපතිතුමාට කිව්වා, එතුමාෙග් අභිලාෂය වන්ෙන් හුදකලාව ඉන්දියාෙව් ආර්ථිකය දියුණු කිරීම ෙනොෙවයි කියලා. අසල්වැසි රටවල් සමඟ ඉතාමත් සමීප සම්බන්ධතා ඇති කර ෙගන, ඉන්දියාෙව් ආර්ථිකෙය් ශක්තිෙයන් ඒ රටවල්වලටත් රුකුලක් ලැෙබන පරිදි යම් කිසි ආර්ථික වැඩ පිළිෙවළක් සකස් කිරීම කාෙලෝචිත බැවින් ඉන්දියානු රජය ඒ සම්බන්ධෙයන් විශාල උනන්දුවක්, උද්ෙයෝගයක් දක්වනවාය කියන මතය ඉන්දියාෙව් අගමැතිතුමා දැන් දවස් හතර පහකට ඉස්සර ෙවලා තිම්පු නගරෙය් දී ඉතාමත් පැහැදිලිව අෙප් ජනාධිපතිතුමාට පකාශ කළා.
+
+ගරු කථානායකතුමනි, ඒ වාෙග්ම ජපානෙය් නිෙයෝජිතෙයක් - සම්පූර්ණ සාමාජිකයකු හැටියට ෙනොෙවයි - ඒ අවස්ථාෙව් දී තිම්පු නගරෙය් සිටියා. ජපානය අෙප් ඉතිහාසෙය් සෑම අවස්ථාවකදීම අපට සමීප මිතෙයක් හැටියට සිටියා; කලɕාණ මිතෙයක් හැටියට සිටියා. ෙහොඳ කාලෙය්දීත්, නරක කාලෙය්දීත්, ජපානෙය් සහෙයෝගය අපට නිරන්තරෙයන්ම තිබුණා. ජපන් රජය අද පකාශ කරනවා, ලංකාෙව් ෙම් තිෙබන අද්විතීය අවස්ථාවලින් පෙයෝජන ගැනීම සඳහා අෙප් රට සමඟ සමීපව කටයුතු කරන බව. අවුරුදු විසි ගණනකට පසුව ජපානෙය් අලුත් රජයක් පත් ෙවලා තිෙබනවා. ඒ අලුත් ජපන් රජය අදිටන් කර ෙගන තිෙබනවා, අෙප් රට සමඟ සමීපව වැඩ කරමින් ශී ලංකා ආර්ථිකයට අලුත් පාණයක්, ශක්තියක් ලබා දීමට. ඒ කර්තවɕයට ඒ අය සම්පූර්ණෙයන් සම්බන්ධ වන බව ජපන් රජය පැහැදිලිව පකාශ කළා. ගරු කථානායකතුමනි, තව පැය තුනකින් පමණ ඉතාමත් වැදගත් ගිවිසුමකට අපි අත්සන් තබනවා. ඊෙය් සවස රැස් වුණු කැබිනට් මණ්ඩලය, ඒ ගිවිසුම අත්සන් කිරීම සම්බන්ධෙයන් මට අනුමැතිය ලබා දුන්නා.
+
+Mr. Speaker, this is an Agreement which will have enormous beneficial consequences for Sri Lanka. It is an Agreement that we are signing with the Shanghai Co-operation Organization. Russia is a member; China is a member. The Ambassadors of Russia and China will join me when I sign this Agreement on behalf of the
+
+Government of Sri Lanka in a couple of hours' time. It is a very far-reaching Agreement. It encompasses the whole range of co-operation with regard to security matters, the economy, exchange of technology, co-operation in the field of health with particular reference to infectious diseases and cultural programmes. A whole range of activities are envisaged by the provisions of this Agreement which the Government of Sri Lanka will sign very shortly.
+
+I would like to say a word, Mr. Speaker, about Russia because Russia is a key member of this Organization. His Excellency President Mahinda Rajapaksa paid an official visit to Moscow a few months ago. I accompanied him on that visit. On that occasion, the President of the Russian Federation, President Dmitry Medvedev, had a one-hour discussion with President Rajapaksa. That is unusual, Mr. Speaker. It was not merely a ceremonial discussion; it was a substantive discussion, in the course of which the Russian Federation pledged herself to close and far-reaching co-operation with the Government of Sri Lanka.
+
+Mr. Speaker, there is a particular aspect of that visit which is exceedingly satisfying. Within one month of that visit by President Rajapaksa to Moscow, 12 large companies of Russia, which had discussions with me on that occasion in Moscow, sent their representatives to Colombo to explore ways and means of those companies coming directly into Sri Lanka and making very substantial investments in the Sri Lankan economy. The activities engaged in by these companies are of particular relevance and significance for Sri Lanka. These activities include, Mr. Speaker, the tourism sector and pre-fabricated housing, which we are particularly interested in for government officials. This is low-cost housing, particularly in the urban areas. Russian companies are prepared to come here for fish processing. After nearly 12 years, we are now able to exploit the abundant resources of the northern seas of Sri Lanka. There are also Russian companies which are committed to investments here in the energy sector. These Russian companies sent their representatives here within one month of the President's visit to Moscow, and we are now engaged in discussions with the Russian Ambassador in Colombo with regard to implementation of some of the ideas that these Russian companies have.
+
+Then, Mr. Speaker, I need also to inform this House about another event which will take place towards the end of next week, which will also have beneficial consequences for Sri Lanka’s economy. His Excellency President Mahinda Rajapaksa will be visiting Tehran in order to take over the leadership of the G-15 group in Tehran. This will take place within the next ten days. On that occasion in Iran, His Excellency the President will have a series of bilateral meetings. One of those meetings will be with President Lula of Brazil. One of the challenges that we face at this moment, Mr. Speaker, is to expand our markets. We are not giving up our traditional
+
+පාර්ලිෙම්න්තුව 279 280
+
+friends. But, it makes sense, situated as we are with regard to the Sri Lankan economy, at the present time to consolidate traditional relationships and at the same time to make an assiduous search for new markets. In South America, Brazil is a rapidly developing economy. Brazil has particularly an energetic Ambassador in Sri Lanka and the bilateral meeting which will take place within the next ten days between President Rajapaksa of Sri Lanka and President Lula of Brazil will be the precursor to a whole range of very beneficial developments with regard to the economy of Sri Lanka at this moment. Mr. Speaker, you are aware that little as we are, this little Island produces 80 per cent of the world’s cinnamon and it is cinnamon of the highest quality. Sri Lanka’s markets with regard to cinnamon consists largely of Spanish and Portuguese-speaking countries; Brazil, Venezuela, Mexico, Argentina, Peru and so on. We now propose to strengthen these markets, and the bilateral meeting that will take place in Teheran very shortly, will lay the foundation for these developments. I would also like to pay tribute to the Government of Australia for a very timely initiative on their part at this time. In Thimphu, I had discussions with the representative of the Government of Australia, and on the Government’s behalf I expressed appreciation of something that Australia had done. The Government of Australia has announced a three-month freeze with regard to applications for political asylum from Sri Lanka. The Government of Australia, Mr. Speaker, has adopted the view that things are moving ahead in Sri Lanka. The Government of Australia, their representative, in the discussions they had with me, expressed satisfaction with the progress which had been achieved by the Government of Sri Lanka with regard to the resettlement of internally displaced persons. We started with a figure of 297,000 and it is now down to about 53,000. Of that 53,000, about 20,000 people keep moving out of these camps. Although their names are in the books, they are at liberty to visit their relatives, to go out and come in as they wish. Having regard to the magnitude of this task and the fact that we have to cope with this unexpectedly, the Government of Australia was of the view that they must give Sri Lanka a chance. What they are seeing is encouraging. Therefore, they proposed to review this situation during the next three months and within that period they will not be entertaining applications for political asylum from Sri Lanka. I told the Government of Australia that we find this exceedingly encouraging and we hope that other governments will adopt a similar approach to this matter. Mr. Speaker, I said earlier that we are not forsaking or abandoning traditional markets. We are therefore, taking
+
+seriously our relationship with the European Commission. The Government of Sri Lanka at this moment is engaged in a series of discussions with the European Commission with regard to the GSP Plus concession. On the 15th and the 16th of March, four senior officials were sent to Brussels to discuss matters pertaining to the GSP Plus concessions. That delegation consisted of Dr. P.B. Jayasundara, Secretary to the Ministry of Finance; Mr. Romesh Jayasinghe, Secretary to the Ministry of External Affairs; Mr. Suhada Gamlath, Secretary to the Ministry of Justice and Law Reforms and the Hon. Mohan Peiris, President’s Counsel, Attorney-General of Sri Lanka. Those discussions were very fruitful. The Government has every reason to be satisfied with this start that was made on that occasion. There was a meeting of myriad. We were able to identify the issues that need to be addressed and the trajectory for future discussions in order to reduce the areas of divergence between the European Commission and the Government of Sri Lanka. Mr. Speaker, in a few days time, on the 20th and the 21st of this month, these officials will visit Brussels for a second round of talks and our expectation is that these talks will move forward. The Government of Sri Lanka derives satisfaction from our initiatives during the last few days. Yesterday, this House by an overwhelming majority endorsed the Government’s proposal that the Emergency Regulations under which we have been governed for as long a period as four years and eight months should be significantly scaled down. We do not believe that Emergency should be resorted to in perpetuity. At the same time we make no apology, Mr. Speaker, for the residue of Emergency Regulations which the Government has chosen to retain. I do not think that any rational person in this country would challenge the proposition that the military action against the LTTE could have been successful without the support of these Emergency Regulations. They were absolutely indispensable at that time. However, as circumstances change, as the ground situation is transformed, the Government is under a duty to keep the situation under constant review and to make changes which are opportune at any particular moment. This is the matter of balancing different interests. Dean Roscoe Pound, one of the most distinguished Deans of the Harvard Law School, once said that social engineering is involved in these decisions. You have to balance competing interests and arrive at an equilibrium. So, we now believe, Mr. Speaker, that the vast majority of Emergency Regulations can be swept away and what is retained is absolutely essential to ensure that the Government continues to have the strength to combat very vicious propaganda that is being engaged in against the Government by groups that are friendly with the LTTE. We are all aware of what is happening -
+
+ගරු කරු ජයසූරිය මහතා (மாண்ᾗமிகு கᾞ ஜயசூாிய) (The Hon. Karu Jayasuriya) Hon. Minister, can you give me just one minute?
+
+[ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා]
+
+2010 මැයි 06 281 282
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) Yes, of course. ගරු කරු ජයසූරිය මහතා (மாண்ᾗமிகு கᾞ ஜயசூாிய) (The Hon. Karu Jayasuriya) Can you tell us when the state of Emergency will be done away totally?
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) With respect, I think the Hon. Karu Jayasuriya is asking a very unfair question. I do not have a crystal ball to gaze at. How can I possibly anticipate the events for the future? Would it not be an act of irresponsibility on my part to commit the Government to a time frame with regard to the total abolition of the Emergency Regulations when situations are unpredictable? All I can say is that it is not the wish of the Government to keep the Emergency for one moment longer than is necessary. There was no compulsion on the Government of Sri Lanka to take the action that was taken yesterday. We took that action because of the honest conviction that these Regulations are no longer necessary and we take great pride in restoring the body of ordinary law in this country. However, I would like to tell the Hon. Karu Jayasuriya, I am sure he is aware of it, right now as we debate in this Chamber, there is a campaign in many Western countries for certain groups to elect Members to a Provisional Transnational Government in Exile. That is a very dangerous development. We are now instructing our Ambassadors and High Commissioners in the relevant capitals to engage vigorously with those governments, to bring to the notice of those governments the dangers inherent in this course of action. I would like to emphasize, Mr. Speaker, that the risk is wherefore not over. The military action is over. There is no military threat to Sri Lanka, but these groups are transferring their attention from the field of battle to the field of diplomacy. They are engaging with the governments of the world, the corridors of power, multilateral institutions; the whole complexion of their campaign is undergoing a significant change. The Government of Sri Lanka therefore must demonstrate the resilience to be able to deal with that threat. It is a different kind of threat. It is not the threat that we had while the military action was going on. But, it is a threat, the Hon. Karu Jayasuriya would, I am sure appreciate, which is as inimical to the interests of this country as the military action that was engaged in by the Liberation Tigers of Tamil Eelam some months ago. Therefore, Mr. Speaker, no foreign government has told us, “Abolish this immediately.” That is unreasonable. You cannot go from hundred to zero. You cannot go from one end of the spectrum to the other. Nobody is proposing such a practical course of action. All the messages that I received during the last 72 hours indicate that there is very
+
+substantial appreciation of the initiative by the Government of Sri Lanka to scale down these Emergency Regulations as much as possible and we are proud that our President has been able to take that decision.
+
+Then, Mr. Speaker, I would also like to tell you about the Reconciliation Commission which we are going to establish. That is going to happen. His Excellency President Mahinda Rajapaksa has made that decision. Sri Lanka has gone through a period of great pain and anguish. Countries in similar post-conflict situations have taken action to reconcile the different groups of the community when all the pain is over. It is a period of healing and we have to put in place the institutions that will buttress and fortify that healing process. There is no need, Mr. Speaker, to reinvent the wheel. We can certainly benefit from the experience of other nations. But, we must have the creativity to adapt those solutions to suit the circumstances of Sri Lanka at this time. Mr. Speaker, we have drawn inspiration from the experience of the Chilcot Committee in the United Kingdom which had to deal with some residual problems after the defeat of the IRA. When this was happening, I was a distinguished fellow of All Souls College in the University of Oxford and I had frequent discussions with the late Lord Diplock who had a great deal to do with the establishment of what were called, “Diplock Courts”. So we have looked at the Chilcot Committee. We have also taken a close look at the Truth and Reconciliation Commission of South Africa in which Desmond Tutu, Nobel laureate played such a magnificent role. It is a wish of President Mahinda Rajapaksa to reach out to all sections of our community, to heal the wounds of the war and in a spirit of amity and brotherhood to take the nation forward. We have almost finalized the Terms of Reference of the Commission. We are now in the process of finalizing the personnel of that Commission and we will be appointing that Commission very shortly. That is a very salutary development. It is something that is necessary to heal the wounds of this nation.
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga)
+
+Mr. Speaker, is the Hon. Minister moving the Regulations in the Gazette or is it a statement on foreign affairs or external affairs?
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) I have moved the Regulations. I do not think that there is any need to debate the taxes on these ten commodities.
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga)
+
+There are three Regulations that are in the Order Paper.
+
+පාර්ලිෙම්න්තුව 283 284
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris)
+
+Yes. ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga)
+
+I mean, first of all, to enlighten the House you will have to give an explanation as to what those two notifications are.
+
+We are completely in the dark because I see in one gazette, there are some dangerous chemicals that you are trying to release on licences.
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris)
+
+No, no. ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga)
+
+We would like to know something on that. Hillary Clinton and all that is very good. We are very happy that you have been congratulated but that is not the point. The important thing is the subject of the day. [Interruption.] We know that you are quite knowledgeable. All that is conceded but then, this is something that we are interested in and we would like to know. [Interruption.] There are some gazettes referring to food prices, there are some gazettes referring to chemicals and there are imports of scrap metal. All that is there. So give us some explanation as to what are you trying to do with this gazette notification?
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris)
+
+Mr. Speaker, in most Parliaments in the world the Opposition would welcome the opportunity to take a look at the Government’s plans for the future; where we stand today; what is the state of the economy; what is the state of our external relations and how does the Government - after all it is a new government - propose to deal with these matters? I say without fear of contradiction that most legislatures - I would say all legislatures in the world - the Opposition would welcome the opportunity to be given information with regard to these matters. It is very strange and indeed bizarre, Mr. Speaker for the Chief Opposition Whip to get up and say, “ We are not interested in these matters. We do not want to know about that”.
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga)
+
+We are interested in the subject of the day. First of all, give a clean explanation on the three gazettes. After that you can talk about your knowledge - [Interruption.] I know that you are quite knowledgeable.
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) Mr. Speaker, I have already said that this is a process which we have resorted to without interruption for the last several years. That is, from time to time we have been adjusting these rates. [Interruption.] Mr. Speaker -
+
+ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti)
+
+Sir, I rise to a point of Order. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ඔව්, කියන්න. ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) ගරු ඇමතිතුමා ඉදිරිපත් කරන ෙම් ආනයන හා අපනයන (පාලන) පනත යටෙත් නිෙයෝග තුන ගැසට් කරලා තිෙබන්ෙන් 2009 ෙනොවැම්බර් මාසෙය් 9 වැනි දායි. ආනයන හා අපනයන (පාලන) පනෙත් 20 වැනි වගන්තිෙය් (4) වැනි උප වගන්තිය අනුව ෙම්ක ගැසට් කරලා මාසයක් ඇතුළත පාර්ලිෙම්න්තුව තුළ අනුමත කර ගන්න ඕනෑ. පාර්ලිෙම්න්තුව තුළ අනුමත කර ගන්න වන්ෙන් මාසයක් ඇතුළතදීයි. නමුත් අද තමයි පාර්ලිෙම්න්තුවට ඉදිරිපත් වන්ෙන්. ඒ නිසා දැන් ඉදිරිපත් වීම වලංගුද කියන එකයි අපට තිෙබන පශ්නය.
+
+ගරු මහින්දානන්ද අලුත්ගමෙග් මහතා (ෙයෞවන කටයුතු නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு மஹிந்தானந்த அᾦத்கமேக - இைளஞர் அᾤவல்கள் பிரதி அைமச்சர் )
+
+(The Hon. Mahindananda Aluthgamage - Deputy Minister of Youth Affairs)
+
+වලංගුයි, වලංගුයි. ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) ඒ පිළිබඳ, ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) එම පනෙත් 20 වැනි වගන්තිෙය් (4) වැනි උප වගන්තිෙය් තිෙබනවා, මාසයක් ඇතුළත ෙම්ක පාර්ලිෙම්න්තුවට ඉදිරිපත් කරලා අනුමත කර ගන්න ඕනෑය කියලා. 2009 ෙනොවැම්බර් මාසෙය් 9 වැනි දා තමයි ෙම්ක ගැසට් කෙළේ.
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) ඒ පිළිබඳ ගැටලුවක් නැහැ ගරු කථානායකතුමනි. ඒ පිළිබඳ නීති තත්ත්වය ෙම්කයි. ෙම් ෙරගුලාසි අත්සන් කරපු විගස ඒවා කියාත්මක ෙවනවා. පාර්ලිෙම්න්තුව ඒවා පතික්ෙෂේප කරන තුරු ඒවාෙය් වලංගුභාවය, ඒවාෙය් කියාකාරිත්වය තිෙබනවා. ඉතින් ෙම් අවස්ථාෙව්දී පාර්ලිෙම්න්තුව ඒවා පතික්ෙෂේප කරනවා නම් එතෙකොට ඒ වලංගුභාවය කඩා වැෙටනවා. එෙහම නැත්නම් ඒ පිළිබඳ ගැටලුවක් නැහැ. ඒ ෙකොෙහොම වුණත් ගරු කථානායකතුමනි, ෙම්ක හැම දාම, -
+
+2010 මැයි 06 285 286
+
+ගරු රනිල් විකමසිංහ මහතා (විරුද්ධ පාර්ශ්වෙය් නායකතුමා)
+
+(மாண்ᾗமிகு ரணில் விக்கிரமசிங்க - எதிர்க்கட்சி ᾙதல்வர்) (The Hon. Ranil Wickremasinghe - Leader of the Opposition)
+
+ගරු කථානායකතුමනි, මටත් තිෙබනවා එක පශ්නයක්. පක්ෂ නායක රැස්වීෙම්දී ආණ්ඩුෙව් පධාන සංවිධායකතුමාත් අනික් අයත් දැනුම් දුන්නා, ෙමතැන ඇවිත් ෙම් ෙරගුලාසි සාකච්ඡාවට ෙයොමු කරනවා කියලා. දැන් ඇමතිතුමා කිව්වා, රජෙය් පතිපත්ති ඔක්ෙකොම අරගන්නවා කියලා. එෙහම නම් අද ඡන්දය ගන්ෙන් නැතිව අපිට තව දවස් ෙදක තුනක් ෙදන්න. ෙමතුමා කියනවා නම් ෙම්ක රජෙය් පතිපත්ති කියලා -අගමැතිතුමා කියන්න ඕනෑ එක එතුමා කියනවා- මම දන්ෙන් නැහැ, ෙම්වා රජෙය් පතිපත්තිද, නැද්ද කියලා. ෙරගුලාසි නම් අද සාකච්ඡා කරලා, -අපට තිෙබන්ෙන් එක ෙරගුලාසියක් ගැන පශ්නයක්- කථා කරලා ඒක ඡන්දයට දමන එක ගැන අෙප් විරුද්ධත්වයක් නැහැ. එකක් ගැන විතරයි අපට පශ්න තිෙබන්ෙන්. ඒත් ෙම්ක රජෙය් පතිපත්ති පකාශයක් නම්, එෙහම නම් අපට කරුණාකර ඔබතුමා රැස් ෙවලා අෙප් සම්පූර්ණ සාකච්ඡාෙව් ස්වභාවෙය් ෙවනස-[බාධා කිරීමක්] එෙහම නම් අපට දවස් ෙදකක් තුනක් ෙදන්න. අපිත් ෙමතැන පටන් ෙගන-[බාධා කිරීමක්] පතිපත්ති ගැන කථා කරන්න ඕනෑ තරම් කට්ටිය ඉන්නවා.
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) ගරු කථානායකතුමනි, ෙම්ක රජෙය්- ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ගරු කථානායකතුමනි,- කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) නැහැ. තමුන්නාන්ෙසේට දැන් අවස්ථාවක් නැහැ. [බාධා කිරීම්] ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ගරු කථානායකතුමනි,- [බාධා කිරීම්] ගරු (ආචාර්ය) මර්වින් සිල්වා මහතා (මහාමාර්ග නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு(கலாநிதி) ேமர்வின் சில்வா - ெபᾞந்ெதᾞக்கள் பிரதி அைமச்சர்)
+
+(The Hon. (Dr.) Mervyn Silva - Deputy Minister of Highways)
+
+කකුෙලන් අදින්න එපා. [බාධා කිරීම්] කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු ඇමතිතුමා, තමුන්නාන්ෙසේෙග් කතාව කර ෙගන යන්න. කාලය ඉක්මවා ගිහින් තිෙබනවා. [බාධා කිරීමක්]
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) ගරු කථානායකතුමනි, ෙම්ක පතිපත්ති- ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ආණ්ඩු පක්ෂෙය් පධාන සංවිධායකතුමා ෙකොළයක් වහ ෙගන ෙමොනවෙදෝ කුටු කුටු ගානවා-
+
+ගරු ආචාර්ය මර්වින් සිල්වා මහතා (மாண்ᾗமிகு கலாநிதி ேமர்வின் சில்வா) (The Hon. (Dr.) Mervyn Silva) ගරු දයාසිරි ජයෙසේකර මන්තීතුමා,-[බාධා කිරීම්] කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු මන්තීවරු-[බාධා කිරීම්] ගරු මර්වින් සිල්වා නිෙයෝජɕ ඇමතිතුමා- [බාධා කිරීම්] ගරු ඇමතිතුමා, තමුන්නාන්ෙසේෙග් කථාව කර ෙගන යන්න. අෙනක් මන්තීවරු කරුණාකර නිශ්ශබ්ද වන්න. [බාධා කිරීම්]
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) ෙමතුමා ෙරගුලාසි ගැන වචනයක්වත් කථා කරන්ෙන් නැහැ. ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) මම කිව්වා. මම කිව්වා ඒක. ගරු කථානායකතුමනි,- [බාධා කිරීම්]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) නිෙයෝගයන් පිළිබඳව පැහැදිලි කරලා ෙදන්න. එතෙකොට පශ්නය ඉවරයි ෙන්.
+
+ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) ගරු කථානායකතුමනි, ෙමතැනදී කථා කරනවා නම් අවතැන් වූවන්ෙග් සංඛɕාව ගැන එෙහම නම් දවිඩ සංධානය දවසක්ම ඉල්ලයි ඒ ගැනම කථා කරන්න. අපට දැන ගන්න ඕනෑ ඒවා ගැනද කථා කරන්ෙන්, ෙම් ෙරගුලාසි ගැනද කියලා. [බාධා කිරීම්]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) කරණාකරලා, ගරු මන්තීවරුන් නිශ්ශබ්ද වන්න. ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) ගරු කථානායකතුමනි, මම පැහැදිලිව කිව්වා. ෙම්වා අවුරුදු ගණනක් කරපු ෙදයක්. ඒ කියන්ෙන් ෙම් රෙට් භාණ්ඩ-
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) අපි අහන්ෙන් ෙමොනවාද ඒ ෙරගුලාසිවල තිෙබන්ෙන් කියලායි. ඒ පිළිබඳව විස්තරයක් ෙදන්න කියලායි ඉල්ලන්ෙන්.
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) එතැන තිෙබනවා භාණ්ඩ 10ක්. ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe)
+
+Hon. Minister, we have a problem on one set of Regulations with regard to chemicals and we have asked the Government either to tell us in full today what those
+
+පාර්ලිෙම්න්තුව 287 288
+
+chemicals are or to leave that aside. We can send it to the Consultative Committee. That issue -[Interruption.] I am sorry but we have already informed the Government of that issue. That is the one that has been troubling us. I know, privately also the Hon. Ravi Karunanayake did inform. On Monday night, I think he met the Leader of the House. This is one issue that is troubling us. I know that he informed. The Gazette No. is 1627/1. What you are putting down here is something that has been prohibited and why do you not - [Interruption.] We did inform the Leader of the House that we want an explanation on that on Monday night when we all met him at a social function. Otherwise, leave it aside. We will put it to the Consultative Committee and take up the others. [Interruption.] This is the issue that the Chief Opposition Whip has taken up. It is nothing else. ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris)
+
+No, no. We are not - [Interruption.] ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe)
+
+The Hon. Ravi Karunanayake explained that to you. ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris)
+
+No, no. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු මන්තීවරු අනවශɕ පශ්න ඇති කර ගන්න එපා. [බාධා කිරීම්] ගරු මර්වින් සිල්වා නිෙයෝජɕ ඇමතිතුමා, තමුන්නාන්ෙසේට අවස්ථාව තිෙබනවා කථා කරන්න. තමුන්නාන්ෙසේෙග් ෙවලාෙව්දී කථා කරන්න පුළුවන්.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ගරු නිමල් සිරිපාල ද සිල්වා අමාතɕතුමා ගැන-[බාධා කිරීමක්] ඉල්ලා අස් කර ගැනීමක්- [බාධා කිරීමක්] යම් පශ්නයක් එතැන තිෙබනවා නම්-[බාධා කිරීමක්] ඒ ගැන කථා කළා. [බාධා කිරීමක්] නමුත් එෙහම නැතිව ඒ සම්බන්ධෙයන් කථා කර ෙගන යනවා. [බාධා කිරීමක්] ඒ සම්බන්ධෙයන් තමයි ෙමතැන පශ්නයක් ඇති ෙවලා-[බාධා කිරීමක්]
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ගරු කථානායකතුමනි, අපි පක්ෂ නායක රැස්වීෙම්දී තීරණය කළා ෙම් ගැසට් පත තුන පිළිබඳව සාකච්ඡා කරන්න. ඒ අවස්ථාෙව්දී ඒ පිළිබඳව විරුද්ධත්වයක් පැන නැඟුෙණ් නැහැ. අෙනක් කාරණය විවාදය දැන් ආරම්භ කරලා අවසානයි. ඒ නිසා ෙම් පිළිබඳව යම් නීති, තර්ක හා අෙනක් ඒවා තිෙබනවා නම් ඒ සියල්ලම විවාදය ආරම්භ වීමට ෙපර අපි ඔබතුමා ෙවත ඉදිරිපත් කරලා ඒ පිළිබඳව තීන්දුවක් ලබා ගන්න ඕනෑ. දැන් විවාදය ආරම්භ කරලා තිෙබන නිසා අපට තිෙබන්ෙන් විවාදය ෙගන යන එක.[බාධා කිරීම්]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු ඇමතිතුමා තමුන්නාන්ෙසේ නිෙයෝගයන් පිළිබඳව පැහැදිලි කරලා ෙදන්න. [බාධා කිරීම්]
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ගරු කථානායකතුමනි,-[බාධා කිරීම්] ගරු මහින්දානන්ද අලුත්ගමෙග් මහතා (மாண்ᾗமிகு மஹிந்தானந்த அᾦத்கமேக) (The Hon. Mahindananda Aluthgamage) බලන්න ෙකෝ. රවි කරුණානායක මන්තීතුමා ෙකොච්චර ෙහොඳද කියලා- [බාධා කිරීම්]
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) එෙසේ වුවද- කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු විපක්ෂෙය් පධාන සංවිධායකතුමා. තමුන්නාන්ෙසේෙග් අවස්ථාෙව්දී කරුණු පැහැදිලි කරන්න. ගරු ඇමතිතුමා නිෙයෝගයන් පිළිබඳව කරුණු පැහැදිලි කරලා ෙදන්න.
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) අපි ෙමොනවා ගැනද දැන් විවාද කරන්ෙන්? 1627/1 දරන ගැසට් පතෙය් රසායන දවɕ ගැන -[බාධා කිරීම්]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු මර්වින් සිල්වා නිෙයෝජɕ ඇමතිතුමා, මම ෙම්ක පාලනය කරන්නම්. තමුන්නාන්ෙසේ තමුන්නාන්ෙසේෙග් අවස්ථාෙව්දී කථා කරන්න.[බාධා කිරීම්]-
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) ඒකයි භයානකකම. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ඇමතිතුමා ඒ පිළිබඳ කරුණු පැහැදිලි කරන්න. ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) අෙප් විවාදයට භාජනය කරලා තිෙබන්ෙන් ගරු කථානායකතුමනි, ෙරගුලාසි වර්ග තුනක්. ෙම්ෙක් කිසිම ගැටලුවක් අපි දකින්ෙන් නැහැ, ගරු කථානායකතුමනි. ෙම් පිළිබඳ ගැටලුවක් අපි දකින්ෙන් නැහැ. පක්ෂ නායකයින්ෙග් රැස්වීෙම්දී ෙම්කට එකඟ ෙවලා තිෙබනවා.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඇමතිතුමා, අපි ඔබතුමාට - [බාධා කිරීම්]
+
+[ගරු රනිල් විකමසිංහ මහතා]
+
+2010 මැයි 06 289 290
+
+ගරු මහින්දානන්ද අලුත්ගමෙග් මහතා (மாண்ᾗமிகு மஹிந்தானந்த அᾦத்கமேக) (The Hon. Mahindananda Aluthgamage) ඇමතිතුමාට කථා කරන්න ෙදන්න ෙකෝ. ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ෙම් සම්බන්ධව කෑ ගහන - [බාධා කිරීම්] කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙහොඳයි. ගරු මන්තීතුමා අනවශɕ - [බාධා කිරීම්] ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) එතුමා දන්නවා හරියට තීන්දුව ෙමොකක්ද කියලා. [බාධා කිරීම්] ෙම් ආණ්ඩුව ආවාට පස්ෙසේ පධාන සංවිධායකතුමා -
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු ඇමතිතුමා ෙම් ගැන පැහැදිලි කරන්න. [බාධා කිරීම්] විපක්ෂෙය් පධාන සංවිධායකතුමා -
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) ගරු කථානායකතුමනි, අෙප් ස්ථාවරය-[බාධා කිරීමක්] ෙම්ක විටින් විට අප හැම දාම කළ ෙදයක්. ඒ කියන්ෙන් ෙමොකක්ද? රෙට් භාණ්ඩ විශාල ෙලස තිෙබන ෙකොට අප ෙම් බදු වැඩි කළා. ඒ බදු පිළිබඳ හිඟයක් තිෙබන අවස්ථාවලදී-[බාධා කිරීමක්] ෙම්ක අලුත් ෙදයක් ෙනොෙවයි. ෙම් පිළිබඳ කිසිම ගැටලුවක් අප දකින්ෙන් නැහැ.
+
+ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க ) (The Hon. Ranil Wickremasinghe) ගරු කථානායකතුමනි, එක කාරණයක් අපට කියනවා නම් ෙහොඳයි. ෙම් ගැසට් එෙක් තිෙබනවා, ෙමන්න ෙමෙහම: The Gazette No. is, 1627/1, In Column 1, the H.S. Heading is 28.11 and under the Heading Text it is stated:
+
+"Other inorganic acid and other Inorganic oxygen compounds of Non-metals."
+
+In Column III under H.S. Code, 2811.19.10 it is stated. Can you tell us why this has been included?
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) What is the problem? - [Interruption.] කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු ඇමතිතුමා, ඔබතුමාෙග් කථාෙව්දී පැහැදිලි කරන්න. [බාධා කිරීම්] එතුමා පැහැදිලි කරාවි.
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) රජය ෙවනුෙවන් කථා කරන එකම කථිකයා ගරු ජී. එල්. පීරිස් ඇමතිතුමා ෙනොෙවයි. ෙම් විවාදෙය්දී ෙම් පිළිබඳව විවිධ
+
+දෘෂ්ටි ෙකෝණයන්ෙගන් අෙප් කථිකයන් රාශියක් කථා කරනවා. එතෙකොට ෙම් විෂයයන් පිළිබඳව ෙම් සභාවට සම්පූර්ණ විවරණයක් කරනවා. ඔබතුමන්ලාට ඒ අනුව විවාදය කර ෙගන යන්නට පුළුවන්. [බාධා කිරීම්]
+
+ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) ගරු කථානායකතුමනි,- [බාධා කිරීම්] කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) දැන් තමුන්නාන්ෙසේලා-[බාධා කිරීම්] මම ඇහුම් කන් ෙදන්නට සූදානම් නැහැ. කරුණාකර ගරු ඇමතිතුමා තමුන්නාන්ෙසේෙග් අදහස් පකාශ කරන්න. [බාධා කිරීම්] මට ඇෙහන්ෙන් නැහැ. ගරු ජී.එල්. පීරිස් ඇමතිතුමායි ෙම් අවස්ථාෙව්දී කථා කරන්ෙන්. [බාධා කිරීම්]
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) ගරු කථානායකතුමනි, අප කියනවා ෙම් ෙරගුලාසි සම්පූර්ණෙයන් නීතɕනුකූලයි කියා. අප ෙම්වා ඉදිරිපත් කර තිෙබනවා. පාර්ලිෙම්න්තුෙව් අනුමැතිය පතික්ෙෂේප කරන තාක් ෙම්වා වලංගු ෙවයි ගරු කථානායකතුමනි. එම නිසා ෙම් ෙරගුලාසි අවශɕයි කියා රජය විශ්වාස කරනවා. අප ෙම් පිළිබඳව ගැඹුරු ෙලස සාකච්ඡා කර තීරණ අර ෙගන ෙම්වා ඉදිරිපත් කර තිෙබනවා. එම නිසා ෙම් ගරු පාර්ලිෙම්න්තුෙවන් ෙම්වා අනුමත කරන්නය කියා මා ඉල්ලා සිටිනවා. ෙම්වා පතික්ෙෂේප කරන තුරු ඒවාෙය් නීතɕනුකූල වලංගුභාවය සම්පූර්ණෙයන් ආරක්ෂා වනවා.
+
+පශ්නය සභාභිමුඛ කරන ලදී. வினா எᾌத்தியம்பப்ெபற்றᾐ. Question proposed. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙහොඳයි. ගරු රනිල් විකමසිංහ, විපක්ෂ නායකතුමා. [බාධා කිරීම්]
+
+ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) නැඟී සිටිෙය්ය. எᾨந்தார். rose. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙමොකක්ද රීති පශ්නය? ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) ගරු ඇමතිතුමා ඉදිරිපත් කළා. එතුමා පාර්ලිෙම්න්තු නීති පිළිබඳ විශාරද ඇමතිවරෙයක්. එතුමා කිව්වා, ෙම්ක ගැසට් කිරීම සම්බන්ධව ගැටලුවක් නැහැ කියා. මම ෙම් පනත අධɕයනය කර, පනෙතන්ම කියන්නම්. ආනයන හා අපනයන (පාලන) පනෙත් 20 වන-
+
+පාර්ලිෙම්න්තුව 291 292
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) තමුන්නාන්ෙසේෙග් කථාෙව්දී ඒක ඉදිරිපත් කරන්න. මා ඒ ගැන ෙසොයා බලන්නම්. දැන් ගරු විපක්ෂ නායකතුමා. ඔබතුමා කථා කරන්න. [බාධා කිරීම්]
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ගරු කථානායකතුමනි, අනුර කුමාර දිසානායක මන්තීතුමාත් හිටියා පක්ෂ නායක රැස්වීෙම්දී. පක්ෂ නායක රැස්වීෙම්දී ෙමවැනි තත්ත්වයක් කවුරුත් මතු කෙළේ නැහැ. පක්ෂ නායක රැස්වීෙම්දී ෙමම ගැසට් නිෙව්දන තුන පිළිබඳව විවාද කිරීමට පක්ෂ නායකයන් ඒකමතිකව එකඟ වුණා. පක්ෂ නායක රැස්වීෙම්දී එකඟ ෙවලා ෙමතැනට ඇවිත් ඒක විවාද කරන්නට බැහැයි කියන්නට බැහැ. එවැනි නීති පශ්නයක් තිබුණා නම් ඒක පක්ෂ නායක රැස්වීෙම්දී ෙපන්වා ෙදන්නට තිබුණා. එම නිසා දැන් විවාදය ආරම්භ වී අවසානයි. ඔබතුමාෙගන් ඉතා ෙගෞරවෙයන් ඉල්ලා සිටිනවා, විවාදය පවත්වා ෙගන යාමට කටයුතු කරන්න කියා. ෙම්ක තමයි අද විපක්ෂය කර ෙගන යනු ලබන කකුෙලන් අදින්න යන වැඩ පිළිෙවළ. [බාධා කිරීම්] ෙම්ක අපට හැම දාම ෙපෙනනවා. [බාධා කිරීමක්] ඊෙය් පටන් ගත්තා. ෙෆොන්ෙසේකා episode එක ඉවරයි. දැන් ෙමොකක් ෙහෝ වැඩ කටයුතුවලට බාධා කිරීෙම් අරමුණ ඇතිව- [බාධා කිරීම්]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙහොඳයි, සභානායකතුමා. පක්ෂ නායක රැස්වීෙම්දී ෙම් පිළිබඳව කරුණු ඉදිරිපත් කෙළේ නැහැ. එම නිසා දැන් විවාදය පවත්වා ෙගන යනවා. කරුණාකර නිශ්ශබ්ද වන්න. විපක්ෂ නායකතුමා ඔබතුමා කථා කරන්න. [බාධා කිරීම්] ෙහොඳයි. සභානායකතුමා වාඩි ෙවන්න. [බාධා කිරීම්] නැහැ. ගරු මන්තීතුමාෙග් අවස්ථාව ආවාම පකාශ කරන්න. [බාධා කිරීම්] පක්ෂ නායක රැස්වීෙම්දී ඒ පශ්නය පැන නැඟුෙණ් නැහැ. පක්ෂ නායක රැස්වීෙම්දී මම මුලසුන ගත්තා. ඒ නිසා කරුණාකරලා ඒ පිළිබඳව-
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ගරු කථානායකතුමනි, පක්ෂ නායක රැස්වීෙම්දී ආණ්ඩුව විසින් ෙයෝජනා ඉදිරිපත් කරනු ලබනවා. අපි විශ්වාස කරන්ෙන් ආණ්ඩුව ඉදිරිපත් කරන ෙයෝජනා ඒ තිෙබන නිතɕනුකූල කියා පටිපාටියට අනුව ඉදිරිපත් කරන්ෙන් කියායි.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙහොඳයි, ඒ ගැන ෙසොයා බලන්නම්. ඒ ගැන ෙසොයා බලා - [බාධා කිරීම්] හරි. විවාදය කර ෙගන යන්න මම අවශɕ උපෙදස් ෙදනවා. [බාධා කිරීම්] කරන්න පුළුවන්.
+
+ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) ඒ පිළිබඳ Ruling එකක් ෙදන්න. මට කථා කරන්න බැහැ, ෙමතුමන්ලා කෑ ගහනවා. [බාධා කිරීම්]
+
+ගරු චන්දසිරි ගජදීර මහතා (මුදල් හා කම සම්පාදන නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு சந்திரசிறி கஜதீர - நிதி, திட்டமிடல் பிரதி அைமச்சர்)
+
+(The Hon. Chandrasiri Gajadeera - Deputy Minister of Finance and Planning)
+
+නැඟී සිටිෙය්ය. எᾨந்தார். rose.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු නිෙයෝජɕ අමාතɕතුමා, තමුන්නාන්ෙසේට අවස්ථාව තිෙබනවා. ගරු විපක්ෂ නායකතුමා -[බාධා කිරීම්] ඒ ගැන මම ෙසොයා බලන්නම්. එක පාරට තීන්දුවක් -[බාධා කිරීම්] දැන් බලලා තමයි කිව්ෙව්. දැන් විවාදය කර ෙගන යන්න නිෙයෝග කරනවා. [බාධා කිරීම්] මම ඒක ගැන බලන්නම්. [බාධා කිරීම්] දැන් බලන්නම්. මම ඒකට කාලය අරෙගන බලන්නම්, විවාදය යන අතරතුර. විවාදය යන අතරතුර ඒක බලා -[බාධා කිරීම්] නැහැ, ඒක අවශɕ නැහැ. [බාධා කිරීමක්] කරුණාකර මන්තීතුමා වාඩි වන්න.
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ගරු කථානායකතුමනි, කියා පටිපාටියට පටහැනි - [බාධා කිරීම්]
+
+ගරු දයාසිරි ජයෙසේකර මහතා (மாண்ᾗமிகு தயாசிறி ஜயேசகர) (The Hon. Dayasiri Jayasekara) ෙම් "මයික්" දමන්ෙන් නැහැ. "මයික්" එකක්වත් දමන්ෙන් නැහැ. ගරු කථානායකතුමනි- [බාධා කිරීම්]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) නැහැ, මා ඉඩ ෙදන්ෙන් නැහැ ඒකට. මා ෙම් ගැන ෙසොයා බලා කියන්නම්. [බාධා කිරීම්] විපක්ෂ නායකතුමා, කරුණාකර ඔබතුමාෙග් අවස්ථාව පෙයෝජනයට ගන්න. [බාධා කිරීම්] මා ඒ ගැන ෙසොයා බලන්නම්. ෙසොයා බලා කියන්නම්. [බාධා කිරීම්]
+
+ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) කෑ ගහනවා ෙන් ෙමතැන. ෙම් සභාව නිශ්ශබ්ද කරවා ගන්න ෙකෝ.
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ගරු කථානායකතුමනි, විවාද කරන්න ෙපර - කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) විවාද කරන්න ෙපර ෙනොෙවයි. විවාදය යන අතර මා ඒ ගැන ෙසොයා බලා, ඒකට අවශɕ කරුණු කියන්නම්. ඒ නිසා දැන් ඔබතුමා කරුණාකර වාඩි වන්න. ගරු විපක්ෂ නායකතුමා තමන්ෙග් අවස්ථාව පෙයෝජනයට ගන්න. [බාධා කිරීම්]
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ගරු කථානායකතුමනි, එෙහම නම් ඔබතුමා පක්ෂ නායක රැස්වීමක් කැඳවනවාද කියලා කියන්න. [බාධා කිරීම්]
+
+ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) ගරු කථානායකතුමනි, පක්ෂ නායක රැස්වීමක් අවශɕ වන්ෙන් නැහැ. පක්ෂ නායක රැස්වීමට එන ෙකොට පක්ෂ නායකයින්ෙග් වග කීමක් තිෙබනවා. ඊට දින කිහිපයකට ෙපර අපි සභාෙව් ගැනීමට බලාෙපොෙරොත්තු වන විෂයයන් පිළිබඳව විපක්ෂෙය් පධාන සංවිධායකතුමාට ලැයිස්තුවක් දීලා තිබුණා. අදාළ කරුණු
+
+2010 මැයි 06 293 294
+
+නිසි ෙලස ඉටු කර නැත්නම් පක්ෂ නායක රැස්වීෙම් දී ෙපන්වා දීලා ඒවා විවාදයට ගැනීම පිළිබඳව විරුද්ධත්වය පකාශ කරන්නට ඕනෑ. එවැනි විරුද්ධත්වයක් පකාශ කරන්ෙන් නැතිව විවාදය භාගයක් දුර කර ෙගන යන ෙකොට නවත්වන්න කියන්න පුළුවන්කමක් නැහැ. එෙහම නම් පක්ෂ නායක රැස්වීම් පවත්වා වැඩක් නැහැ. පක්ෂ නායක රැස්වීෙම් එකඟතාවන්ෙගන් වැඩක් නැහැ. [බාධා කිරීම්]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු අනුර දිසානායක මන්තීතුමනි, පක්ෂ නායකවරුන්ෙග් රැස්වීෙම් දී ෙම් පිළිබඳව සාකච්ඡා කළා. ෙම් විවාදය පවත්වා ෙගන යන්න එහිදී එකඟ වුණා. දැන්,- [බාධා කිරීමක්]
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) දැන් මට අවස්ථාවක් ෙදන්න. ඔබතුමා සභානායකතුමාට අවස්ථාව දුන්නා. ඔබතුමාෙග් තීරණය පකාශ කරන්න අවස්ථාවක් ලැබුණා. නමුත් මට මෙග් අදහස් පකාශ කරන්න අවස්ථාවක් ලැබුෙණ් නැහැ. ඔබතුමා මෙග් අදහස ෙමතැන ෙරෙකෝඩ් වන්න ඉඩ ෙනොදී, හැන්සාඩ්ගත වන්න ඉඩ ෙනොදී,- [බාධා කිරීම්] ඒ නිසා කරුණාකර මට අවස්ථාව ලබා ෙදන්න. [බාධා කිරීමක්] -
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) මා හිතන්ෙන් ඔබතුමාට තිබුණු අවස්ථාව - [බාධා කිරීමක්] ඔබතුමා යම් පශ්නයක් මතු කළා. ඒ පශ්නය පිළිබඳව මා - [බාධා කිරීමක්] -
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ගරු කථානායකතුමනි, "මයික්" එක දුන්ෙනත් නැහැ. දැන් කණ්ඩායම් රැස්වීම ගැන කිව්වා. පක්ෂ නායක රැස්වීම ගැන කිව්වා. ඒෙක දී අනුමත වීමක් ගැන කිව්වා. [බාධා කිරීම්]
+
+ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera)
+
+Mr. Speaker, I rise to a point of Order. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙමොකක්ද point of Order එක? ගරු චන්දසිරි ගජදීර නිෙයෝජɕ ඇමතිතුමා, ෙමොකක්ද point of Order එක? [බාධා කිරීම්]
+
+ගරු ආචාර්ය මර්වින් සිල්වා මහතා (மாண்ᾗமிகு கலாநிதி ேமர்வின் சில்வா) (The Hon. (Dr.) Mervyn Silva) ඒ පවුල ගැන කථා කරන්න එපා. ෙවන පවුල් ගැන කථා කරන්න.
+
+ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) ගරු කථානායකතුමනි, ෙම් ඉදිරිපත් කරන තර්කය මුළුමනින්ම වැරැදියි.
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) තර්කයක් ඉදිරිපත් කෙළේ නැහැ ෙන්.
+
+ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) පැහැදිලි කරන ෙතක් ඉන්න ෙකෝ. පැහැදිලි කරන ෙතක් ඉන්න, කලබල නැතුව. තර්කය කියලා කිව්ෙව් ෙමවැනි -[බාධා කිරීම්] උත්තරය ෙදන්න හදන්ෙන්. ෙමවැනි විවාදයක් ආරම්භ කරන අවස්ථාෙව් විෙරෝධතාවක් ඉදිරිපත් කිරීම කලින් සිදු විය යුතුයි යන්නයි පළමු වන කාරණය. ගරු කථානායකතුමනි, ෙද වන කරුණ වන්ෙන්, ෙම් ගැසට් නිෙව්දනය නිකුත් කරලා මාසයක කාලයක් ඇතුළත පාර්ලිෙම්න්තුවට ඉදිරිපත් කළ යුතුයි යන්නයි. එයින් අදහස් වන්ෙන් නැහැ, ඒ ගැසට් නිෙව්දනය පාර්ලිෙම්න්තුෙව් සම්මත විය යුතුයි කියලා. [බාධා කිරීමක්] ගරු කථානායකතුමනි, ඒ අනුව ෙම් ගැසට් නිෙව්දනය ෙම් පාර්ලිෙම්න්තුවට ඉදිරිපත් කෙළේ මීට ෙපර හිටපු ගරු රාජɕ ආදායම් හා මුදල් අමාතɕතුමායි. එතුමා 2009.11.25 වන දින ෙම් නිෙයෝග පාර්ලිෙම්න්තුවට ඉදිරිපත් කර තිෙබනවා; සභාගත කරලා තිෙබනවා. අවශɕ නම් ඒ ලිපිෙය් පිටපතක් සභාගත කරන්න කැමැතියි.
+
+ගරු කථානායකතුමනි, නව පාර්ලිෙම්න්තුව පත් වුණාට පසුව නව නිෙයෝජɕ මුදල් හා කම සම්පාදන ඇමතිවරයා හැටියට මෙග් අත්සනින් යුතුව 2010.04.30 වන දින ෙම් නිෙයෝග නැවත වරක් ෙමහි සභාගත කළා. පළමුවන අවස්ථාෙව් පාර්ලිෙම්න්තුව විසුරුවා හැරීම නිසා එය විවාදයට ගන්න බැරි වුණා. එය සම්මත කරන්න බැරි වුණා. ෙදවන අවස්ථාෙව් නියම කාල සීමාව ඇතුළත සභාගත කළා. ඒ නිසා ඒ තර්කය අදාළ වන්ෙන් නැහැ. ගරු මන්තීතුමන්ලාට අවශɕ නම් ඒ ලිපි ෙදකම ඉදිරිපත් කරන්න මා කැමැතියි. දැන් තිෙබන්ෙන් විවාදය කර ෙගන යෑමයි. [බාධා කිරීමක්]
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ගරු කථානායකතුමනි, ෙමතැන පශ්න ෙදකක් පැන නඟිනවා. පළමුවන පශ්නය තමයි කණ්ඩායම් නායක රැස්වීෙම්දී ෙම් පිළිබඳව පශ්න ෙනොකිරීම පිළිබඳ පශ්නය. ෙදවන පශ්නය තමයි ෙමය නීතɕනුකූලව ඉදිරිපත් කළාද, නැද්ද කියන පශ්නය. ආණ්ඩුව එදා ගනු ලබන ෙයෝජනා පිළිබඳව නɕාය පතය ඉදිරිපත් කෙළේ එම පාර්ලිෙම්න්තු කණ්ඩායම් නායක රැස්වීම ෙවලාෙව්දීයි. ඊට ෙපර එම නɕාය පතය අප අතට ලැබී තිබුෙණ් නැහැ. ඒ කණ්ඩායම් නායක රැස්වීෙම්දී තමයි අපි ඒ නɕාය පතෙය් ෙම් ෙරගුලාසි දැක්ෙක්, ෙම් ෙරගුලාසි සම්මත කර ගැනීම පිළිබඳව ඔබතුමන්ලා තීරණයක් ගන්න නියමිතව තිෙබනවාය කියලා. අපි හිතන හැටියට ඉන් අනතුරුව තමයි, රජය පාර්ශ්වෙයන් යම් ෙයෝජනාවක් කණ්ඩායම් නායක රැස්වීමට ඉදිරිපත් කරන ෙකොට, තිෙබන නීති පතිපාදන, කියා පටිපාටිවලට අනුකූලව තමයි එම ෙයෝජනා ඉදිරිපත් කළ යුතු වන්ෙන්. නියමිත කියා පටිපාටිෙයන් ෙතොරව, නියමිත කියා පටිපාටිය උල්ලංඝනය කරමින් තමයි ෙම්ක ඉදිරිපත් කරන්න සූදානම් වන්ෙන් කියා අතිෙර්ක වශෙයන් ආණ්ඩුව ෙපන්වා දීලා, ඒ සඳහා විපක්ෂෙය් මන්තීවරුන්ෙග් සහාය අෙප්ක්ෂා කළා නම් අපට ඒක පිළිගන්න පුළුවන්. නමුත් කණ්ඩායම් නායක රැස්වීෙම්දී ආණ්ඩු පක්ෂය පැත්ෙතන් කිසිදු පැහැදිලි කිරීමක් කෙළේ නැහැ, ෙමය තිෙබන කියා පටිපාටියට පරිබාහිරව ඉදිරිපත් කරන්නක් කියලා. එෙහම කෙළේ නැහැ. එතෙකොට කණ්ඩායම් නායක රැස්වීෙම්දී අඩුම තරෙම් ආණ්ඩු පක්ෂෙය් පධාන සංවිධායකතුමාට ෙහෝ සභානායකතුමාට ෙහෝ කියන්න තිබුණා, අපි ෙම් ඉදිරිපත් කරන්ෙන් නියමිත කියා පටිපාටිෙයන් ෙතොරව අනුමැතිය ලබා ගන්නයි කියලා. එෙහම කියලා එයට විපක්ෂෙය් මන්තීවරුන්ෙග් අදහස ෙමොකක්ද කියලා අෙපන් විමසන්න තිබුණා. අපි විශ්වාස කරනවා, ආණ්ඩු පක්ෂය ෙයෝජනා ඉදිරිපත් කරන්ෙන් නියමිත කියා පටිපාටියට අනුකූලවයි කියලා. දැන් තමයි ෙත්ෙරන්ෙන් ෙම්ක ඉදිරිපත් කර තිෙබන්ෙන් කියා පටිපාටියට අනුකූලව ෙනොෙවයි කියලා. අනුකූල ෙනොවන්ෙන් ෙකොෙහොමද කියා මා ඔබතුමාට කියන්නම්. ඒෙක් තිෙබන්ෙන්, ආනයනය හා අපනයන (පාලන) පනෙත් 20 වන වගන්තිෙය් 4 වන උප වගන්තිය අනුව කියන්ෙන් "ෙරගුලාසි
+
+පාර්ලිෙම්න්තුව 295 296
+
+නිකුත් කළ දින සිට" කියායි. එතෙකොට ෙරගුලාසි නිකුත් කර තිෙබන්ෙන් ෙනොවැම්බර් මාසෙය්දීයි. "ෙරගුලාසි නිකුත් කළ දින සිට මාසයක් ඇතුළත පාර්ලිෙම්න්තුෙව් අනුමැතිය සඳහා ඉදිරිපත් කළ යුතුයි" කියනවා. අනුමැතිය සඳහා ඉදිරිපත් කරන්න ඕනෑ. ඊ ළඟට කියන්ෙන් ෙමොකක්ද? ''එබැවින් පාර්ලිෙම්න්තුෙව් අනුමැතිය සඳහා...''. ඒ කියන්ෙන් පාර්ලිෙම්න්තුවට ඉදිරිපත් කිරීම ෙනොෙවයි. [බාධා කිරීමක්] ඔබතුමා ඒක වරදවා ෙත්රුම් කළා. පාර්ලිෙම්න්තුවට ඉදිරිපත් කිරීමයි, අනුමැතියයි කියන්ෙන් ෙදකක්. [බාධා කිරීමක්] නැහැ. අනුමැතිය කියන්ෙන් ගරු කථානායකතුමනි, -[බාධා කිරීමක්] ෙපොඩ්ඩක් ඉන්න. ගරු කථානායකතුමනි, අනුමැතිය කියන එකයි, පාර්ලිෙම්න්තුවට ඉදිරිපත් කරනවාය කියන එකයි කරුණු ෙදකක්. පාර්ලිෙම්න්තුෙව් අනුමැතිය ලබා ගන්නවාය කියන්ෙන්,- [බාධා කිරීමක්] ගරු කථානායකතුමනි, ඒ නිසා ලබා දිය යුතු වන්ෙන් පාර්ලිෙම්න්තුෙව් අනුමැතියයි. මාසයකට ෙපර පාර්ලිෙම්න්තුවට ඉදිරිපත් කිරීම ෙනොෙවයි. පාර්ලිෙම්න්තුවට ඉදිරිපත් කිරීමයි, පාර්ලිෙම්න්තුෙවන් අනුමැතිය ලබා ගැනීමයි කියන්ෙන් කරුණු ෙදකක්. ඒ නිසා මාසයක් ඉකුත් වීමට ෙපර පාර්ලිෙම්න්තුෙව් අනුමැතිය ලබා ගත යුතුව තිෙබනවා. ඒ කාලෙය්දී පාර්ලිෙම්න්තුව රැස් වුණා. ෙනොවැම්බර් මාසෙය් 9 වන දායි ගැසට් කරන්ෙන්. නියමිත පරිදි ෙදසැම්බර් මාසෙය්දී පාර්ලිෙම්න්තුව රැස් වුණා. [බාධා කිරීමක්] නැහැ. ගරු කථානායකතුමනි, පාර්ලිෙම්න්තුව විසුරුවා හැරිෙය් ෙදසැම්බර් මාසෙය්දී ෙනොෙවයි. ෙපබරවාරි මාසෙය්දීයි පාර්ලිෙම්න්තුව විසුරුවා හැරිෙය්. ෙපබරවාරි මාසෙය් 9 වැනි දා තමයි පාර්ලිෙම්න්තුව විසුරුවා හැරිෙය්. ෙනොවැම්බර් මාසෙය් 9 වැනි දා තමයි ෙම්ක ගැසට් කරන්ෙන්. ෙනොවැම්බර් මාසෙය් 9 වැනි දා සිට ෙපබරවාරි මාසෙය් 9 වැනි දා දක්වා මාස තුනක කාලයක් තිබුණා, පාර්ලිෙම්න්තුවට ෙමය ඉදිරිපත් කරලා අනුමැතිය ලබා ගන්න. එම මාස තුන ඇතුළත ආණ්ඩුව ෙමය පාර්ලිෙම්න්තුවට ඉදිරිපත් කරලා අනුමැතිය ලබා ෙගන නැහැ. ඒ නිසා දැන් ෙම්ක ඉදිරිපත් කරන කමෙව්දය වැරදියි. ඒ නිසා පනත උල්ලංඝනය කර තිෙබනවා. ගරු කථානායකතුමනි, ෙම් පාර්ලිෙම්න්තුෙව් පනත් ෙකටුම්පත් සම්මත කරනවා. නීති සම්පාදනය කරන්ෙන් ෙම් පාර්ලිෙම්න්තුවයි. ෙම් පනත සම්මත කෙළේත් ෙම් පාර්ලිෙම්න්තුෙවනුයි. හැබැයි ෙම් පාර්ලිෙම්න්තුව විසින්ම සම්මත කර දී තිෙබන පනත ෙම් පාර්ලිෙම්න්තුව විසින්ම උල්ලංඝනය කරනවා. එෙහම නම් ෙම් පාර්ලිෙම්න්තුව ෙමොකටද? පාර්ලිෙම්න්තුව විසින්ම සම්මත කර දී තිෙබන ෙම් පනත ෙම් පාර්ලිෙම්න්තුව විසින්ම උල්ලංඝනය කිරීමක් තමයි ෙම් සිදු වන්ෙන්. ඒ නිසා ගරු කථානායකතුමනි, ෙම් ආනයන හා අපනයන (පාලන) පනත යටෙත් තිෙබන නිෙයෝග අද කිසි ෙසේත්ම විවාදයට ගන්න බැහැ. විෙශේෂෙයන්ම ෙම් නිෙයෝග විවාදයට ගන්නවා නම් ෙම් පාර්ලිෙම්න්තු පනත උල්ලංඝනය කරනවාය කියන පූර්ව ෙකොන්ෙද්සියට යටත්ව විපක්ෂ නායකවරුන්ෙග් පූර්ව එකඟතාවකට යටත්ව ෙමය විවාදයට ගත යුතුයි. ඒ නිසා ගරු කථානායකතුමනි, ෙමය විවාදයට ගැනීමට ෙපර පක්ෂ නායක රැස්වීමක් කැඳවා ෙමය නැවත සාකච්ඡාවට භාජනය කළ යුතුයි. [බාධා කිරීමක්]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු නිෙයෝජɕ ඇමතිතුමනි, ෙම්ක ආපසු ගැසට් කළාද? නැවත වරක් ගැසට් කළාද? [බාධා කිරීමක්] කරුණාකරලා නිශ්ශබ්ද වන්න. ගරු දයාසිරි ජයෙසේකර මන්තීතුමනි, කරුණාකරලා වාඩි ෙවන්න. ගරු ඇමතිතුමනි, ෙමය නැවත වරක් ගැසට් කරලා තිෙබනවාද?
+
+ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) සභාගත කරලා තිෙබනවා. [බාධා කිරීම්]
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) අනවශɕ කතා කරන්න එපා. වාද විවදවලට යන්න එපා. [බාධා කිරීම්] ගරු අස්වර් මන්තීතුමා, කරුණාකරලා ෙපොඩ්ඩක් වාඩි ෙවන්න. ගරු ඇමතිතුමනි, පශ්නයට උත්තර ෙදන්න. ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) ගරු අනුර දිසානායක මන්තීතුමා ඉදිරිපත් කරපු කාරණෙය් එක ෙකොටසක් හරි. සම්මත ෙවන්න ඕනෑ නැහැ. ගැසට් නිෙව්දනය පාර්ලිෙම්න්තුවට ඉදිරිපත් කරලා, මාසයක කාලයක් තුළ පාර්ලිෙම්න්තුවට ඉදිරිපත් කළ යුතුයි, එය අනුමැතිය සඳහා. [බාධා කිරීම්] ගරු කථානායකතුමනි, එය නීතියක් බවට පත් වන්ෙන් පාර්ලිෙම්න්තුෙවන් සම්මත වුණාට පසුවයි. මා ඔබතුමාට පැහැදිලි කරන්න කැමැතියි - [බාධා කිරීම්] කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) කරුණාකර නිශ්ශබ්ද වන්න. තමුන්නාන්ෙසේලා කතා කරන ෙකොට ෙම් නිෙයෝජɕ ඇමතිතුමා කතා කරන ෙදය ඇෙහන්ෙන් නැහැ; පැහැදිලි නැහැ. ඒ නිසා කරුණාකරලා අනික් මන්තීවරුන් නිශ්ශබ්ද වන්න. [බාධා කිරීම්] තමුන්නාන්ෙසේත් තමුන්නන්ෙසේෙග් ආසනයට යන්න. මුදල් හා කම සම්පාදන නිෙයෝජɕ අමාතɕතුමා කතා කරන්න.
+
+ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) පළමුෙවන්ම ෙම් ගැසට් නිෙව්දනය ඉදිරිපත් කෙළේ රාජɕ ආදායම් හා මුදල් අමාතɕතුමායි. ඒ, 2009.11. 25 වැනි දා එතුමා ඒක ෙම් පාර්ලිෙම්න්තුවට ඉදිරිපත් කළා, එතුමාෙග් ලිපිය සහිතව. එහි පිටපතක් මා සතුව තිෙබනවා. එහි ෙම් නිෙව්දන තුනම පිළිබඳව සඳහනක් තිෙබනවා, ගරු කථානායකතුමනි. ඊට අමතරව 2010.02.09 වන දින පාර්ලිෙම්න්තුව විසුරුවා හැරීම නිසා එය සම්මත කරන්නට ෙනොහැකි වූ ෙහේතුව මත නව පාර්ලිෙම්න්තුවට නියමිත කාලය තුළ මෙග් අත්සනින් ලිපියක් සහිතව ගැසට් නිෙව්දනය ඉදිරිපත් කර තිෙබනවා. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ඒ ගැසට් නිෙව්දනය ඉදිරිපත් කරපු දිනය කවදාද? ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) ඒක තමයි ෙම් විවාදයට ගන්ෙන්. ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ඒ ගැසට් නිෙව්දනය ෙම් පාර්ලිෙම්න්තුවට ඉදිරිපත් කරලා තිෙබනවාද?
+
+ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) ගැසට් නිෙව්දනය ඉදිරිපත් කරලා තිෙබනවා. [බාධා කිරීම්]ඔව්. එය නීතɕනුකූල කර ගන්න තමයි ෙම් පාර්ලිෙම්න්තුවට ඉදිරිපත් කරන්ෙන්. [බාධා කිරීම්]
+
+ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe)
+
+What is the date of it?
+
+[ගරු අනුර දිසානායක මහතා]
+
+2010 මැයි 06 297 298
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු ගජදීර නිෙයෝජɕ ඇමතිතුමා, කවදාද ෙම් ගැසට් පතය නිකුත් කෙළේ?
+
+ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) ෙනොවැම්බර් 09. ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) ෙනොවැම්බර් 09 තමයි පළමු වන වතාවට ඉදිරිපත් කෙළේ. අලුතින් ඉදිරිපත් කෙළේ කවදාද? [බාධා කිරීම්]
+
+ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) ගරු කථානායකතුමනි, එම ගැසට් නිෙව්දනය 2010.04.30 වන දින ගරු සභාවට ඉදිරිපත් කළා. [බාධා කිරීම්] නැති වන්න බැහැ. [බාධා කිරීම්]
+
+ගරු අනුර දිසානායක මහතා (மாண்ᾗமிகு அᾔர திஸாநாயக்க) (The Hon. Anura Dissanayake) අෙපේල් 30 පාර්ලිෙම්න්තුව රැස් වුෙණ් නැහැ. ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) පාර්ලිෙම්න්තුව ඕනෑ නැහැ, ගැසට් එන්න. [බාධා කිරීම්] ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) අසතɕ ෙන් කියන්ෙන්. ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) පාර්ලිෙම්න්තුව ඕනෑ නැහැ, ගැසට් එන්න. [බාධා කිරීම්] කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු ගජදීර නි ෙයෝජɕ ඇමතිතුමා, ෙම් පනෙත් තිෙබන්ෙන් ඉදිරිපත් කළ යුතු කාලය ද, එෙහම නැත්නම් අනුමත කළ යුතු කාලය ද? පනෙත් තිෙබන නියමිත කාලය කුමක්ද? ඉදිරිපත් කළ යුතු කාලයද නැත්නම් අනුමත කළ යුතු කාලයද?
+
+ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) අනුමත කිරීම ෙනොෙවයි, ඉදිරිපත් කිරීම. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ඉදිරිපත් කළ යුතු කාලය කුමක්ද? ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) අනුමැතිය සඳහා ඉදිරිපත් කිරීම.
+
+ගරු අල්හාජ් ඒ. එච්. එම්. අස්වර් මහතා (மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர்) (The Hon. (Alhaj) A.H.M. Azwer) Mr. Speaker, I want to raise a point of Order. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) අස්වර් මන්තීතුමා, ඔබතුමාෙග් point of Order එක ෙමොකක්ද? [බාධා කිරීම්] නිශ්ශබ්ද වන්න.
+
+ගරු අල්හාජ් ඒ. එච්. එම්. අස්වර් මහතා (மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர்) (The Hon. (Alhaj) A.H.M. Azwer) Mr. Speaker, according to the Business of the House, you have already recognized the Leader of the Opposition. He is holding the Floor without speaking.
+
+ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) That is pointless. - [Interruption.] Pointless! ගරු අල්හාජ් ඒ. එච්. එම්. අස්වර් මහතා (மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர்) (The Hon. (Alhaj) A.H.M. Azwer) But, according to the Standing Orders, he must be given, whatever said, the freedom of speech; the freedom of speech must be honoured by the Speaker. It is very clear. A student of Erskine May , J.A. Pettifer, says when the Speaker calls a Member to speak, he must be allowed to speak. But, what is happening today is, a gang of rabble-rousers උෙද් පාන්දර ඇවිත් ෙම්ක කඩාකප්පල් කරන්න හදනවා.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) කරුණාකර, වාඩි වන්න. තමුන්නාන්ෙසේ ඉදිරිපත් කරපු කරුණ - [බාධා කිරීම්] විපක්ෂ නායකතුමා, Imports and Exports (Control) Act, No. 1 of 1969 හි Section 20(4) ෙකෙරහි අවධානය ෙයොමු කරනවා:
+
+" Every regulation made by the Minister shall be brought before Parliament within a period of one month from the date of the publication of that regulation under subsection (3), or, if no meeting is held within that period, at the first meeting after the expiry of that period, by a motion that such regulation shall be approved.."
+
+ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) Mr. Speaker, you must also look into the fact that this was gazetted in November, 2009. Then, the whole process was brought to a halt by the Parliament being dissolved. All that is over. This is a new Parliament. There should be a new gazette and it should be presented as a result - [Interruption.] Yes. Look at the result over the dissolution of Parliament on legislation. It has to be introduced a new. The Leader of the House has put many Acts back for the passage in Parliament. That you can do. But, for this, a new gazette should be brought in. What
+
+පාර්ලිෙම්න්තුව 299 300
+
+you have not gone into is the impact of dissolution -[Interruption.] We are not here to tell you that. I am not here to give you classes. The Leader of the House is saying, "දැන ෙගන හිටියා නම් ඇයි කිව්ෙව් නැත්ෙත්" කියලා. ෙම්ක හරි වැඩක් ෙන්. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ඒ පිළිබඳව මෙග් නිෙයෝගය ලබා දුන්නා. මා දැන් පැහැදිලි කරපු වගන්තිය අනුව කියා කරන්න පුළුවන්; සභාව පවත්වන්න පුළුවන්. ඒ නිසා මතු කරපු පශ්නය,- [බාධා කිරීම්] ඒ පිළිබඳ නිෙයෝගය මා ලබා දුන්නා. Imports and Exports (Control) Act, No. 1 of 1969 එෙක් Section 20 හි 4 වන උප වගන්තිය මම කිෙයව්වා. ඒ අනුව මම පිළිගන්නවා ෙම් විවාදය පවත්වා ෙගන යන්න පුළුවන් කියලා. ඒ නිසා තමුන්නාන්ෙසේලා විවාදය පවත්වා ෙගන යන්න. [බාධා කිරීම්] ඒ පිළිබඳ නිෙයෝගය දුන්නාට පස්ෙසේ මම ඇහුම් කන් ෙදන්න සූදානම් නැත. කරුණාකර, විපක්ෂ නායකතුමා කථාව කර ෙගන යන්න. [බාධා කිරීම්] ගරු මන්තීවරුනි, අනවශɕ කථා පවත්වන්න බැහැ. එෙහම වුෙණොත් මට ස්ථාවර නිෙයෝග අනුව කටයුතු කරන්න වනවා. [බාධා කිරීම්] ජයෙසේකර මන්තීතුමා කරුණාකර, වාඩි වන්න. [බාධා කිරීම්] එෙහම නම් ස්ථාවර නිෙයෝග අනුව කටයුතු කරන්න සිදු වනවා. [බාධා කිරීම්] විපක්ෂ නායකතුමා කථා කරන්න. [බාධා කිරීම්]
+
+ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) හරි. මම කථා කරනවා.[බාධා කිරීම්] කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙම්ක, ෙම් පාර්ලිෙම්න්තුව සම්මත කරපු පනතක්. ඒ අනුව අපි කටයුතු කරමු. [බාධා කිරීම්] ඒ පශ්නය ගැන දැන් කථා කරන්න ඉඩ ෙදන්න බැහැ. [බාධා කිරීම්] විපක්ෂ නායකතුමා, තමුන්නාන්ෙසේෙග් කථාව කරන්න.
+
+[පූ. භා. 10.37] ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) ගරු කථානායකතුමනි, ෙම් ෙරගුලාසිවලට අදාළව අපි පළමුෙවන්ම ආණ්ඩුෙවන් ඉල්ලා සිටිෙය්, ඇයි හයිඩජන් සයනයිඩ් ෙම්කට ඇතුළත් කර තිෙබන්ෙන් කියන එක අපට කියන්න කියලායි. ඒ ගැන කියන්ෙන් නැතුව ආණ්ඩුෙවන් පාර්ලිෙම්න්තු පජාතන්තවාදයට සයනයිඩ් කවන්න යනවා වාෙග් තමයි දැන් ෙපෙනන්ෙන්. පාර්ලිෙම්න්තුව සම්පූර්ණෙයන්ම අඩ පණ කරලා බලන්ෙන් ගැසට් මඟින් ආදායම් ලබා ගන්න; බදු දමන්න. ඒ ආදායම් යන්ෙන් ඒකාබද්ධ අරමුදලට. ඒකාබද්ධ අරමුදලට ගියාම ඒවා වියදම් කරන්න වනවා. තව පශ්නයක් තිෙබනවා. මුදල් එකතු කළාට ෙකොෙහොමද වියදම් කරන්ෙන් කියලා ඇමතිවරයා කිව්ෙව් නැහැ. ෙමොකද, ෙම් මුදල් වියදම් කරන්න අනුමතියක් නැහැ. අපි ෙම් පශ්නය පාර්ලිෙම්න්තුෙව්දී මතු කරලා තිෙබනවා. ෙකොෙහොමද ෙම්වා වියදම් කරන්ෙන්? ෙම් ගැන අපි ෙමතැනදී තර්ක කළා. ඔබතුමා නීතිපතිට කථා කරලා තීරණයක් දුන්නා. ඒත් නීතිපතිතුමා එක කාරණයක් ඔබතුමාෙග් අවධානයට ෙයොමු කරලා තිබුෙණ් නැහැ. ජනාධිපතිතුමාෙග් නිෙයෝගය ආෙව් අෙපේල් 30 වන දා. ඒ නිෙයෝග ෙදනවා නම් ෙදන්න තිෙයන්ෙන් අෙපේල් 22 වන දාට ඉස්ෙසල්ලා. එෙහනම් ෙම් මුදල් එකතු කළාට වියදම් කරන්න බෑ. ඒකයි අපි කියන්ෙන්. පාර්ලිෙම්න්තුෙව්දී ෙම් පශ්න ඉදිරිපත් වුණාම නීතිපතිතුමා දිහා විතරක් බලන්ෙන් නැතුව, ඒ ගැන ෙදපැත්ෙත්ම අදහස් ගන්න
+
+ඕනෑ. විෙශේෂෙයන්ම අද නීතිපති ෙදපාර්තෙම්න්තුව තිෙයන්ෙන් අධිකරණ අමාතɕාංශය යටෙත් ෙනොෙවයි. මුදල් ඇමතිතුමා ට තමයි නීතිපති ෙදපාර්තෙම්න්තුවත් භාර. මුදල් ඇමතිතුමා මුදල් වියදම් කිරීමට ගත්ත පියවර ගැන අපි ෙමතනදී පශ්න කළාම ඔබතුමා ඒක අහන්ෙන් නීතිපතිෙගන්. එෙහම සිදු ෙවලා නැහැ.
+
+ගරු කථානායකතුමනි, ෙම් පශ්නය විතරක් ෙනොෙවයි. තව පශ්නයක් තිෙබනවා. ඒ, ඊෙය් සරත් ෙෆොන්ෙසේකා මැතිතුමා ෙම් සභාවට ඉදිරිපත් ෙනොකිරීම ගැන. ඒ සඳහා ඔබතුමා උපෙදසක් දුන්නා. ඒ ගැන ආණ්ඩු පක්ෂෙය්යි, විරුද්ධ පක්ෂෙය්යි එක මතයක් තිබුණා. ඒත් නීතිපති ෙවන එකක් කියලා. නීතිපති ඉන්ෙන් ජනාධිපති යටෙත්. ආරක්ෂක අමාතɕාංශය තිෙයන්ෙන්ත් ජනාධිපති යටෙත්. ඒ කියන්ෙන් "ෙහොරා ෙග් අම්මාෙගන් ෙප්න අහනවා වාෙගයි." ෙමොකක්ද ෙම් නීතිපතිට තිෙයන බලය? විරුද්ධ පක්ෂවල අපට අද දවල්ට ඔබතුමා හ මු වන්න ඕනෑ. අනුර බණ්ඩාරනායක කථානායකතුමාට නීතිපති කිව්වාම පාර්ලිෙම්න්තුව අපහාස කරලා තිෙයනවා කියලා, එතුමා නීතීඥ මණ්ඩලයක් පත් කරලා, ඒ ෙගොල්ලන්ෙගන් උපෙදස් ගත්තා. මම දන්නවා, ඒකට එච්.එල්. ද සිල්වා මහතා සිටියා. චන්දා ෙසෙනවිරත්න මහතා සිටියා. එෙහම ෙද තුන් ෙදෙනකුෙග් අදහස් අර ෙගන තමයි කටයුතු කෙළේ. අෙප් ෙල්කම්තුමා කිව්වා එතුමා නීතිය හරියට බලලා තිබුෙණ් නෑ කියලා. අපි එෙහනම් ඒ වාෙග් මණ්ඩලයක් තබා ගන්න ඕනෑ. නැත්නම් සිදු වන්ෙන්, - [බාධා කිරීමක්]
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (ජලසම්පාදන හා ජලාපවහන අමාතɕතුමා සහ ආණ්ඩු පක්ෂෙය් පධාන සංවිධායකතුමා)
+
+(மாண்ᾗமிகு திேனஷ் குணவர்தன - நீர்வழங்கல், வᾊகாலைமப்ᾗ அைமச்சᾞம் அரசாங்கக் கட்சியின் ᾙதற்ேகாலாசாᾔம்)
+
+(The Hon. Dinesh Gunawardena- Minister of Water Supply and Drainage and Chief Government Whip)
+
+The late Hon. Anura Bandaranaike, as Speaker, gave a Ruling on an Impeachment Motion against the Chief Justice, which you did not sign.
+
+ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) It is not an Impeachment - ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena)
+
+You were one of the Members who did not sign that. That was a special issue in relation to the Chief Justice because the Parliament has powers to inquire into the conduct of the Chief Justice and the Supreme Court. It is totally different.
+
+ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe)
+
+Hon. Member, let me finish. අපි ඉදිරිපත් කළාට පස්ෙසේ උසාවියට අපහාස කළා කියලා තමයි ඒ නඩුව ගිෙය්. එතැනදී පශ්නයක් ඇති වුණාම නීතිපතිතුමාෙග් අදහස තිබුෙණ් උසාවියට අපහාස කළා කියලා. ආණ්ඩු පක්ෂ ෙය්යි, විරුද්ධ පක්ෂෙය්යි අදහස තිබුෙණ් උසාවියට අපව ෙගනි යන්න බැහැ කියන එක. ඒ නිසා තමයි අනුර බණ්ඩාරනායක මැතිතුමා ෙවනත් කණ්ඩායමක උපෙදස් ගත්ෙත්. එදා අනුර බණ්ඩාරනායක කථානායකතුමා ඒක දුන්ෙන් නැත්ෙත් ඇයි කියලා මම කියන්නම්. ඔබතුමාටත් කියන්න තිෙබන්ෙන් ඒ
+
+[ගරු රනිල් විකමසිංහ මහතා]
+
+2010 මැයි 06 301 302
+
+උදාහරණය. සෙහෝදරිය තමයි ජනාධිපතිනිය. මම එදා චන්දිකා බණ්ඩාරනායක කුමාරතුංග ජනාධිපතිනියෙගන් ඇහුවා ෙමොකක්ද ෙම් කෙළේ කියලා. ඇයි, විධායකය අධිකරණයට ෙහේත්තු කරන්ෙන් කියලා. විෙශේෂෙයන්ම නීතිපතිෙග් ෙම් පශ්න තිෙයන නිසා අපි කැමැතියි ඔබතුමා මුණ ගැෙහන්න. ෙමොකද, ෙම් යුද්ධාධිකරණයට ඒ බලතල නැහැ. යුද්ධාධිකරණයට අධිකරණ බලයක් නැහැ. අධිකරණ බලය තිෙයන්ෙන් අධිකරණ ෙසේවා ෙකොමිසෙමන් පත් කරන්න අයට. නඩු අහන අය පත් කරන්ෙන් ඒෙකන්. සංඝාධිකරණයක් පත් කිරීම විතරයි ඒෙකන් අත් හැරිලා තිෙබන්ෙන්. [බාධා කිරීම්] සංඝාධිකරණය විතරයි අත් හැරිලා තිෙයන්ෙන්. සංඝාධිකරණයක් ෙනොෙවයි, ෙම් තිෙයන්ෙන් යුද්ධාධිකරණයක්. [බාධා කිරීම්]
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) විපක්ෂ නායකතුමාට මම ගරු කරනවා. ඔබතුමා හැම තිස්ෙසේම නැඟිට නැඟිට එක එක ෙවන ෙවන ෙද්වල් කථා කරනවා. ෙම්කට ඉඩ ෙදන්න බැහැ. ඔබතුමාට ඔය කාරණය ගැන විවාදයක් ඕනෑ නම්,- [බාධා කිරීම්] ෙපොඩ්ඩක් ඉන්න. ආණ්ඩු පක්ෂය ෙවනුෙවන් මම කියන්ෙන්. ඔබතුමා කථානායකතුමා හමු ෙවනවා කියලා දැන් පකාශ කළා; ෙවලාවක් ඉල්ලුවා. හමු වුණාට පස්ෙසේ ඕනෑ නම් විවාදයක් ඉල්ලන්න. නැත්නම් අපිත් එක්ක ෙම් කාරණය ගැන කථා කරන්න. ඔබතුමා ආණ්ඩුකම වɕවස්ථාව කියවන්න. වɕවස්ථාව කියවන්න. ඔබතුමා එක වගන්තියක් කියවලා අධිකරණ බලයක් ෙවන ආයතනයකට නැහැ කියන කතන්දරය කියන එක වැරදියි. මම ඔබතුමාට අභිෙයෝග කරනවා. ඔබතුමා නීතීඥෙයක්. මම නම් නීතීඥෙයක් ෙනොෙවයි. කියවන්න වɕවස්ථාෙව් වගන්ති ඔක්ෙකෝම. කියවන්න. මම ඔබතුමාට ගරු කරනවා. නිකම් විහිළුවක් ෙවන්න එපා. කථානායකතුමාව හමු ෙවලා ඒ වගන්ති ටික අහ ගන්න. ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) මම ඇත්ත වශෙයන්ම හිටිෙය් ෙම් ගැන ෙකටිෙයන් කථා කරලා අෙනක් කාරණා ගැන කියන්න.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු විපක්ෂ නායකතුමා මම ඊෙය් දවස පුරාම ෙම් පශ්නය පිළිබඳව ෙහොයලා බැලුවා. පක්ෂ නායකවරුන්ෙග් රැස්වීෙම්දී ඒ පිළිබඳව සාකච්ඡා කරන්න පුළුවන්. ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) අපි කැමතියි, දවල් 12ට ඔබතුමා හමු වන්න. ඔබතුමාට අපි ඇවිල්ලා කියන්නම් අෙප් පශ්න. ආණ්ඩු පක්ෂෙය් පධාන සංවිධායකතුමා කිව්වා අදාළ ඒවා ටික කියවන්න කියලා. මම කියවන්නම්. ආණ්ඩුකම වɕවස්ථාෙව් 4 වන වɕවස්ථාෙව් (ඇ) යටෙත් ෙමෙසේ සඳහන් වනවා:
+
+"(ඇ) නීතිය අනුව පාර්ලිෙම්න්තුව විසින් ම කියාත්මක කළ හැකි පාර්ලිෙම්න්තුෙව් සහ එහි මන්තීවරයන්ෙග් වරපසාද, පරිහාර හා බලතල සම්බන්ධෙයන් විනා ජනතාවෙග් අධිකරණ බලය, ආණ්ඩුකම වɕවස්ථාෙවන් ඇති ෙකොට පිහිටුවන ලද ෙහෝ ආණ්ඩුකම වɕවස්ථාෙවන් පිළිගන්නා ලද නැතෙහොත් ෙවනත් යම් නීතියකින් ඇති ෙකොට පිහිටුවන ලද අධිකරණ, විනිශ්චය අධිකාර සහ ආයතන මගින් පාර්ලිෙම්න්තුව විසින් කියාත්මක කළ යුත්ෙත් ය."
+
+ඊ ළඟට එකසිය - කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු විරුද්ධ පාර්ශ්වෙය් නායකතුමා, ඔය පශ්නය පිළිබඳව ඊෙය් සාකච්ඡා කළා ෙන්. ඊෙය් කථා කළා.
+
+ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) එතුමා පැහැදිලි කිරීමක් ඉල්ලනවා ෙන්. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ඊෙය් කථා කළා. තමුන්නාන්ෙසේ ෙම් අද- ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) එෙහම නම් මම එන්ෙන් එක පශ්නයකට. ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) ගරු කථානායකතුමනි, -[බාධා කිරීම්] කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ඔබතුමාෙග් කාලය තුළ කථා කරන්න. ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) ගරු කථානායකතුමනි, ෙමතැනින් එකතු කරන මුදල් ෙකොෙහොමද වියදම් කරන්ෙන්? විෙශේෂෙයන්ම මම සරත් ෙෆොන්ෙසේකා මැතිතුමාෙග් පශ්නය අර ගත්ෙත් අෙප් විෙද්ශ කටයුතු ෙහවත් External කටයුතු ඇමතිතුමා කිව්වා, - මම දන්ෙන් නැහැ, Externalවලට සිංහල වචනය ෙමොකක්ද කියලා. ෙකොෙහොමත් විෙද්ශ කටයුතු ඇමතිතුමා කිව්වා,- යුෙරෝපීය සංගමයත් එක්ක දැන් සාකච්ඡා කරලා, - there was a meeting of minds. ඒෙක් අදහසක් ෙවලා තිෙබනවා, සරත් ෙෆොන්ෙසේකා නිදහස් කරන්න ඕනෑ, අත් අඩංගුෙව් තියා ගන්න බැහැයි කියලා. ඉතින් ඒ ගැන දැන් මම කියන්න ඕනෑ. අපි ෙකොෙහොමද ෙම්ක කරන්ෙන්? ෙකොෙහොමද අපි යුෙරෝපීය සංගමයට යන්ෙන්; ෙමතුමන්ලා ගිහින් කථා කරන්ෙන්; සරත් ෙෆොන්ෙසේකාට පාර්ලිෙම්න්තුවට එන්න ඉඩ ෙදන්ෙන් නැත්නම්? යුෙරෝපීය පාර්ලිෙම්න්තුෙව් ෙම්ක පශ්නයක් ෙවලා තිෙබනවා. අෙපන් අහනවා. ඒක විශාල පශ්නයක්. ෙමොකද, GSP Plus ලැෙබන්ෙන් නැත්නම් ෙමතුමාට සිදු ෙවයි, කුරුඳු ටික ඔක්ෙකොම බසීලයට, ෙමක්සිෙකෝවට විකුණලා අර ෙකෝට්ෙට් රාජධානිය කාලය වාෙග් කුරුඳුවලින් විතරක් ජීවත් වන්න, ඇඟලුම් නැතුව. ඒ රැකියාවලට ෙමොනවාද ෙවන්ෙන් කියලා මම දන්ෙන් නැහැ. ෙකොෙහොම හරි අපට ෙම් GSP එක ලබා ගන්න ඕනෑ නම් ඇත්ත වශෙයන්ම කරන්න තිෙයන්ෙන් -ෙමතුමා ඒ ගැන කිව්ව එක ෙහොඳයි. - සරත් ෙෆොන්ෙසේකා මැතිතුමාෙග් පශ්නය විසඳීමයි. පාර්ලිෙම්න්තුෙව් මන්තීවරෙයක් ෙකොෙහොමද, බලයක් නැති යුද්ධාධිකරණයකට ෙගන යන්ෙන්? එෙහම නම් අඩු ගාෙන් සංඝාධිකරණයට ෙගන යන්න, විනය කැඩුවා කියලා. ඒෙක් තියා ගන්න. අපි අහන්ෙන් ඇයි හමුදාව ෙම් සභාවට යටත් ෙවන්න බැරි කියලායි. හමුදා පනත සම්මත කරන්ෙන් පාර්ලිෙම්න්තුෙවන්; හමුදාවට මුදල් ෙදන්ෙන් පාර්ලිෙම්න්තුෙවන්. අද ෙමොකක්ද සිදු ෙවලා තිෙබන්ෙන්? අපි ෙම් පාර්ලිෙම්න්තුවට ආවාම ෙමොකක්ද ෙවලා තිෙබන්ෙන්? දැන් බලන්න, ආරක්ෂක අමාතɕාංශය යටෙත් තිෙබනවා, නාගරික සංවර්ධන අධිකාරිය. ෙම්ක හරි පුදුම එකක්. දැන් ෙමොකක්ද ෙම්? ෙම් ෙගොල්ෙලෝ ෙකොෙහොමද ගම් හදන්ෙන්, නගර හදන්ෙන්?
+
+අෙනක් අතින් බලන්න. දැන් සංචාරක මණ්ඩලය තිෙබන්ෙන් ආර්ථික සංවර්ධන අමාතɕාංශය යටෙත්. දැන් ෙමොකක්ද, ෙවලා තිෙබන්ෙන්? නාරිගමත් ආර්ථික සංවර්ධනයක් ෙවලා. දැන් අලුත් වචනයක් තිෙබනවා. ළඟදී ෙම් ලංකාවට ආපු සුද්ෙදකු හා
+
+3 — PL 004841 (2010/05)
+
+පාර්ලිෙම්න්තුව 303 304
+
+[ගරු රනිල් විකමසිංහ මහතා]
+
+සුද්දිෙයකු ෙගන් "ඇයි ආෙව්?" කියලා ගුවන් ෙතොටු ෙපොෙළන් ඇහුවාම, "නාරිගම යනවා, ආර්ථික සංවර්ධනය කරන්න" කියලා කිව්වාලු. ෙමන්න ෙම්කයි දැන් ෙවලා තිෙබන්ෙන්. ෙකෝකත් දැන් ආර්ථීක සංවර්ධනය කියලායි කියන ්ෙන්. නාගරික සංවර්ධනය එක සෙහෝදරෙයක් යටෙත්. ආර්ථික සංවර්ධනය තව සෙහෝදරෙයක් යටෙත්. ෙම් හැම එකම තිෙබනවා. ෙම් අතරතුර අපි කියන්ෙන් අඩුම ගණෙන් පාර්ලිෙම්න්තුවවත් ආරක්ෂා කරන්න කියලායි. සරත් ෙෆොන්ෙසේකා මහතාට පාර්ලිෙම්න්තුවට එන්න ඉඩ ෙදන්න. අන්න ඒකයි අවශɕ වන්ෙන්. [බාධා කිරීමක්] නීතිපති කවුද? කවුද, නීතිපතිට වග කියන්ෙන්?
+
+ගරු ඒ. පී. ජගත් පුෂ්පකුමාර මහතා (කෘෂිකර්ම නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு ஏ. பீ. ஜகத் ᾗஷ்பகுமார - கமத்ெதாழில் பிரதி அைமச்சர்)
+
+(The Hon. A. P. Jagath Pushpakumara - Deputy Minister of Agriculture)
+
+රීති පශ්නයක්, ගරු කථානායකතුමනි. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ජගත් පුෂ්පකුමාර නිෙයෝජɕ ඇමතිතුමා රීති පශ්නයක් මතු කරනවා.
+
+ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) ඇත්ත වශෙයන්ම ජී.එල්. පීරිස් ඇමතිතුමා කිව්ව හැටියට යුෙරෝපීය සංගමය පශ්න කරලා තිෙබනවා, නීතිපති ෙකොෙහොමද, -
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) විපක්ෂ නායකතුමා, නිශ්ශබ්ද ෙවන්න. රීති පශ්නයට ඉඩ ෙදනවා. ජගත් පුෂ්පකුමාර ඇමතිතුමා.
+
+ගරු ඒ. පී. ජගත් පුෂ්පකුමාර මහතා (மாண்ᾗமிகு ஏ. பீ. ஜகத் ᾗஷ்பகுமார) (The Hon. A. P. Jagath Pushpakumara) ගරු කථානායකතුමනි, ෙමතුමාට සෙහෝදරෙයෝ උදවු කරන්ෙන් නැත්නම්, උදවු කරන්න දරුෙවක් නැත්නම් අතිගරු ජනාධිපතිතුමාට සියලුම ශක්තිය ෙදන ෙකොට දැන් ෙම් කථා කරන්ෙන් ඊර්ෂɕාෙවන්, ෛවරෙයන්.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) රීති පශ්නය පැහැදිලි නැහැ. ගරු ඒ. පී. ජගත් පුෂ්පකුමාර මහතා (மாண்ᾗமிகு ஏ. பீ. ஜகத் ᾗஷ்பகுமார) (The Hon. A. P. Jagath Pushpakumara) ෙම් පනත ගැන ෙහෝ නිෙයෝග ගැන ෙහෝ ෙනොෙවයි කථා කරන්ෙන්. පවුෙල් පශ්න. ෙමතුමාට පවුෙල් අය උදවු කරන්ෙන් නැත්නම්, ඊර්ෂɕාෙවන්-
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) තමුන්නාන්ෙසේ අනවශɕ පකාශ නිකුත් කරන්න එපා. රීති පශ්නයක් මතු කරනවා නම් කරුණාකරලා වගන්තිය කියලා කථා කරන්න. ෙබොෙහොම ස්තුතියි. විපක්ෂ නායකතුමා.
+
+ගරු රනිල් විකමසිංහ මහතා (மாண்ᾗமிகு ரணில் விக்கிரமசிங்க) (The Hon. Ranil Wickremasinghe) ආර්ථික සංවර්ධන ඇමතිතුමාෙගන් මම අහන්න කැමැතියි, එතුමා යටෙත් ගංජාත් තිෙබනවාද කියලා. එතෙකොට ඒකත් ආර්ථික සංවර්ධන කටයුත්තක් කරන්න පුළුවන්. මම මීට වඩා වැඩිදුර කථා කරන්ෙන් නැහැ. මම කියන්ෙන් පාර්ලිෙම්න්තුවට සයනයිඩ් කවන්න එපා කියලායි. මාධɕට සයනයිඩ් දීලා මාධɕ නිදහස මැරුවා. ෙමතැනට සයනයිඩ් කවන්න අපි ඉඩ ෙදන්ෙන් නැහැ කියලා පකාශ කරමින් මම අසුන් ගන්නවා.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු චන්දසිරි ගජදීර ඇමතිතුමා. ඔබතුමාට කාලය විනාඩි විස්සයි.
+
+[අ. භා. 10.47] ගරු චන්දසිරි ගජදීර මහතා (මුදල් හා කම සම්පාදන නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு சந்திரசிறி கஜதீர - நிதி, திட்டமிடல் பிரதி அைமச்சர்
+
+(The Hon. Chandrasiri Gajadeera - Deputy Minister of Finance and Planning)
+
+ගරු කථානායකතුමනි, ෙම්, අද දවෙසේ වැදගත් වන නිෙයෝග තුනක් පාර්ලිෙම්න්තුවට ඉදිරිපත් කරන අවස්ථාවයි. ගරු කථානායකතුමනි, ඒ ෙරගුලාසි ඉදිරිපත් වන්ෙන් 1969 අංක 01 දරන ආනයන හා අපනයන (පාලන) පනත යටෙත්යි. මම ඔබතුමාට කියන්නට කැමැතියි, ඒ නිෙයෝග තුෙනන් පළමුවැන්න තිෙබන්ෙන් හඳුනා ගත් රසායනික දවɕ තිස් අටක් ආනයන බලපතවලට යටත් කර ආනයනය කිරීමටයි. ෙදවැන්න, ෙලෝහ කර්මාන්තකරුවන් ආරක්ෂා කිරීම සඳහා ෙලෝහ සුන්බුන් අපනයනය සීමා කිරීමයි; බලපත ලබා දීෙම් අනුමැතියක් ලබා ගැනීමයි. තුන්වැන්න තිෙබන්ෙන් ආනයනික දත් බුරුසු ආනයන තත්ත්ව පාලනය නිෙයෝගවලට යටත් කිරීමයි. ගරු කථානායකතුමනි, අෙප් ගරු මහාචාර්ය ජී.එල්. පීරිස් මැතිතුමා ෙමම නිෙයෝග පාර්ලිෙම්න්තුවට ඉදිරිපත් කරමින්, එය සභාගත කරලා ඒකට පසු බිම් වන වැදගත් කරුණු ගණනක් ඉදිරිපත් කළා. ඒ අවස්ථාෙව් දී එයට විෙරෝධය පළ කරපු විපක්ෂෙය් ගරු මන්තීතුමන්ලා ඊට වඩා හාත්පසින් ෙවනස්, කිසි ෙලසකින් එයට අදාළ ෙනොවන ආර්ථික ක්ෙෂේතයටවත් ෙනොගැළෙපන ෙවනත් පෙව්ශයකට පාර්ලිෙම්න්තුව ෙයොමු කරන්නට උත්සාහ ෙකරුවා. ඒ නිසා මම ෙම් ෙව්ලාෙව් දී අපි ඉදිරිපත් කරන නිෙයෝග සම්බන්ධෙයන් එයට පසු බිම් වූ කාරණා පිළිබඳ යම් අදහසක් පාර්ලිෙම්න්තුෙව් තැබීම යුතුකමක් ෙකොට සලකනවා.
+
+ගරු කථානායකතුමනි, ෙම් ෙරගුලාසි ඉදිරිපත් කරන අවස්ථාෙව් දී අෙප් විපක්ෂ නායකතුමා එක තර්කයක් මතු ෙකරුවා. එතුමා ඇසුවා, “ඇයි හයිඩජන් සයනයිඩ් ආනයනය කරන්ෙන්” කියලා. මම ඒකට උත්තරයක් ෙදන්නට ඕනෑ. ෙමම ආනයන සහ අපනයන සිදු වන්ෙන් කර්මාන්ත අමාතɕාංශයට අදාළවයි. ගරු කථානායකතුමනි, ෙම් හයිඩජන් සයනයිඩ් කියන දවɕ අෙප් රෙට් ෙලෝහ කර්මාන්තය සඳහා -ෙලෝහ ඔප දැමීම සඳහා- භාවිත කරනවා. ඒ වාෙග්ම කෘෂි ක්ෙෂේතෙය් කෘමි නාශක සඳහා, ඡායාරූප ශිල්පය සඳහා, නැව් සහ ගබඩාවල ධූමකරණය සඳහා භාවිත කරනවා. එම නිසා ගරු කථානායකතුමනි, එම සම්මුතිය යටෙත් අපි ලැයිස්තුගත කරලා තිෙබන්ෙන් ෙලෝකෙය් භාවිත වන පධාන රසායනික දවɕ එක්දහස් නවසිය පණහකින් 38ක් පමණයි. එම පනෙත් 1, 2 සහ 3 කියන උපෙල්ඛන යටෙත් ඇති ෙමම රසායනික දවɕ 38 වැඩි වශෙයන්ම භාවිත වන්ෙන් කර්මාන්තකරණයටයි. ඒ නිසා අෙප් රෙට් කර්මාන්තකරණය ශක්තිමත් කරන්නට අවශɕ රසායනික දවɕ හඳුනා ගනිමින් තමයි ෙම් ගැසට් නිෙව්දනය, ෙම් නිෙයෝග පාර්ලිෙම්න්තුවට ඉදිරිපත් කරන්ෙන්. ගරු කථානායකතුමනි, මීට ෙපර ෙම්වා බලපත සහිතව නිදහෙසේ අෙප් රෙට් ෙවෙළඳ ෙපොළට ආවා. ඒවාෙය් භයානක
+
+2010 මැයි 06 305 306
+
+පතිඵල තිබුණා. සමහර වɕාපාරිකෙයෝ අපට ෙනොගැළෙපන, අෙප් ජීවිතවලට හානි වන සමහර නිෂ්පාදන හැදුවා. තවමත් ඒවාෙය් නඩුකර තිෙබනවා. ඒ ගැන සමහර උදාහරණ අපට කියන්නට පුළුවන්. ඒ නිසා හිතකර ෙනොවන විධියට අෙප් රෙට් භාවිත වුණු ෙම් රසායනික දවɕ යම් පාලනයකින් යුක්තව රටට ෙගන ඒම සඳහා තමයි, ෙම් නිෙයෝග ෙම් පාර්ලිෙම්න්තුවට ඉදිරිපත් කරලා තිෙබන්ෙන්. ගරු කථානායකතුමනි, එම නිසා මම කියන්නට කැමැතියි, ෙලෝකෙය් අෙනක් රටවල් ෙමන්ම අපි 2007 අංක 57 දරන පනතින් රසායනික අවි සම්මුතිෙය් ෙකොටස්කරුෙවෝ වුණා. ෙම් රසායනික අවි නිෂ්පාදනය පිළිබඳ දැවැන්ත විෙරෝධයක් ෙලෝකය පුරා තිබුණා. එෙහම අවස්ථාවක තමයි අපි ෙම් සම්මුතිෙය් ෙකොටස්කාරෙයෝ විධියට ඇතුළත් වුෙණ්. අෙප් රෙට් කර්මාන්තකරණයට වැදගත් වන රසායනික දවɕ, කෘෂි කර්මාන්තයට වැදගත් වන රසායනික දවɕ, පර්ෙය්ෂණවලට වැදගත් වන රසායනික දවɕ කවෙර්ද කියලා හඳුනා ෙගන ඒ පනෙත් සඳහන් උපෙල්ඛනවල සඳහන් වූ සමහර රසායනික දවɕයන්ෙගන් අෙප් රෙට් ආර්ථික ඵලදායීත්වයට ව ඩා වැදගත් වන, ගැළෙපන රසායනික දවɕ 38ක් ෙම් ගැසට් නිෙව්දනය මඟින් ආනයනය කිරීෙම් අවසර ලබා දීමටයි ෙම් ගැසට් නිෙව්දනය අපි ඉදිරිපත් කෙළේ. අපි විශ්වාස කරනවා, ෙම්ෙක් වගකීම තිෙබන්ෙන් කර්මාන්ත අමාතɕාංශයටයි කියා. කර්මාන්ත අමාතɕාංශය කර්මාන්තකරණෙය්දී ෙම් රසායනික දවɕ ආනයනය කිරීම වැදගත්ය කියලා කල්පනා කරලා ඒ පිළිබඳව තීන්දුවකට ආෙවොත් ආනයන අපනයන පාලකවරයා විසින් ඒ බලපතය නිකුත් කරනවා. ගරු කථානායකතුමනි, ඒ නිසා ඒ පදනම මත පිහිටලා වැදගත් නිෙයෝගයක් අද ෙම් ගරු සභාවට ඉදිරිපත් කර තිෙබනවා. ගරු කථානායකතුමනි, ෙද වැනි කාරණය වන්ෙන් ෙද්ශීය ෙලෝහ කර්මාන්තකරුවන් ආරක්ෂා කරන්න ෙලෝහ භාණ්ඩ සුන්බුන් හා පාථමික ස්වරූපෙය් දවɕ අපනයන බලපතවලට යටත් කිරීමයි. ෙම්කත් වැදගත් පශ්නයක්. අෙප් රෙට් විශාල පමාණයක් ෙලෝහ කර්මාන්තකරණෙය් රැකියාවල ෙයදී ඉන්න බව අපි දන්නවා. ගරු කථානායකතුමනි, මෙග් මතකෙය් හැටියට කර්මාන්තකරණෙය් දී පධාන කර්මාන්තකරුවන් 13ක් ෙම් ෙලෝහ භාණ්ඩ නිෂ්පාදනෙය් ෙයදී ඉන්නවා. ඒ අයෙග් පධාන ඉල්ලීමක් තිබුණා, ෙම් රෙට් තිෙබන ෙලෝහ සුන්බුන් නිර්යාත කරන්ෙන් නැතිව අෙප් රෙට් කර්මාන්තකරණයට ලබා ෙදන්නය කියා. දීර්ඝ කාලයක් ති ස්ෙසේ ෙම් ඉල්ලීම තිබුණා. නමුත් ෙමය නීතියක් බවට පත් වුෙණ් නැහැ. අෙප් කැබිනට් මණ්ඩලය වරින් වර අවස්ථා කිහිපයකදීම තීන්දු ගත්තා. ෙමය පාලනය කරන්න සමහර තීරණ ගත්තා. නමුත් එය නීතියක් බවට පත් ෙනොවුණ නිසා රජය කල්පනා කළා ඒ තත්ත්වය සැලකිල්ලට අර ෙගන ආනයන හා අපනයන (පාලන) පනතට අනුකූල ෙරගුලාසි හදලා ඒවා පාලනය කිරීමට අවශɕ පතිපාදන සකස් කරන්න. ඒ අනුව තමයි ෙම් ෙරගුලාසි අද පාර්ලිෙම්න්තුවට එන්ෙන්. මම ඔබතුමාට කියන්න කැමැතියි අෙප් රෙට් කර්මාන්තකරුවන්ට ෙම්ෙකන් විශාල සහනයක් ලැෙබන බව. ෙම් ලුහු ඉංජිෙන්රු කර්මාන්තෙය් ෙයෙදන කුඩා හා මධɕ පරිමාණ වɕවසායකයන් 8,000ක් පමණ ඉන්නවා. ඒ නිසා ෙමය වɕාපාරයක් හැටියට තමයි හුඟක් පිට රටවලට ගිෙය්. පාලනයකින් ෙතොරව අෙප් රෙට් ෙලෝහ සුන්බුන් පිට රටවලට ඇදී ගියා. ඒ නිසා ෙද්ශීය කර්මාන්තකරුවන්ෙග් අවශɕතා සම්පූර්ණ කරන්න ෙනොහැකි තත්ත්වයක් තිබුණා. ගරු කථානායකතුමනි, ෙම් ෙලෝහ භාණ්ඩ විෙද්ශගත කරන ආයතනවලත් ෙවනත් ෙවනත් තර්ක තිෙබනවා. ෙකෙසේ ෙවතත් අපි කල්පනා කළා ෙද්ශීය වශෙයන් කර්මාන්තකරුවන්ෙග් තත්ත්වය ශක්තිමත් කරන්න. ඉතාම අඩු මුදලකට, ඒ කියන්ෙන් ෙම් ෙලෝහ භාණ්ඩ පිට රටින් ආයාත කෙළොත් ඒ නිෂ්පාදනෙය් මිල වැඩි ෙවනවා. ඒ නිසා රට ඇතුෙළේ තිෙබන අතිරික්තය; රට ඇතුෙළේ තිෙබන සුන්බුන් උපෙයෝගී කර ෙගන පධාන කර්මාන්තකරුවන් දහතුන් ෙදනාටත්, ඒ වාෙග්ම සුළු කර්මාන්තවල සහ මධɕ පරිමාණ කර්මාන්තවල ෙයෙදන -ගරු කථානායකතුමනි, මෙග් සංඛɕා ෙල්ඛනවල හැටියට ලක්ෂ තුනක පමණ පමාණයක් ෙම් කර්මාන්තෙය් ෙයෙදනවා.- අයෙග් අනාගතය ෙවනුෙවනුත් ෙම් ෙරගුලාසි ෙග්න්න කල්පනා කළා.
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) ඒක කලින් ෙන් ෙග්න්න තිබුෙණ්. ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) නැහැ, කරන්න ඕනෑ ෙවලාෙව්, තමුන්නාන්ෙසේලාෙග් කාලෙය් කරන්න තිබුණා.
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) අවුරුදු කීයක් පාලනය කළාද? ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) අපි ෙම්ක කරන ෙකොට, මම හිතන්ෙන් ඔය තර්කය ෙග්න්න තිබුෙණ්- [බාධා කිරීමක්] ගරු මන්තීතුමනි, මම හිතන විධියට ඔය තර්කය ෙග්න්ෙන් ෙම්කට විරුද්ධ නිසයි.
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) මම කියන්ෙන් පමාදයි කියලායි. ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) ෙම්ෙක් ෙදපැත්තක් තිෙබනවා. දැන් ෙම් ෙග්න අවස්ථාෙව්ත් තමුන්නාන්ෙසේලා තර්ක ඉදිරිපත් කළා. ෙපොඩි කලබැගෑනියක් හදන්න ගියා ෙම්ක ටිකක් පස්සට ගන්න. ඒ නිසා ඔබතුමාෙග් අදහස, ෙමය තවත් කඩිනම් කළා නම් ෙහොඳයි කියලා. නමුත් ෙමය ගැසට් නිෙව්දනයක් මඟින් ඉදිරිපත් ෙනොකළත් 2006 සිට වාර්ෂිකව කැබිනට් පතිකා මඟින් ෙමය පාලනය කරන්නට කියා කරලා තිෙබනවා. ඒ නිසා ෙම් උත්සාහය දීර්ඝ කාලීනව තිබුණා. 2006, 2007, 2008, 2009 දක්වා අවස්ථා කිහිපයකදීම කැබිනට් පතිකා ඉදිරිපත් කරලා ෙමය පාලනය කරන්න උත්සාහ කළා. නමුත් ගැසට් නිෙව්දනයක් එන පළමුවැනි අවස්ථාව ෙමයයි. ඒ නිසා අපි විශ්වාස කරනවා, ෙම් අවස්ථාව තුළින් වක රැකියා ෙනොෙවයි, ඍජු රැකියා කරන 1,50,000ක් පමණ විශාල පිරිසකට සහනයක් ලැෙබන බව; ෙම් පාලන බලතල ලබා දීෙමන්, පාලනයකට යටත් කිරීෙමන් අපට අවශɕ සුන්බුන් අෙප් නිෂ්පාදනයට ෙයොදා ගත හැකි ඒවා පාලනයකින් ෙතොරව විෙද්ශගත වීම; නිර්යාත කිරීම වළක්වාලන්නට පුළුවන්ය කියා.
+
+ඒ වාෙග්ම ගරු කථානායකතුමනි, අවසාන වශෙයන් අෙප් ෙම් නිෙයෝගවල සඳහන් වන තුන්වැනි කාරණය ආනයනික දත් බුරුසු ආනයන නිෙයෝගවලට යටත් කිරීමයි. අෙප් රෙට් දත් බුරුසු නිෂ්පාදකෙයෝ ඉන්නවා. ඒ දත් බුරුසු නිෂ්පාදකයන් පමිතිකරණයට යටත් වනවා. නමුත් පිට රටින් ෙගෙනන භාණ්ඩ පමිතිකරණයකට යටත් වුෙණ් නැහැ. ඒ, විෙශේෂෙයන්ම දත් බුරුසු. ෙම්ක අවස්ථා කිහිපයකදීම පාර්ලිෙම්න්තු උපෙද්ශක කාරක සභාෙව්දී මතු වුණා. ඒ, අහිතකර, පාලනයකින් ෙතොරව භාණ්ඩ ෙම් රටට ෙගන ඒම. ඉතින් ෙම්ක යම් පමාණයකට පාලනය ෙවන්න ඕනෑ. පසු ගිය පාර්ලිෙම්න්තුෙව් උපෙද්ශක කාරක සභාෙව්දී ෙම් සම්බන්ධෙයන් තීරණයක් ගත්තා. මට මතකයි, මා එම උපෙද්ශක කාරක සභාවට සහභාගි ෙවලා සිටියා. උපෙද්ශක කාරක සභාෙව් පමණක් ෙනොෙවයි, විදɕා හා තාක්ෂණ අමාතɕාංශෙය්ත් ෙම් කාරණය මතු වුණා. ඒ මතු වුණ අවස්ථාෙව් විෙද්ශීය වශෙයන් ෙම් රටට ෙගෙනන දත් බුරුසු සම්බන්ධවත්, ජාතික වශෙයන් අෙප් නිෂ්පාදකයින්ට සමාන තත්ත්වයන් ලබා දීම කියන කාරණය මතු වුණා. ඒ කියන්ෙන් අෙප් රෙට් දත් බුරුසු තත්ත්ව පාලනයට යටත් ෙවනවා නම් ඒ හා සමානවම විෙද්ශ
+
+පාර්ලිෙම්න්තුව 307 308
+
+[ගරු චන්දසිරි ගජදීර මහතා]
+
+රටවලින් ෙගෙනන නිෂ්පාදනත් ඒ තත්ත්ව පාලනයට යටත් කරන්න ඕනෑය කියන නිෙයෝගය තමයි කියැ වුෙණ්. ෙම් නිෙයෝග ෙම් ගරු සභාවට ෙගෙනන්න බලපෑ කාරණය වන්ෙන් එයයි. ඒ නිසා මම- [බාධා කිරීමක්] ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) චීනෙයන්. ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) නැහැ. ඒක චීනෙයන් ෙනොෙවයි. ඔබතුමා දන්නවා ඇති, ලාභ භාණ්ඩ චීන මහා පාකාරය බිඳ ෙගන ෙලොව පුරා ගමන් කරනවා කියා කාල් මාක්ස් කියා තිෙබන බව. ඒ නිසා ඒවා චීනෙය් ෙවන්න පුළුවන්; තව රටක ෙවන්නත් පුළුවන්. ඒ නිසා ඒකට එක රටක් අදාළ කර ගන්න එපා. නමුත් මා ඔබතුමාට එකක් කියන්න කැමැතියි.
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) චීනෙයන් කියන්න භයයි, ඔබතුමාට. ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) නැහැ, නැහැ. මම භය නැහැ. මම කාටවත් ගැති නැහැ. ගරු කථානායකතුමනි, අද ලාභය ෙහොයා යන ෙවලාවක් ෙම්. ගුණය නැහැ අද. ඇත්ත. ගුණාත්මකභාවය යට යනවා. අද ෙද්ශපාලන ක්ෙෂේතෙය්ත් ඒකයි ෙවන්ෙන්. අද හුඟක් ෙද් කරන්ෙන් මනාපයට. නියම යථාර්ථවාදී සංවාදයක්, විගහයක් -එවැනි කියාදාමයක්- රට ඇතුෙළේ නැහැ. හුඟ ෙදෙනක් ෙම් සමහර සංවාද පාවිච්චි කරන්ෙන් තමන්ෙග් මනාපයට; රට ඇතුළත ලාභ ජනපියත්වයට. තර්කානුකූල කාරණා ඉදිරිපත් වීමක් අපි දකින්ෙන් නැහැ. ඒ නිසා මම කියනවා ඒකත් ලාභයක් බව. ඒකත් ලාභ කමයක්. තමන්ෙග් තත්ත්වය හදා ගන්න ෙමොනවා ෙහෝ කුණු කන්දලක් උෙද් පාන්දර ඇද ගන්නවා. ඇද ෙගන ඒක ෙදනවා නාළිකාවලට. ෙම්කත් එක පැත්තකින් භාණ්ඩ ලාෙභට ෙගෙනනවා වාෙග් තමයි. ෙද්ශපාලනය ලාෙභට විකුණන්න හදනවා, යථාර්ථවාදී ෙනොවන විධියට. ඒ නිසා ෙම් කම ෙව්දෙය් වැරැද්දක් තිෙබනවා. නමුත් ගරු කථානායකතුමනි,- [බාධා කිරීමක්] නැහැ. ඔබතුමා පරිණත ෙද්ශපාලනඥෙයක්. මා සලකන ෙද්ශපාලනඥෙයක්. ඔබතුමා මෙග් කථාවට අතුරු අදහස් ඉදිරිපත් කිරීෙම් වරදක් නැහැ. ගරු කථානායකතුමනි, මා කියන්න කැමැතියි ෙලෝකය, හැම දාම ලාභය ෙහොයන්න යන්ෙන් නැහැ කියන එක. ෙලෝකය ගුණය ෙහොයන දවසකුත් තිෙබනවා. ෙලෝකය ගුණය ඉල්ලනවා. අද ඒ තත්ත්වයට ෙලොව පරිවර්තනය ෙවමින් තිෙබනවා. ඒ නිසා මා කියනවා ලාභය තාවකාලිකයි කියලා. අද ලාභ භාණ්ඩ ෙවෙළඳ ෙපොළ ආකමණය කරන ෙව්ගයටම ගුණාත්මක ෙද්වලුත් ෙලෝකය ෙහොයනවා. ඒක තමයි ෙලෝක ස්වභාවය. නමුත් ගරු කථානායකතුමනි, අපට කළ හැකි ෙද් වන්ෙන් අෙප් සීමා ඇතුළත ෙම් රෙට් ජනතාවට ගුණාත්මක ෙදයක් ලබා ෙදන්නයි; ෙම් රෙට් ජනතාවට පාලනයකින් යුක්තව යම් ෙමෙහවරක් කිරීමයි. ඒ නිසා ෙම් ෙරගුලාසි අද අප ඉදිරිපත් කළා. මා හිතනවා අෙප් විපක්ෂෙය් ගරු මන්තීතුමන්ලා ෙමය ෙපෝෂණය කරන්න ෙම්කට විවිධ අදහස් ඉදිරිපත් කරාවිය කියා. ෙම්කට විරුද්ධ ෙවන්න ෙහේතුවක් නැහැ. ෙමය දැන් ගැසට් නිෙව්දන මඟින් කියාත්මක වනවා. ෙමය පාර්ලිෙම්න්තුවට ඉදිරිපත් කිරීෙමන් අදහස් කෙළේ එය සභා සම්මුතියකට ගැනීමටයි, නීතියක් බවට පත් කිරීමටයි. ඒ නිසා මා මීට වඩා ෙම් ගැන කරුණු ඉදිරිපත් කරන්න කල්පනා කරන්ෙන් නැහැ.
+
+ගරු කථානායකතුමනි, නව පාර්ලිෙම්න්තුෙව් මෙග් පළමුවැනි අදහස් දැක්වීමයි ෙම්. මා ෙම් ෙවලාෙව් කියන්න කැමැතියි, නැවත වරක් ෙම් පාර්ලිෙම්න්තුවට අප ෙතෝරා පත් කරන්න කැප වුණු අෙප් දිස්තික්කෙය් ජනතාවට මෙග් කෘතෙව්දීත්වය පළ කරන බව. [බාධා කිරීම්] නැහැ. ඒක ස්තුති කිරීමක්. මම මනාෙපට ෙද්වල් කළාද නැද්ද කියලා තමුන්නාන්ෙසේලා දන්නවා. මට එෙහම අවශɕ නැහැ. විෙශේෂෙයන්ම ෙම් අවස්ථාෙව් ඒ ජනතාවට මෙග් ෙගෞරවය පිරිනැමීම මෙග් යුතුකමක් වනවා. ඒ වාෙග්ම නැවත වරක් ෙම් උසස් පාර්ලිෙම්න්තුෙව් ෙමෙහම එකතු ෙවලා රට ෙවනුෙවන් ෙහොඳ යහපත් එකඟත්වයකින්, මිතශීලිව යමක් කරන්න අපි තමුන්නාන්ෙසේලා සියලු ෙදනාටම අවස්ථාවක් ලැබිලා තිෙබනවා. ගරු කථානායකතුමා ෙතෝරා ගැනීෙම්දී අප දක්වපු එකඟතාව මා හිතන්ෙන් ජාතික ආදර්ශයක් කියලායි. ගරු කථානායකතුමාටත්, ගරු නිෙයෝජɕ කථානායකතුමාටත් නව පාර්ලිෙම්න්තුෙව් මෙග් පළමුවැනි කථාව කරන ෙම් අවස්ථාෙව් මම සුබ පතනවා. ෙම් සභාව ෙහොඳින් පාලනය කරමින් අපට මඟ ෙපන්වන්න කියා කිරීම ගැන ගරු කථානායකතුමාට මා ස්තුතිවන්ත ෙවනවා. ඒ වාෙග්ම නවක මන්තීවරු විශාල පිරිසක් ෙදපැත්ෙතන්ම පාර්ලිෙම්න්තුවට ඇතුළු ෙවලා ඉන්නවා. ඒ සියලු ෙදනාටම සුබ පතමින් මෙග් අදහස් දැක්වීම මම නතර කරනවා.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙබොෙහොම ස්තුතියි. මී ළඟට ගරු සරත් ෙෆොන්ෙසේකා මන්තීතුමා.
+
+[පූ. භා. 11.03] ගරු ෙජනරාල් සරත් ෙෆොන්ෙසේකා මහතා (மாண்ᾗமிகு ெஜனரல் சரத் ெபான்ேசக்கா) (The Hon. General Sarath Fonseka) ගරු කථානායකතුමනි, ෙම් සාකච්ඡා කරන ෙරගුලාසි අෙප් රෙට් ආර්ථිකයට බලපානවා. ඒවා ආනයනය, අපනයනය ආදියට බලපාන නිසා රටක මානව අයිතිවාසිකම් ඉහළින් රැක ගැනීම සහ පජාතන්තවාදය රැක ගැනීම අවශɕයි, අෙනක් රටවලින් අපට ලැබිය යුතු ෙද් ලබා ගැනීම සඳහා. නිෙයෝජɕ මුදල් ඇමතිතුමාත් පැවසූ අයුරු ෙලෝකෙය් ගුණාත්මක ෙද් ෙසවීමට නම් ෙලෝකෙය් අෙනක් රටවල සම්බන්ධතාව, ඒ රටවල විශ්වාසය දිනා ගැනීම අතɕවශɕයි. ආණ්ඩුකම වɕවස්ථාෙව් 67 වන වɕවස්ථාව පකාරවත්, පාර්ලිෙම්න්තු (බලතල හා වරපසාද) පනෙත් විධිවිධාන අනුවත් මන්තීවරයකු ෙලස මා ඊෙය් හදිසි නීති විවාදය සඳහා සම්බන්ධ විය යුතුව තිබුණත්, මා හට එකී අයිතිය හිමිව තිබුණත් ඒ යුද හමුදා නිලධාරින් විසින් ඊෙය් දින පාර්ලිෙම්න්තුවට පැමිණීමට මා හට තිබූ අවස්ථාව අවහිර කර එය වළක්වනු ලැබීම උදාහරණයක් ෙලස ගත හැකියි. එය මානව අයිතිවාසිකම් රැකීම පිළිබඳ ෙහොඳ උදාහරණයක් ෙනොෙවයි. එබැවින් එකී බාධා කිරීම් පිළිබඳව ඊට වග කිව යුතු නිලධාරින් පාර්ලිෙම්න්තුෙව් වරපසාද පිළිබඳ කාරක සභාව ෙවත කැඳවා මන්තීවරයකු ෙලස මා හට සිදු වූ අසාධාරණය සම්බන්ධව ඔබතුමා ෙසොයා බැලිය යුතුයි, ගරු කථානායකතුමනි.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ගරු මන්තීතුමා, මා ඊෙය් ඔෙබ් පශ්නය පිළිබඳව මුළු දවස පුරාම අධɕයනය කළා. ඒ පිළිබඳව අවසාන නිෙයෝගයක් දුන්නා. ඔබතුමා වරපසාද පශ්නයක් නඟන්න අවසර ඉල්ලා තිෙබනවා. ෙහට දිනෙය්දී එය ඉදිරිපත් කරන්න මා අවසර ෙදනවා.
+
+ගරු ෙජනරාල් සරත් ෙෆොන්ෙසේකා මහතා (மாண்ᾗமிகு ெஜனரல் சரத் ெபான்ேசக்கா) (The Hon. General Sarath Fonseka) වරපසාද පශ්නයක් ෙහට අපි ඉදිරිපත් කරනවා. මා කථා කෙළේ ආනයනය අපනයනය සම්බන්ධෙයන් මානව අයිතිවාසිකම් රැකීම ෙකොෙහොමද බලපාන්ෙන් කියන එක ෙපන්වන්නයි. ඒ හන්දා ෙම්
+
+2010 මැයි 06 309 310
+
+කටයුතු සාධාරණව ඉටු කරලා, පාර්ලිෙම්න්තුෙව් ෙගෞරවය රකිනවාය කියා ෙපන්වුෙවොත් ෙම් පනත්වල කථා කරන ෙද්වල් ඉදිරියට කර ෙගන යන්න පුළුවන් ෙව්විය කියා මම හිතනවා. ඔබතුමාට ස්තුතියි. කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) මී ළඟට ගරු ෙරෝහණ පුෂ්ප කුමාර මන්තීතුමා. [පූ. භා. 11.05] ගරු (ෛවදɕ) ෙරෝහණ පුෂ්ප කුමාර මහතා (மாண்ᾗமிகு (ைவத்திய கலாநிதி) ேராஹண ᾗஷ்பகுமார) (The Hon. (Dr.) Rohana Pushpa Kumara) ගරු කථානායකතුමනි, ගරු මැති ඇමතිවරුනි, සියලු ෙදනාටම සුබ උදෑසනක් පාර්ථනා කරනවා. මම පළමුෙවන්ම ස්තුතිවන්ත වනවා නවක පාර්ලිෙම්න්තු මන්තීවරයකු විධියට කථා කරන්න මට ෙම් අවස්ථාව ලබා දීම පිළිබඳව. ගරු කථානායකතුමනි, ඒ එක්කම මා විෙශේෂෙයන්ම මතක් කරන්න ඕනෑ ඌව පළාෙත් බදුල්ල දිස්තික්කය නිෙයෝජනය කරමින් ෙමවර පාර්ලිෙම්න්තු මැතිවරණෙය්දී ජයගහණය ලබා ෙගන, බදුල්ල දිස්තික්කෙය් දුප්පත් ජනතාව ෙවනුෙවන් ෙමෙහවරක් කරන්න මට අවස්ථාව ලැබුණු බව. විෙශේෂෙයන්ම ෛවදɕවරයකු විධියට අවුරුදු දහනවයහමාරක ෙසේවාවක් කරපු මා හට, 2001 වර්ෂෙය්දී එවකට ඌව පළාෙත් පධාන අමාතɕවරයාව සිටි ගරු වීරවන්නි සමරවීර මැතිතුමා පක්ෂය දාලා ගිය ෙවලාෙව් බණ්ඩාරෙවල ආසනය නිෙයෝජනය කරමින් ෙද්ශපාලන ජීවිතයට එන්න අවස්ථාවක් ලැබුණා. විෙශේෂෙයන්ම මා මතක් කරන්න ඕනෑ ඌව පළාෙත් ජීවත් වූ පුද්ගලයකු හැටියට, ඉතාම දුක් මහන්සිෙයන් ඉෙගන ගත්තු දරුවකු විධියට නිදහස් අධɕාපනය ලබමින් ෙම් රෙට් ෛවදɕ වෘත්තිය දක්වා පැමිෙණන්න මට අවස්ථාව ලැබුණු බව. ෙම් රජය ඉටු කරන ෙසේවාව තුළ තවදුරටත් ෙම් රෙට් දුප්පත් ජනතාවට ෙමෙහවරක් කරන්න, අප ලබා ගත් අත් දැකීම් තුළින් ෙම් රෙට් සාධාරණ ෙද්ශපාලනයක් බිහි කරන්න මා ෙද්ශපාලනයට පැමිණියා. ඌව පළාෙත් අෙප් නායකයා විධියට ගරු නිමල් සිරිපාල ද සිල්වා අමාතɕතුමා කරපු ආරාධනය අනුව බණ්ඩාරෙවල ආසනෙය් ශී ලංකා නිදහස් පක්ෂ සංවිධායක විධියට පත්වීම අරෙගන, ඉතාම ෙකටි කාලයකදී -2002 වර්ෂෙය්දී- මහා මැතිවරණයට ඉදිරිපත් ෙවලා පස්වන ස්ථානයට පැමිණියා. 2004 මහ මැතිවරණයට තරග කරලා පස්වන ස්ථානයටම ආවත් ඌව පළාෙත් බදුල්ල දිස්තික්කය ජයගහණය කරන්න අපට බැරි වූ නිසා එදා මා හට පාර්ලිෙම්න්තු එන්න හැකියාවක් ලැබුෙණ් නැහැ. නමුත් මම සන්ෙතෝෂ ෙවනවා, 2004 දී පවත්වපු පළාත් සභා මැතිවරණෙය්දී මම ඌව පළාෙත් ෙසෞඛɕ අමාතɕවරයා දක්වා ෙගන යන්න බදුල්ල දිස්තික්කෙය් ජනතාව මට ශක්තිය, ෛධර්යය ලබා දීම පිළිබඳව. ඒ වාෙග්ම මම සන්ෙතෝෂ ෙවනවා, මාත් එක්ක එදා ඌව පළාත් සභාෙව් හිටපු පධාන අමාතɕ ගරු විජිත් විජයමුණි ෙසොයිසා මැතිතුමාත් ෙම් අවස්ථාෙව් ෙම් ගරු සභාෙව් සිටීම ගැන. බදුල්ල දිස්තික්කෙය් ජනතාව ෙවනුෙවන් ෙසෞඛɕ ක්ෙෂේතය තුළ අතිවිශාල ෙමෙහවරක් ඉෂ්ට කරන්න අපට හැකියාව ලැබුණා. ෛවදɕවරයකු විධියට ඌව පළාෙත් වැෙහන්න ගිය ෙරෝහල් විශාල පමාණයක් නැවතත් නඟා සිටුවලා මහියංගනය ෙරෝහල ජාතික ඵලදායීතාෙව් පළමුවැනි ස්ථානයට අරෙගන එන්න මට හැකියාව ලැබුණා. ඒ වාෙග්ම දඹාන ෙරෝහල, ඇටම්පිටිය ෙරෝහල වාෙග් ෙරෝහල් දියුණු කරලා ජාතික ඵලදායී සම්මාන ලබා ගන්න අපට හැකියාව ලැබුණා. ඒ නිසා ෙම් පෙද්ශෙය් ජනතාව අපි ගැන යම් විශ්වාසයක් තබා තිෙබන ෙමොෙහොතක තමයි ෙමවර පාර්ලිෙම්න්තු මැතිවරණෙය්දී බදුල්ල දිස්තික්කෙයන් විශිෂ්ට ජයගහණයක් ලබා මන්තීවරු 6 ෙදෙනක් එක්සත් ජනතා නිදහස් සන්ධානෙයන් පත් කර ගන්න අවස්ථාව ලැබුෙණ්. ෛවදɕ වෘත්තිකයකු විධියට ෙද්ශපාලන ජීවිතයට පැමිණිලා ෙම් වෘත්තියත් සමඟ සම්බන්ධ ෙවමින් අහිංසක ජනතාවට යම් කිසි සැබෑ ෙසේවාවක් කරන්න ෙම් අවස්ථාව ලබා දීම පිළිබඳව මම අතිගරු ජනාධිපතිතුමාට ස්තුතිවන්ත ෙවනවා. ඒක මෙග් යුතුකමක් විධියට මා දකිනවා.
+
+ගරු කථානායකතුමනි, අද කථා බහට ලක් ෙවන ෙම් ආනයන හා අපනයන (පාලන) නිෙයෝග ෙදස බලන විට ඒවා ෙම් රෙට් විශාල ජන ෙකොටසකට බලපාන ෙරගුලාසි, ඒ අහිංසක ජනතාවෙග් ජීවිතවලට බලපාන සාධක විධියට තමයි මම දකින්ෙන්. ගරු කථානායකතුමනි, විෙශේෂෙයන්ම ෙමවැනි තීරණ ගැනීෙම්දී ෙපොදු මහ ජනතාවෙග් අෙප්ක්ෂාවන් පිළිබඳව, ඔවුන්ෙග් ජීවිත රටාවන් පිළිබඳව සලකා බලා නිවැරදි තීරණ ගත යුතුයි. බදුල්ල දිස්තික්කෙය් නුවරඑළිය, වැලිමඩ, ඌව පරණගම වාෙග් පෙද්ශවල ෙගොවිතැනින් ජීවත් වන ජනතාව තමයි වැඩි වශෙයන් ඉන්ෙන්. අල වගාව, ඒ වාෙග්ම ස්වයං රැකියාවක් විධියට කරන මල් වගාව වාෙග් ෙද්වලින් තමයි ඔවුන් තමන ්ෙග් ජීවිතය ගැට ගසා ගන්ෙන්. ආනයන, අපනයන කටයුතු සම්බන්ධෙයන් ෙම් රෙට් යම් තීරණ ගැනීෙම්දී ඒ අහිංසක මිනිසුන් ෙවනුෙවන් අපි විෙශේෂ අවධානයක් ෙයොමු කිරීෙම් වටිනාකම ෙම් අවස්ථාෙව්දී මා මතු කරන්න කැමැතියි ගරු කථානායකතුමනි. ෙමොකද, සමහර අවස්ථාවලදී ඔවුන්ෙග් වගාව සාර්ථක ෙවලා අස්වැන්න ෙනළන ෙකොට අපි ඒවා පිට රටින් ෙගන්වන්න කටයුතු කරනවා. ඒක ඒ ජනතාවට ෙලොකු පශ්නයක් බවට පත් වුණු අවස්ථා අපි දැක තිෙබනවා.
+
+ගරු කථානායකතුමනි, ෙම් අවස්ථාෙව්දී මා ෙම් කාරණයත් මතක් කරන්න ඕනෑ. ෙම් රෙට් අවුරුදු 30ක් තිස්ෙසේ පැවැති යුද්ධය අතිගරු ජනාධිපතිතුමා අවසන් කළා. ඒ යුද්ධය අවසන් කරන්න උදවු කරපු සෑම ෙදනාටම අපි ස්තුති කරනවා. ඒ වාෙග්ම අපි කථා ෙනොකරපු ෙකොට්ඨාසයකුත් ඉන්නවා. ගරු කථානයකතුමනි, ඒ තමයි ෙම් රෙට් ෙපොදු මහ ජනතාව. ෙම් රෙට් කුරිරු යුද්ධයක් පැවතුණු ෙවලාෙව් ෙකොටි තස්තවාදී කියා නිසා තමන්ෙග් අම්මා, තාත්තා, සෙහෝදර, සෙහෝදරියන් මිය ගිය ෙව්ලාෙව් ෙම් රෙට් ෙපොදු ජනතාව ඒ ෙව්දනාව හදවෙත් තුරුළු කර ෙගන ෙබොෙහොම නිහඬව බලා ෙගන සිටියා, අෙප් නායකයාෙග් ඒ බලාෙපොෙරොත්තු ඉෂ්ට කර ගන්න කල්. පාසල් ගිය දුවා දරුවන් ෙකොටි තස්තවාදී කියා නිසා මිය ගියාම ෙම් රෙට් ෙපොදු ජනතාව කලබල ඇති කෙළේ නැහැ; ජූලි කලබල කාලෙය් වාෙග් නැඟී සිටිෙය් නැහැ. එෙහම කලබල ඇති කළා නම් ෙම් යුද්ධය අවසන් කරන්නට සිදු වන්ෙන් නැහැ. ඒ නිසා අපි තිවිධ හමුදාවට ස්තුති කරනවා වාෙග්ම හදවෙත් ෙව්දනාවක් තියා ගත්ත මිනිස්සු විධියට ෙම් රෙට් සමස්ත ජනතාවටත් - ෙම් රෙට් ෙපොදු ජනතාවටත්- ස්තුති කරන්න ඕනෑ. ඒ ජනතාවෙග් බලාෙපොෙරොත්තු අතිගරු ජනාධිපතිතුමා ඉෂ්ට කළා. ඒ වාෙග්ම එතුමා "මහින්ද චින්තනය", "මඟ නැඟුම", "ජාතික සවිය" වාෙග් වැඩසටහන් තුළින් ෙම් රෙට් විශාල සංවර්ධනයක් ඇති කළා.
+
+බදුල්ල දිස්තික්කය ගත්තාම බලංෙගොඩ-බදුල්ල, බදුල්ල-බණ්ඩාරෙවල සහ වැලිමඩ-බදුල්ල යන මහා මාර්ගයන්හි විශාල සංවර්ධනයක් ඇති ෙවලා තිෙබනවා. උමා ඔය ෙයෝජනා කමය අද ඌවට ෙගනැල්ලා තිෙබනවා. මම හිතන්ෙන් ෙම් රෙට් යුද්ධයක් කරන්න දැවැන්ත මුදලක් වියදම් කළා වාෙග්ම "මහින්ද චින්තනය" යටෙත් ෙම් රෙට් සංවර්ධනය සඳහාත් අෙප් අතිගරු මහින්ද රාජපක්ෂ ජනාධිපතිතුමා විශාල මුදලක් වියදම් කර තිෙබනවා. එවන් ෙමොෙහොතක තමයි අද අපි අලුත් පාර්ලිෙම්න්තුෙව් රැස් ෙවලා ඉන්ෙන්. ගරු කථානායකතුමනි, අප ෙමොන පක්ෂයක සිටියත්, ෙමොන මතිමතාන්තර දැරුවත් ෙම් රෙට් ජනතාවෙග් ඒකායන බලාෙපොරාත්තු ඉෂ්ට කරන්න අෙප් ශක්තිය හා ෛධර්යය දිය යුතුයි. විපක්ෂයක් විධියට වැරැදි ෙපන්වනවා වාෙග්ම ඒ වැරැදි නිවැරැදි කර ෙගන පක්ෂයක් විධියට අප එකමුතු ෙවලා ඉදිරියට ගිෙයොත් තමයි ෙම් රෙට් සැබෑ ෙද්ශපාලන සංස්කෘතියක් ඇති කරන්න අපට පුළුවන් වන්ෙන්; ෙම් රෙට් අහිංසක ජනතාව බලාෙපොෙරොත්තු වන ඒ ස්වර්ණමය යුගයට යන්න අපට පුළුවන් වන්ෙන්. පළාත් සභාවක හිටපු මැති ඇමතිවරු විධියට අපි ෙම් පාර්ලිෙම්න්තුවට එන විට ෙබොෙහෝ ෙද් හිතා ෙගන ආවා. අෙප් ෙබොෙහෝ බලාෙපොෙරොත්තු තිබුණා. අෙප් ජනතාවෙග් බලාෙපොෙරොත්තු ඉෂ්ට කරන්න පුළුවන් ස්ථානයක් විධියට තමයි ගරු කථානායකතුමනි, අපි ෙම් සභා ගර්භය ගැන හිතා ෙගන හිටිෙය්. ෙම් රෙට් අහිංසක ජනතාව ෙවනුෙවන් ෙමෙහවරක් කරන්න අපට ශක්තිය සහ ෛධර්යය ෙදන්නය කියා නවක මන්තීවරුන් විධියට අපි විපක්ෂෙය් සහ ආණ්ඩු පක්ෂෙය්
+
+පාර්ලිෙම්න්තුව 311 312
+
+පවීන ෙද්ශපාලන නායකයන්ෙගන්, ගරු මැති ඇමතිවරුන්ෙගන් ඉල්ලීමක් කරනවා. ඒ ෙමෙහවර කිරීෙම් දී ෙම් රෙට් දුගී දුප්පත් ජනතාව තමන්ෙග් කඳුළින්, මහන්සිෙයන් හම්බ කරන රුපියලට අගයක් තියන්න පුළුවන්. ඒ රුපියල අගය කරන ෙද්ශපාලනයක් ෙම් රෙට් බිහි කරන්න ඔබතුමන්ලාෙග් ශක්තිය සහ ෛධර්යය අපට ෙදන්න. අපි ෙම් රෙට් ගාමීය මට් ටෙම් උපන් දරුවන් විධියට, නිදහස් අධɕාපනය ලබපු දරුවන් විධියට, දුක් මහන්සි ෙවලා ඉෙගන ගත් දරුවන් විධියට ෙම් රෙට් ජනතාවට ෙසේවයක් කරන්න ඔබතුමන්ලාෙග් ශක්තිය සහ ෛධර්යය ලබා ෙදන්නය කියන ඉල්ලීම කරනවා. අතිගරු ජනාධිපති මහින්ද රාජපක්ෂ මැතිතුමාෙග් බලාෙපොෙරොත්තුව පරිදි මහින්ද චින්තනය ෙම් රෙට් ගාමීය මට්ටමට ෙගන ෙගොස් ගාමීය ජනතාවෙග් වුවමනා එපාකම් ඉෂ්ට කිරීමටත්, ෙම් රට සංවර්ධනය කිරීමටත් මෙග් දායකත්වය උපරිම ෙලස ලබා ෙදන්න නිරන්තරෙයන්ම මා බැඳී සිටිනවාය කියන එකත් මා ෙම් අවස්ථාෙව්දී මතක් කර සිටිනවා. ගරු කථානායකතුමනි, මට ෙම් අවස්ථාව ලබා දීම පිළිබඳව මා ඔබතුමාට ස්තුතිවන්ත ෙවනවා. ඒ වාෙග්ම ආණ්ඩු පක්ෂෙය් සහ විපක්ෂෙය් සියලු ෙදනාටත් ස්තුතිවන්ත ෙවනවා. ඉදිරි කාලය තුළ ෙම් රෙට් ජනතාව බලාෙපොෙරොත්තු වන ෙසේවාව ඉෂ්ට කිරීම සඳහා ෙම් උත්තරීතර පාර්ලිෙම්න්තුෙව්; ෙම් සභා ගර්භෙය් සියලු ෙදනාටම ශක්තිය සහ ෛධර්යය ලැෙබ්වාය කියන පාර්ථනය ද ඇතිව මෙග් කථාව අවසන් කරනවා.
+
+කථානායකතුමා (சபாநாயகர் அவர்கள்) (Mr. Speaker) ෙබොෙහොම ස්තුතියි. මී ළඟට ගරු රවී කරුණානායක මන්තීතුමා. ඔබතුමාට විනාඩි 30ක කාලයක් තිෙබනවා.
+
+.කරුණාකර නිශ්ශබ්ද වන්න. ෙම් අවස්ථාෙව් ගරු නිෙයෝජɕ කථානායකතුමා මූලාසනය ගන්නවා ඇති
+
+අනතුරුව කථානායකතුමා මූලාසනෙයන් ඉවත් වුෙයන්, නිෙයෝජɕ කථානායකතුමා [ගරු පියංකර ජයරත්න මහතා] මූලාසනාරූඪ විය.
+
+அதன் பிறகு, சபாநாயகர் அவர்கள் அக்கிராசனத்தினின்ᾠ அகலேவ, பிரதிச் சபாநாயகர் அவர்கள் [மாண்ᾗமிகு பியங்கர ஜயரத்ன] தைலைம வகித்தார்கள்.
+
+.Whereupon MR. SPEAKER left the Chair, and MR. DEPUTY SPEAKER [THE HON. PIYANKARA JAYARATNE] took the Chair
+
+[පූ. භා. 11.15] ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ගරු නිෙයෝජɕ කථානායකතුමනි, අතිවිශිෂ්ට ජයගහණයක් ලබා ෙගන, නිෙයෝජɕ කථානායක ධුරයට නැවත පත් වීම සම්බන්ධෙයන් මා පථමෙයන්ම ඔබතුමාට සුබ පතනවා. ඔබතුමා අෙප් පාසෙල් මිතෙයක්. ඒ වාෙග්ම ෙමොෙහොතකට ෙපර මූලාසනෙය් සිටි ගරු කථානායකතුමා ගැනත් වචනයක් කථා කළ යුතුයි. පසු ගිය පාර්ලිෙම්න්තුෙව් වාෙග් නැතිව විනයක් ඇතිව, විහිළුවක් ෙනොවන විධියට ෙම් හත්වන පාර්ලිෙම්න්තුෙව් කටයුතු සිදු ෙව්වායි කියා මා පාර්ථනා කරනවා. ෙමොකද, ෙම් අලුත් පාර්ලිෙම්න්තුව අලුත් ආකාරයකට ෙගන යා යුතුයි. නිදහස ලබා ෙගන අවුරුදු 62ක් පමණ ගත වීෙමන් අනතුරුව ඉතාමත් අමාරු ඡන්දයක් තුළින් අද පත් ෙවලා ඉන්න ෙම් මන්තීවරු අතිදක්ෂ පිරිසක්. අෙප් එක්සත් ජාතික පක්ෂෙයන් සුළු පිරිසක් පත් වුවත් ෙබොෙහොම ෙහොඳ, ගුණාත්මක පිරිසක් පත් ෙවලා ඉන්නවාය කියන එක මම මතක් කරන්න කැමැතියි. ඒ නිසා පථමෙයන්ම මෙග් කාර්ය භාරය වන්ෙන්, පස්වන වතාවටත් මාව පාර්ලිෙම්න්තුවට පත් කිරීම සම්බන්ධෙයන් මා නිෙයෝජනය කරන ෙකොළඹ දිස්තික්කෙය් මෙග් හිතවත් ඡන්ද දායකයන්ටත්, එක්සත් ජාතික පක්ෂෙය් උතුරු ෙකොළඹ සංවිධායක වශෙයන් පත් වීම සම්බන්ධෙයන් උතුරු ෙකොළඹ ජනතාවටත්, මම නිෙයෝජනය කරන ෙකෝට්ෙට් ආසනෙය් ජනතාවටත්, අෙනකුත් ආසන වන මැද ෙකොළඹ, ෙකොෙළොන්නාව, කඩුෙවල, නැ ෙඟනහිර ෙකොළඹ,
+
+ෙමොරටුව, අවිස්සාෙව්ල්ල, ෙබොරැල්ල, ෙහෝමාගම, මහරගම, ෙදහිවල, රත්මලාන, කැස්බෑව සහ බටහිර ෙකොළඹ යන සියලු ආසනවල ඡන්ද දායකයන්ටත් මෙග් ස්තුතිය පුද කිරීමයි.
+
+ඒ වාෙග්ම අපි ෙම් හත්වන පාර්ලිෙම්න්තුව අලුත් ආකාරයකට ෙගන ගිෙය් නැති නම් මම හිතන විධියට ජනතාව තුළ පජාතන්තවාදය ෙකෙරහි තිෙබන විශ්වාසය සම්පූර්ණෙයන්ම; නැත්තටම නැති වන තත්ත්වයකට පත් ෙව්වි.
+
+අප හිතන විධියට සියයට පනස් ෙදකක විතර ඡන්ද පමාණයක් ලබලා ෙම් හත්වන පාර්ලිෙම්න්තුවට පත් වුණ එක පජාතන්තවාදයට ෙලොකු පහරක්. ඒ නිසා අපට කාර්ය භාරයක් තිෙබනවා. ෙහට දින රජ කරන තරුණ තරුණියන් අද ෙම් පාර්ලිෙම්න්තුවට ඇවිල්ලා, ෙම් පාර්ලිෙම්න්තුෙව් ෙවන්ෙන් ෙමොනවාද කියන එක අහලා, ඒ අයව උනන්දු කරන්න පුළුවන් වාතාවරණයක් ෙම් හත්වන පාර්ලිෙම්න්තුෙව් ඇති කළ යුතුය කියා මා විශ්වාස කරනවා. එහිදී අපට යම් කාර්ය භාරයක් තිෙබනවා. ෙම් පුංචි ලංකාව ෙලෝකයට එකතු කරන්ෙන් ෙකොෙහොමද? ෙනොෙයක් ෙද්ශපාලන මතිමතාන්තර තුළින් ගමන් කරලා අපි ෙවනත් ආකාරයකින් ෙම් කන්ද තරණය කරන්න හදනවා. යම් ආකාරයක ෛවරක්කාර ෙද්ශපාලනයක් ෙම්කට ඇතුළත් ෙවලා යම් වැරදි මාර්ගයක ගිහිල්ලා තිෙබනවාය කියන එක අපට ෙප්න්න තිෙබනවා. ඒක නිසා අප සතු කාර්ය භාරයක් තිෙබනවා. ෙම් පාර්ලිෙම්න්තුව තුළින් අලුත් ආකාරයකට ෙම් ගමන ආරම්භ කරලා අෙප් පුංචි ලංකාව සංවර්ධනය කරා ෙයොමු කිරීම අප සතු කාර්ය භාරයක් වනවා. මා පස්වන වතාවටත් ෙම් හත්වන පාර්ලිෙම්න්තුවට පත් වුණා. අෙප් පරිණතභාවය, අෙප් පක්ෂය, අප ගත්ත තීන්දු ගැන කථා කරන්න අවශɕ නැහැ. ෙමොකද, එතෙකොට නැවත අප ඒ පරණ ගමනටම යනවා. අප ෙම් පටන් ගත්ත ගමන අලුත් ආකාරයකට ගිෙය් නැත්නම් පශ්න ඇති ෙවනවා. අද සාමයක් ඇති ෙවලා තිෙබනවාය කියලා හිතන්න එපා. සැබෑ සාමයක් ඇති වන්න නම් මීට වඩා පුළුල් ෙලස වැඩ කරන්න අවශɕයි. අපි මැතිවරණ ෙදකක් කළා. යුද්ධ ෙදකක් අවසන් වූ විධියටයි මා සලකන්ෙන්. සරත් ෙෆොන්ෙසේකා මැතිතුමා අද ෙමතැන සිටියත් එතුමා තවමත් ඉන්ෙන් සිර භාරෙය්යි. අපි එක පැත්තකින් රෙට් අපනයනය සංවර්ධනය කරන්න ආනයන හා අපනයන (පාලන) යටෙත් නිෙයෝග ෙගනැවිත් ඒවා සම්මත කර ගන්න හදනවා මානව හිමිකම් හරියාකාරව ආරක්ෂා කිරීම අෙප් පළමු කාර්ය භාරය ෙලස සලකා කටයුතු කළ යුතු බව මා ෙම් අවස්ථාෙව්දී කියනවා.
+
+අද ඉදිරිපත් කර තිෙබන ෙම් ආනයන හා අපනයන (පාලන) යටෙත් නිෙයෝග සම්බන්ධෙයන් කටයුතු කරන්නට ෙපර, අපි කාර්යයන් ෙදකක් කරන්න අවශɕයි. එකක්, ෙම් රෙට් ෛවරක්කාර ෙද්ශපාලනයට තිතක් තියන්නට අවශɕයි. මට මතකයි, අපි පළමුවන පාර්ලිෙම්න්තුවට ෙත්රී පත් වුණු අවස්ථාෙව්දී - 1994 දී - අෙප් වාසුෙද්ව නානායක්කාර මැතිතුමා ඉතාමත් කියාශීලිව උනන්දුෙවන් කළ ඒ වැඩසටහන් තුළින් අපටත් අලුත් ෙද්ශපාලන අදහස් ආවා. මම ෙබොෙහොම සතුටු වනවා, එවැනි චරිත නැවත අද ෙම් පාර්ලිෙම්න්තුවට පත් ෙවලා සිටින එක ගැන. චණ්ඩිකම්වලින් නැත්නම් මැරකම්වලින් අසික්කිත වචන පාවිච්චි කරමින් පාර්ලිෙම්න්තුෙව් පජාතන්තවාදය යටපත් කරනවා නම් එතැනදී ෙලොකු පශ්නයක් ඇති ෙවනවා. ඒ නිසා අපි අලුත් පිටුවකින් ආරම්භ කරන්න අවශɕයි. අපි ෙම් පාර්ලිෙම්න්තුව පහත් තත්ත්වයකට ඇද දමන්න හදනවා නම් ෙම් පාර්ලිෙම්න්තුෙව් ජාතික පතිපත්ති ඇති කරන්ෙන් ෙකොයි ආකාරෙයන්ද? මම හිතන විධියට ෙම් උත්තරීතර පාර්ලිෙම්න්තුෙව් අපි කථා කරන්න අවශɕ වන්ෙන් ජාතික පතිපත්ති ඇති කිරීම ගැනයි. ඒ මිස නිකරුෙණ් ඇවිල්ලා, ෙම් තිෙබන පනත් ෙකටුම්පත් ටික සම්මත කර ගන්න ගහ-බැණ ගන්න එක ෙනොෙවයි කළ යුතු වන්ෙන්.
+
+මා හැම අවස්ථාවකම කියන පරිදි අද රෙට් ආර්ථිකය ඉතාමත් භයානක තත්ත්වයකයි තිෙබන්ෙන්. නමුත් ආර්ථිකය භයානක තත්ත්වයක තිෙබනවාය කියලා විපක්ෂයක් වශෙයන් ඒකට බණින එක ෙනොෙවයි අප කරන්න ඕනෑ. අපි විපක්ෂෙයන් අදහස්
+
+[ගරු ෛවදɕ ෙරෝහණ පුෂ්ප කුමාර මහතා]
+
+2010 මැයි 06 313 314
+
+ඉදිරිපත් කරන ෙකොට, ආණ්ඩුව ඒවා විපක්ෂෙයන් එන අදහස් ෙලස සලකලා පැත්තකට තල්ලු කරන එක තමයි අද කරන ෙලොකුම වරද. අපි කාලාන්තරයක් තිස්ෙසේ කථා කරපු ෙද්වල් විපක්ෂෙයන් ඉදිරිපත් කළාය කියලා පැත්තකට තල්ලු ෙනොකළා නම් අද ෙමවැනි තත්ත්වයකට අප පත් වන්ෙන් නැහැයි කියා මා විශ්වාස කරනවා. අපි ජාතික පතිපත්ති ගැන කථා කරන විට අධɕාපනය ගැන, අපනයන ක්ෙෂේතය ගැන, රැකී රක්ෂා ගැන කථා කළ යුතු ෙවනවා. අෙප් තරුණ තරුණියන් ඉෙගනීම් කටයුතු අවසන් කරලා විශ්වවිදɕාලවලින් එළියට එන ෙකොට ඔවුන්ට රැකී රක්ෂා සපයන්න ෙම් රෙට් ආර්ථිකය ශක්තිමත්ව තිෙබන්නට ඕනෑ. නමුත් අද ෙමොනවාද ෙවන්ෙන්? අද සමහර තරුණ තරුණියන් ෙද්ශපාලනඥයන් පස්ෙසේ යන්ෙන් ෙමොකද? හැම අවුරුද්දකම එක්ලක්ෂ විසිපන්දාහක් ශුද්ධ වශෙයන් රැකී රක්ෂා අවශɕ ෙගොඩට එකතු වනවා. ඒක දරා ගන්න ආර්ථිකය පසාරණය ෙවලා නැති නිසා මන්තීවරුන් පස්ෙසේ ගිහිල්ලා ඒ මාර්ගෙයන් රැකී රක්ෂා ලබා ගන්නා යුගයකටයි අප ගමන් කර තිෙබන්ෙන්. එෙහම ෙනොෙවයි, රටක සංවර්ධනය මනින්න අවශɕ වන්ෙන්. රෙට් ආර්ථිකය දියුණු කරලා තිෙබනවා නම් ඒ තරුණ තරුණියන්ට තමන්ෙග් සහජ හැකියාව පාවිච්චි කරලා ඒ තුළින් ඕනෑ තැනට යන්නට පුළුවන් වාතාවරණයත් ඇති කළ යුතුයි. ෙම් තත්ත්වය අපට තවම දකින්නට නැහැ. ෙමවැනි ෙද්වල් තමයි ඇති කරන්නට අවශɕ වන්ෙන්. දැන් අලුත් පාර්ලිෙම්න්තුවක් තිෙබනවා. අලුත් ඇමතිවරු ඉන්නවා. අලුත් නිෙයෝජɕ ඇමතිවරුත් ඉන්නවා. හැබැයි හිතන ආකාරය අලුත් වුෙණ් නැත්නම් නිකරුෙණ් ෙවලාව නාස්ති ෙවනවා විතරයි. ඒ ඇමති මණ්ඩලයට වැඩ කරන්නට තිෙබනවා. තවම ඒ අය තල්ලු කර දමන අවස්ථාව ෙනොෙවයි. තමුන්නාන්ෙසේලාෙග් අදහස් එක්ක අප ෙයොමු කරන ඒ අදහස් පාවිචචි කරලා ඒ තුළින් ගමන් කිරීමයි කළ යුත්ෙත්. අප ෙම් අවස්ථාෙව්දී ආනයන හා අපනයන (පාලන) පනත යටෙත් එන නිෙයෝග - Regulations- තුනක් සම්බන්ධෙයන් තමයි කථා කරන්ෙන්. ෙම් අවස්ථාෙව්දී මා පළමුෙවන්ම සඳහන් කරනවා, ජීවන වියදම සම්බන්ධව. අපි ෙම් සම්බන්ධෙයන් කතා කරලා, මාසයක පඩිය සුමානයක පඩිය දක්වා අඩු වුණා කියලා හයවන පාර්ලිෙම්න්තුව අවසාන කාලෙය්දී ෙපන්වා දී තිබුණා. ඒ කියපු ඒවා අපි සාක්ෂි සහිතව ඉදිරිපත් කළා. ෙමන්න තිෙබන පඩිය. ෙමන්න ඒකට තිෙබන වටිනාකම. ඒ අනුව කය ශක්තිය අඩු වී තිෙබනවා කියා ෙපන්වා දුන්නා. ඒත් ඊට හාත්පසින් ෙවනස් ඡන්ද පතිඵලයක් තමයි ලැබිලා තිෙබන්ෙන්. එෙහම නම් ජනතාවට විපක්ෂෙය් අපි හිතන අමාරුකම් නැහැ කියන මතෙය් ඉඳ ෙගන තමයි ගමන් කරන්න තිෙබන්ෙන්. නමුත් ඒ විකෘති මතය ගැනම හිතුෙවොත් අපි අෙප් ඡන්දදායකයන්ට අසාධාරණයක් කරනවා. ෙම් අවස්ථාෙව්දී ෙමොනවාද ෙවලා තිෙබන්ෙන්? විෙශේෂ ෙවෙළඳ භාණ්ඩ බදු පනත - Special Commodity Levy Act එක - යටෙත් භාණ්ඩ ගණනාවක බදු පමාණය වැඩි කරන්නට කියා ෙම් පාර්ලිෙම්න්තුෙවන් වරමක් ඉල්ලනවා. දැන් ජීවන වියදම අධික මට්ටමක තිෙබන අවස්ථාවක ඇයි ෙමවැනි බදු පමාණයක් දමන්නට අවශɕ වන්ෙන්? රටක පරිපාලනයට බදු අවශɕයි. නමුත් ජනතාවට අසීමිත සම්පත් පමාණයක් නැති නිසා වියදම අඩු කරලා, ඒ සීමිත සම්පත් පමාණය හරියාකාරව පාවිච්චි කිරීම තමයි අවශɕ වන්ෙන්. එක පැත්තකින් වියදම ලක්ෂයයි. ආදායම රුපියල් සියයයි. ඒ පරතරය වසන්න ජනතාවට බදු දමන්න යන පතිපත්තිය අනුගමනය කරන්න ගිෙයොත් වන්ෙන් ජනතාව තුළට අසීමිත බර පමාණයක් වැෙටන එකයි. පසු ගිය පාර්ලිෙම්න්තුව තිබියදී ෙනොෙයක් ණය ගන්නා අවස්ථාවලදී අප මතක් කර දුන්නා, කරුණාකර වාණිජ ණය ගන්න එපා කියලා. එෙලස ණය ගන්න ගිෙයොත් ඒ අධික බර වැෙටන්ෙන් අහිංසක ජනතාවටයි කියලා අපි කිව්වා. අද ඇති ෙවලා තිෙබන පතිවිපාකය ඒකමයි. 2009 වර්ෂෙය් සම්පූර්ණ ආදායම 2008 අවුරුද්ෙද් අගදී ඇස්තෙම්න්තු කරන අවස්ථාෙව්දී බිලියන 855යි. ඒ කියන්ෙන් ෙකෝටි අසූපන්දහස් පන්සියයක් වුවත් සැබෑ ආදායම ෙකෝටි හැත්තෑදහස් ෙදසියයට අඩු වුණා. බිලියන සියයක් අඩු වීෙමන් අන්තිමට වුෙණ් ජනතාව පිට බිලියන සියයක බරක්
+
+වැටීමයි. දැන් ෙම්ක ෙකොයි ආකාරෙයන්ද උපයා ගන්ෙන් කියන එක ආණ්ඩුව ෙපන්වා දීලා නැහැ. අප ෙමවැනි ෙද්වල් විපක්ෂෙයන් මතක් කරන ෙකොට, ෙම්වා කියන්ෙන් විපක්ෂෙයන් කියලා හිතන්න එපා. අපි කථා කෙළේ රෙට් ජාතික ආර්ථිකය සම්බන්ධෙයන්. එක්සත් ජාතික පක්ෂෙය් ඩී.එස්. ෙසේනානායක මහත්මයා 1948 දී අෙප් රටට නිදහස ලබා ගන්නා අවස්ථාෙව් ෙම් රෙට් ණයක් තිබුෙණ් නැහැ. 1948 සිට 2005 වන තුරු සම්පූර්ණ ණය බර, ෙම් පාර්ලිෙම්න්තුෙව් සියලුම මුදල් ඇමතිවරු පාවිච්චි කළ බිලියන 1,768ක්ව තිබුණු ණය පමාණය අද,- [බාධා කිරීමක්]
+
+ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) ආචාර්ය එන්.එම්. ෙපෙර්රා මැතිතුමා මුදල් අමාතɕතුමා වශෙයන් සිටියදී ගත්ත ණය ඉතාම අඩුයි. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ගරු නිෙයෝජɕ කථානායකතුමනි, මෙග් මිත ගරු වාසුෙද්ව නානායක්කාර මන්තීතුමා මතක් කෙළේ ආචාර්ය එන්.එම්. ෙපෙර්රා මහතා 1970 සිට 1975 දක්වා මුදල් ඇමති වශෙයන් සිටි කාලය. ඒ අවස්ථාෙව්දී තිබුණු දිග ෙපෝලිම් සහ තිබුණු ආර්ථික කමය මම මතක් කරන්න අවශɕ නැහැ. නමුත් එතුමා කිව්ව වැදගත් ෙදයකට මම ගරු කරනවා. ෙමොකද, එතුමාෙග් ෙද්ශපාලන ගමන සඳහා එතුමා අනුගමනය කරනවා කැප වීම සහ අදහස් ෙයොමු කිරීම. එදා 1970 දී ආචාර්ය එන්.එම්. ෙපෙර්රා ඇමතිතුමා මුදල් ඇමති වශෙයන් කටයුතු කළ අවස්ථාෙව්දී භාර ගත්ත සම්පූර්ණ ණය පමාණය මට මතක විධියට රුපියල් බිලියන 488යි. 1948 සිට 1970 දක්වා සම්පූර්ණ ණය පමාණය, ඒ කියන්ෙන් 1956-65 කාලය සහ 1965 - 70 කාලය දක්වා මුළු ණය පමාණය රුපියල් බිලියන 488යි. 1994 දී එක්සත් ජාතික පක්ෂය ආණ්ඩුව භාර ෙදන අවස්ථාෙව්දී සම්පූර්ණ ණය පමාණය තිබුෙණ් රුපියල් බිලියන 988යි. ඒෙකන් ෙපෙනනවා වැඩි වුණු ආකාරය. ගරු නිෙයෝජɕ කථානායකතුමනි, මම අෙප් වාසුෙද්ව නානායක්කාර මැතිතුමාට ෙපන්වන්න හැදුෙව්, 2005 ජනවාරි මාසෙය් පළමුවැනි දා සිට අද ෙම් කථා කරන ෙමොෙහොත දක්වා -අවුරුදු පහකදී- වැඩි ෙවලා තිෙබන ණය පමාණය රුපියල් බිලියන 2,900ක් බවයි. 1948 සිට 2005 යන කාලය තුළ රුපියල් බිලියන 1,798 කින් වැඩි වුණා. නමුත් ෙම් අවුරුදු පහ තුළ රුපියල් බිලියන 2,500 කින් වැඩි වුණා. ඒක තමයි තිෙබන අපරාධය. ෙම් ණය ෙගවන්න තිෙබන්ෙන් කාටද? 2005 වන තුරු ඒක පුද්ගල ණය බර තිබුෙණ් රුපියල් 94,000යි. අද ඉපෙදන අහිංසක ළමෙයක් ණය ෙගවන්න තිෙබනවා රුපියල් 2,51,000ක්. ෙම් වැඩි වීම ෙවලා තිෙබන්ෙන් ෙම් අවුරුදු පහ තුළයි. ෙම්ක තමයි අපි ෙපන්වන්න හදන්ෙන්. දැන් අපි එවැනි සංඛɕා ෙල්ඛන ෙපන්වලා, රෙට් ආර්ථිකයට බැණලා ෙම් රෙට් සංවර්ධනයක් ෙනොවනවාය කීම ෙනොෙවයි මෙග් අදහස. මම ෙපන්වන්න හදන්ෙන් මූලɕ පාලනයන් නැති නිසා තිෙබන පතිවිපාකයි. කය ශක්තිය ගැනයි මම කියන්ෙන්. එදා තිබුණ වැටුපමයි අදත් තිෙබන්ෙන්. ඔබතුමන්ලාෙග් ෙකොමියුනිස්ට්වාදී කම්කරු ඇමතිවරු ඡන්දය කාලෙය් වැටුප් වැඩි කරනවා කිව්වාට, ගැසට් ගහනවා කිව්වාට ඡන්දයට පස්ෙසේ ගිහිල්ලා කියනවා, "නැහැ, මම එෙහම කිව්ෙව් නැහැ, මම ඡන්දය කාලෙය් මතක් කළා විතරයි." කියලා. ෙමෙහම විහිළු කරන ඇමතිවරුත් ෙම් පාර්ලිෙම්න්තුෙව් ඉඳලා තිෙබනවා. ජනතාවෙගන් නැවත ඒ අය පත් ෙවලාත් තිෙබනවා. ඉතින් ඒ අය කරපු කථා විෙව්චනය කරන්ෙන් නැත්නම් පශ්නයක් ඇති වනවා. ඒ කියන ෙද්වල් අපි විපක්ෂය හැටියට ජනතාවට ෙපන්වා දුන්නත්, ඒ මන්තීවරුන්ම නැවත පත් වුණාම ඒ ගැන කථා කිරීෙම් අයිතියක් අපට තිෙබනවාද? ජනතාවට පශ්නයක් නැත්නම් අපි විපක්ෂෙය් මන්තීවරුන් හැටියට ෙම්වා මතක් කරලා වැඩක් තිෙබනවාද? අන්න ඒ නිසා තමයි ෙම් ජාතික පතිපත්තිවල තිෙබන වටිනාකම ෙපන්වලා ෙදන එක මෙග් යුතුකමක් කියලා මම හිතුෙව්.
+
+පාර්ලිෙම්න්තුව 315 316
+
+[ගරු රවි කරුණානායක මහතා]
+
+අෙප් අධɕාපනය බලන්න. අද පළමුවන ෙශේණියට ළමෙයක් ඇතුළත් කර ගන්න බැරි තත්ත්වයක් ඇති ෙවලා තිෙබනවා. එදා මම සතුටු වුණා. ගරු නාමල් රාජපක්ෂ මැතිතුමනි, ඔබතුමා මංගල කථාව කරන අවස්ථාෙව්දී වග කීමකින් කථා කළා; ෙහොඳ අදහස් ටිකක් කිව්වා. ඔබතුමාෙග් වාසනාවට ඔබතුමාෙග් පියා තමයි රෙට් ජනාධිපති. ඒ කථාව කළා වාෙග් අවුරුදු ෙදකකින් තුනකින් ඒවා කියාවට නැඟීම තමයි වටිනාකම. ඒ වරපසාදය තිෙබනවා. ඉතින් මම ඒක මතක් කෙළේ ඔබතුමා ෙමතැන සිටින නිසායි. හැබැයි අපි විපක්ෂයක් වශෙයන් ඔබතුමන්ලාට යන මාර්ගය වැරැදි නම් යන මාර්ගය වැරැදියි කියලා ෙපන්වලා ෙදනවා. අපි විපක්ෂයක් වශෙයන් ෙෂේප් නɕායෙය් යන ගමනක් ෙනොෙවයි අවශɕ වන්ෙන්. ඔබතුමන්ලාට උදවු වන්ෙන් කියාශීලි විපක්ෂයක්. එෙහම තමයි ජනතාව බලාෙපොෙරොත්තු වන්ෙන්. අතිවිශාල වරමක් ලැබිලා තිෙබනවා. ගත්තාද, ලැබුණාද කියන එක ෙනොෙවයි පශ්නය. නමුත් ඒ ජනතාව දුන්න වරම වැරැදියි කියලා ෙපන්වන එක තමයි අෙප් යුතුකම වන්ෙන්. අපි විපක්ෂයක් වශෙයන් ඉන්ෙන් සදා කල් විපක්ෂෙය් ඉන්න ෙනොෙවයි, ආණ්ඩු පක්ෂයට ගමන් කරන්නයි. වැඩි කල් යන්න ඉස්සර ෙවලා ජනතාව ෙත්රුම් ගනීවි ආණ්ඩුවට දුන්නු ඒ වරම වැරැදියි, දැන් එක්සත් ජාතික පක්ෂ ආණ්ඩුවක් අවශɕයි කියලා. දැන් ෙම් අවස්ථාෙව් ෙම් තිෙබන බදු ටික පනවන්න පාර්ලිෙම්න්තුෙව් අනුමැතිය ඉල්ලනවා. අෙප් ගරු ඒ.එච්.එම්. අස්වර් මැතිතුමා බලා ෙගන සිටිනවා ෙමොන ෙමොෙහොෙත් නැගිටලාද point of Order එකක් ගන්ෙන් කියලා. මම දන්නවා ෙන් ඔබතුමා බලන ආකාරෙයන්. අපිට බලන ආකාරය ෙපෙනනවා. ෙමතැන තිෙබන ෙම් බදු පමාණය ඕනෑ වන්ෙන් ෙමොන ෙදයකටද? අඩු කරන්න පුළුවන් හැකියාව තිෙබන ෙකොට ඇයි ෙම්වා අඩු කරන්ෙන් නැත්ෙත්? පසු ගිය කාලෙය් හිටපු ෙවෙළඳ ඇමතිවරුන්ට අපි කිව්වා ෙම්වා අඩු කරන්න පුළුවන් කියලා. නමුත් බැහැ කිව්වා. එෙහනම් ඡන්දය කාෙල් අඩු කෙළේ ෙකොෙහොමද? ෙම්ක තමයි ෙද්ශපාලනෙය් තිෙබන ෙබොරුව, වංචාව. පශ්නයක් තිෙබනවා නම් අපි පශ්නය ගැන කථා කරමු. විපක්ෂයට ඇවිල්ලා කිව්ෙවොත්, "ෙමෙහම තමයි, ෙම්ක කරන්න අවශɕයි, අපි ෙමතැනින් පටන් ගනිමු. මින් පසුව අපි ණය බරතාව වැඩි කරන්ෙන් රටට ආර්ථික සංවර්ධනයක් ඇති කරන්නට පුළුවන් විධියටයි" කියලා, අන්න එතැනදී අෙප් විපක්ෂෙය් සහෙයෝගය ලබා දීම ගැන කථා කරන්න පුළුවන්. නමුත් අපට ඇවිල්ලා කිව්ෙවොත්, "නැහැ, අපිට මන්තීවරුන් 140ක් සිටිනවා, අපට සම්මත කර ගන්න පුළුවන් වරමක් ලැබිලා තිෙබනවා" කියලා, "එෙහනම් සම්මත කර ගන්න" කියන මට්ටෙම් තබලා අපට තිෙබන්ෙන් ඒක විෙව්චනය කිරීම තමයි. ෙමොකද, අද ෙම් ණය බරතාව වැඩි ෙවලා තිෙබන විධියට සාෙප්ක්ෂව රෙට් සංවර්ධනය ඇති ෙවලා නැහැයි කියන එකත් මා මතක් කරන්නට කැමැතියි. ඒ නිසා තමයි මා ෙම් අවස්ථාෙව් දී නැවතත් කියන්ෙන් ජාතික පතිපත්තියක් ඇති කරන්නට ඕනෑයි කියලා. ඒ කියන ගමන් මා මානව අයිතිවාසිකම් ගැනත් කිව්වා. සරත් ෙෆොන්ෙසේකා මැතිතුමාෙග් මානව අයිතිවාසිකම් ගැන නැවත මතක් කරන්ෙන් ෙමොකද, එය කළ යුතු ෙදයක් නිසා. ෙකෙළහි ගුණ තිෙබන පුද්ගලයන් වශෙයන්, ඡන්දයක් ලැබුණා නම්, එෙහනම් අද උෙද් ඉඳලා මතක් කරපු එවැනි ෙද්වල් නිවැරදි කිරීමත් අවශɕයි. එතුමාට ෙම් පාර්ලිෙම්න්තුවට එන්න තිෙබන හැකියාවත් නැති කර තිෙබන අවස්ථාවක ඒ කරුණු නිවැරදි කිරීම අවශɕයි. ෙමතැන නිකම් ෙරගුලාසි තුළින් "අරයා ෙම්ක කිව්වා, ෙමයා ඒක කිව්වා" කියන එක ගැන ෙනොෙවයි කථා කරන්න තිෙබන්ෙන්. ඒක නිවැරදි කිරීම අවශɕයි. බලන්න, දැන් ෙම් තිෙබන ගැසට් නිෙව්දන අනුව ඇත්ත වශෙයන්ම ෙම් පාර්ලිෙම්න්තුෙව් අද කථා කරන්නට බැරි වාතාවරණයක් තමයි තිෙබන්ෙන්. පළමුවන අවස්ථාව නිසා නිකම් ෙවලාව නාස්ති කරන්න අවශɕතාවක් නැහැ. නමුත් ෙමවැනි ෙද්වල් නැවත ඇති කරන්න එපා. පාර්ලිෙම්න්තුෙව් එවැනි තත්ත්වයක් පාවිච්චි කරලා එම අවස්ථාව යටපත් කරනවා නම්, එෙහනම් පාර්ලිෙම්න්තුවට වඩා තැනකට ෙගන යන්න
+
+පුළුවන්ද? ගරු චන්දසිරි ගජදීර, නිෙයෝජɕ මුදල් ඇමතිතුමාත් ෙම් අවස්ථාෙව් ගරු සභාවට පැමිෙණනවා. එය අගය කරනවා. එතුමාෙග් දැනුම පාවිච්චි කරලා ෙම් රෙට් ආර්ථික සංවර්ධනය ෙවනුෙවන් කටයුතු කරයි කියලා බලාෙපොෙරොත්තු වනවා. මා මීට ෙපර කථා කෙළේ අපි අලුත් ෙද්ශපාලන ගමනක් යා යුතු යි කියන එක ගැනයි. [බාධා කිරීමක්] ආ! ෙබොෙහොම ස්තුතියි. යමක් අහන පුද්ගලයකු වශෙයන් ඔබතුමාට කියන්නට මට අවශɕ වන්ෙන් ෙමයයි. ෙමතැන දී අපි අලුත් ගමනක් ගිෙය් නැත්නම් සාමය තුළින් ඇති ෙවලා තිෙබන ෙම් තත්ත්වය තුළ යන ගමන යටින් ෙලොකු පශ්න ඇති වන ගමනක් ෙවයි. ෙමොකද, ජනතාව හිතනවා, ෙමච්චර ෙලොකු වරමකුත් ලබා දීලා රට සංවර්ධනය කරන්න බැරිද කියලා; ෙමච්චර ෙලොකු බලයක් දීලා, ෙමොන ෙකෙහල් මලක්ද කරන්ෙන් කියලා. ෙම්ක තමයි ෙවනස් කරන්න අවශɕ වන්ෙන්. [බාධා කිරීමක්] ෆීලික්ස් ෙපෙර්රා ඇමතිතුමනි, ඔබතුමා දන්නවා ඇති, 1994, 1995 කාලෙය් දී ඔබතුමාත් එක්ක පාර්ලිෙම්න්තුෙව් සිටිද්දී ඒ කළ ඉල්ලීම අපි එදා පතික්ෙෂේප කළා වාෙග්ම තමයි අදත්. මා කියන්ෙන් ෙම් පාර්ලිෙම්න්තුව අපි පාවිච්චි කළ යුතුයි, රෙට් සංවර්ධනයක් ඇති කරන්නට.
+
+ඉතින් මා නැවතත් කියන්ෙන්, ෙම් අනිසි බදු පමාණ ඉවත් කරන්න. රෙට් සංවර්ධනයක් ඇති කරන්නට අවශɕ නම් ජාතික පතිපත්ති ෙමොනවාද කියන එක ඉලක්ක කරන්න. මා කිව්වා වාෙග් රෙට් අධɕාපනයට සිදු ෙවලා තිෙබන්ෙන් ෙමොකක්ද? පළමුවන ෙශේණියට ළමෙයකු ඇතුළත් කර ගන්න බැරි තත්ත්වයක් තිෙබනවා. ෙම්ක නිවැරදි කිරීම අවශɕයි. රෙට් අධɕාපනය තුළින් තමයි රට සංවර්ධනය කරන්නට පුළුවන් මාර්ග ඇති වන්ෙන්. අපි සිංගප්පූරුවක් ගැන කථා කරනවා; මැෙල්සියාවක් ගැන කථා කරනවා. ෙමොකද ඒ ගැන කථා කරන්ෙන්? ඒ නායකයන් 1960 කාලෙය් දී ලංකාව ෙදස බලා කිව්ෙව්, "අපි අෙප් රට ලංකාවක් ෙලස සලකන්නට ඕනෑ" කියලායි. නමුත් අද ෙමොනවාද සිදු ෙවලා තිෙබන්ෙන්? අද ෙම් රෙටන් ෙකොෙහේ හරි යන්නට හදනවා නම් ඒ, සිංගප්පූරුවට, එෙහම නැත්නම් මැෙල්සියාවට. ඇයි? ඒ රටවල් සංවර්ධනය ෙවලා තිෙබනවා. ෙම් වැරැදි නිවැරදි කරන්නට නම්, ආර්ථිකය පිළිබඳව දැනුවත්කම විතරක් ෙනොෙවයි, ෙද්ශපාලන හැකියාවකින් යුතුව තීන්දු ගන්නට පුළුවන් පුද්ගලයන් ඇති කිරීම අවශɕයි. ෙම්ක තමයි අවශɕ වන්ෙන්. [බාධා කිරීමක්] ෙමොකක්ද, චන්දසිරි ගජදීර නිෙයෝජɕ ඇමතිතුමනි? [බාධා කිරීමක්] ෙම්ෙක් බදු සම්බන්ධයක් තිෙබනවා ෙන් නිෙයෝජɕ ඇමතිතුමනි. ඒක තමයි මා කිව්ෙව්, සුපුරුදු පරිදි ඔබතුමන්ලා ෙම් තිෙබන ෙද්වල් සම්මත කරන්නය කියලා නිකම් අෙප් විපක්ෂෙය් උදවු ඉල්ලන්න එපා. මා කිව්වා වාෙග් "වියදම රුපියල් 100යි, ආදායම රුපියල් 10යි, පරතරය 90යි. එෙහනම් අපි ජනතාවෙග් බදු තුළින් ෙම් ආදායම ලබා ගන්න ඕනෑ"යි කියන මතය උඩ කටයුතු කෙළොත් ෙම් රෙට් පශ්න ඇති වනවා. අද රෙට් ආර්ථික කළමනාකරණය සම්පූර්ණෙයන් ඇණ හිටලා තිෙබනවා. අදහස් ෙහොඳ වන්නට පුළුවන්. කියාත්මක කරන්නට බැරි නම් ෙමොනවාද කරන්ෙන්? අෙප් රෙට් ආර්ථික විෙශේෂඥයකු ෙවනුවට එතැනට ෙදොස්තරවරයකු ගිහිල්ලා දැම්ෙමොත් ඒක හරි යනවාද? ෛවදɕවරයකු ෙවනුවට එතැනට "ෆැෂන් ඩිසයිනර්" ෙකෙනකු ගිහිල්ලා දැම්ෙමොත් හරි යනවාද? එතැනට සින්දු කියන ෙකෙනකු දැම්ෙමොත් හරි යනවාද? ඒ සහජ හැකියාව පාවිච්චි කරන්නට අවශɕ වන්ෙන් එම ක්ෙෂේතය සංවර්ධනය කරන්නයි; එම ක්ෙෂේතය දියුණු කරන්නයි. ෙම්ක තමයි තිෙබන පශ්නය. ඉතින් ෙම්ක තුළින් අපි ඉදිරියට ගමන් කරන්නට අවශɕයි. ෙම් තිෙබන බදු ටික ඉවත් කරලා, තමන්ෙග් තිෙබන වියදම් අඩු කරන්න හැකියාව ඉස්ෙසල්ලා ඇති කර ගන්න. අද බලන්න, - [බාධා කිරීමක්] මට ඇෙහන්ෙන් නැහැ, ගරු මන්තීතුමනි. [බාධා කිරීමක්] නැහැ, බදු අඩු කිරීමක් ෙනොෙවයි ෙන්.
+
+ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) අතɕවශɕ ආහාර දවɕවල බදු අඩු කිරීමක් ගැන ෙන් තිෙබන්ෙන්.
+
+2010 මැයි 06 317 318
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) නැහැ, වාසුෙද්ව නානායක්කාර මන්තීතුමනි. ෙමතැන බදු අඩු කිරීමක් ෙනොෙවයි තිෙබන්ෙන්. ෙමතැන අනවශɕ බදු පනවා, ඒක අඩු කරන්ෙන් නැතිව රැක ගැනීමක් තමයි තිෙබන්ෙන්. ෙම්කයි තිෙබන ෙවනස. දැන් කි ව්ෙවොත් සම්පූර්ණෙයන් ඉවත් කර දමනවාය කියලා, එෙහම නම් පශ්නයක් නැහැ. ඔන්න අෙප් අගමැතිතුමාත් එනවා. හැම ෙවලාෙව්ම අහ ෙගන ඉඳලා මට උත්තරයක් ෙදන අගමැතිතුෙමක්. මා හිතන හැටියට එතුමා ෙම් ගරු සභාවට ආෙව්, ෙම් බදු ටික ඉවත් කරමුයි -විසි කරමුයි- කියන මතෙයන් ෙවන්න ඕනෑ. [බාධා කිරීමක්]
+
+ඉතින් ෙම් අවස්ථාෙව්දී ෙමතැන බදු අඩු කරන්න පුළුවන් හැකියාවක් තිෙබනවා. මා උදාහරණයක් කියන්නම්. අවුරුදු ෙදකකට ඉස්ෙසල්ලා මා -
+
+ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) දැන් මයිසූර් පරිප්පු ගැන බලන්න. බදු අඩු කරන්න කියලා තිෙබනවා. ෙම්වා බදු අඩු කිරීෙම් නිෙයෝග.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) බදු අඩු කිරීම ෙනොෙවයි, බදු නැති කිරීම තමයි අවශɕතාව. නැති කරන්න තිෙබන අවශɕතාව ඇති කිරීම ෙමොකටද? Good is not good enough when better is expected. That is the salient difference. දැන් ෙපටල් මිල ගැන මා ෙම් ගරු සභාෙව් කිව්වා.
+
+ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) මා ෙම් හරස් කපන්න ෙනොෙවයි කියන්ෙන්. ඔය නිෙව්දනෙය් තිෙබන්ෙන් බදු අඩු කිරීෙම් කියාවලියක්. බදු අඩු කිරීෙම් කියාවලියට ඇවිත් තිෙබන්ෙන් ෙද්ශපාලන ෙහේතු නිසා වන්න පුළුවන්. ෙකෙසේ නමුත් බදු අඩු කිරීමක් ෙවලා තිෙබන්ෙන්. දැන් අපට තිෙබන්ෙන් බදු වැඩි කරන එක වළක්වා ගන්නයි.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) දැන් ෙමෙහම කියමු ෙකෝ. අවුරුදු ෙදකකට ඉස්ෙසල්ලා ෙපටල් මිල පිළිබඳ පශ්නය සම්බන්ධෙයන් ගරුතර පාලිත ස්වාමීන් වහන්ෙසේ, රවි ජයවර්ධන සහ මම උසාවියට ගියා. මා දන්නවා, ගරු මන්තීතුමනි. ඔබතුමාත් ඉතා ඕනෑකමින් ෙවනත් විධියකින් උසාවි ගිහින් තිබුණා. ඒ අවස්ථාෙව්දී ෙපටල් මිල තිබුෙණ් රුපියල් 153ටයි. අපි උසාවි ගිෙය් රුපියල් 70ට විකුණන්න පුළුවන් ෙව්වියි කියලායි. රුපියල් 70ට විකුණන්න පුළුවන් ෙවලා තිබුණු අවස්ථාෙව් උසාවිෙයන් අවසරයක් දුන්නා, ෙපටල් මිල අඩු කරන්න කියලා; ජනතාවෙග් වරපසාද ලබා ෙදන්න කියා. ෙමොකක්ද, ආණ්ඩුෙවන් ලැබුණු පතිචාරය? ආණ්ඩුෙවන් බැහැයි කිව්වා. අද වුණත්, ෙම් කථා කරන අවස්ථාෙව්දී වුණත් ෙතල් මිල අඩු කරන්න පුළුවන් රුපියල් 75කට. රුපියල් 75ට ෙනොෙවයි රුපියල් 85ට. ෙමොකද, අද මිල ෙපොඩ්ඩක් වැඩි ෙවලා තිෙබනවා. අපි අසාධාරණ නැහැ. ආණ්ඩුවක් ෙගන යන්න අනිවාර්යෙයන්ම බදු පමාණයක් අවශɕයි. නමුත් තිෙබන පශ්නය, වියදම අඩු කරන්ෙන් නැතුව ආදායම විතරක් වැඩි කරන එකයි. ඒ ආදායම පුනරාවර්තන වියදමට පාවිච්චි කරන්ෙන් නැතුව රෙට් සංවර්ධනයට -පාග්ධන වියදමට- පාවිච්චි කරනවා නම් අන්න එතැනදී තමයි අෙප් -විපක්ෂෙය්- උදව්ව ලැෙබන්ෙන්. එෙහම තමයි අවශɕතාව ඇති වන්ෙන්. ෙහොඳම උදාහරණය තමයි ෙපටල් මිල, ගෑස් මිල. දැන් ගෑස් මිල රුපියල් 200කින් වැඩි කරනවා. ෙම්ක තමයි ෙම් රෙට් සුබ අනාගතය. දැන් ෙමන්න ඡන්ද පතිඵල. දැන් පාන් මිල
+
+රුපියලකින් වැඩි වනවා. පිටි මිල රුපියල් 3කින් වැඩි වනවා. ගෑස් මිල රුපියල් 180කින් වැඩි වනවා. කිරි පිටි මිල රුපියල් 70කින් වැඩි වනවා. ෙම්වා ෙනොදන්නවා ෙනොෙවයි. පාරිෙභෝගික අධිකාරිය තිබුෙණ් මෙග් යටෙත්. එතැනට ඇවිල්ලා තිෙබන අවසරය ලබා ගන්න තිෙබන්ෙන් ඒ තුළිනුයි. මා ෙම්ෙකන් ෙද්ශපාලනය කරන්න අවශɕතාවක් නැහැ.
+
+ෙම් පළමුවන වතාව. අලුත් පාර්ලිෙම්න්තුවට අවස්ථාව ෙදන්න අවශɕයි. කිසි පශ්නයක් නැහැ. නමුත් සුපුරුදු පරිදි විපක්ෂෙයන් කථා කරන්ෙන් රට නිවැරැදි මාර්ගෙය් යවන්නයි. ආණ්ඩුව නිවැරැදි මාර්ගෙය් යවන්න ෙනොෙවයි, අපට අවශɕ වන්ෙන්; රට නිවැරැදි මාර්ගෙය් යවන්නයි, ෙන්ද අගමැතිතුමනි? ඔබතුමා හැම ෙවලාෙව්ම අපට කියා තිෙබන්ෙන් කියන ෙද් හරියට කියන්න කියලායි. ඡන්ද කාලෙය්දී විතරක් අසතɕ පකාශ කරන්න එපාය කියන මතෙයන් තමයි ඔබතුමා ගමන් කරන්ෙන්. අපි දන්නවා. කමක් නැහැ. ඡන්දයට පස්ෙසේ ජනතාවට ෙබොරු කරන එක නවත්වන්න අවශɕයි. එෙහම ෙබොරු ෙනොකරන එක තමයි අෙප් යුතුකම. අපි සදාකාලික ඉන්ෙන් විපක්ෂෙය් ෙනොෙවයි. ඔබතුමන්ලා කරපු වරදවලට අනිවාර්යෙයන්ම අපට හෙයන් පහක බලයක් දුන්නා. ඊට පස්ෙසේත් දුන්නා. දැන් ඇති. ඕක තමයි ඔබතුමන්ලාටත් ලැෙබන්ෙන්. චකය ඒ වාෙග් කැරෙකනවා.
+
+ගරු අල්හාජ් ඒ.එච්.එම්. අස්වර් මහතා (மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர்) (The Hon. (Alhaj) A.H.M. Azwer) තව අවුරුදු 20ක් ඉන්නවා. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) හරි, හරි. [බාධා කිරීමක්] හත්වන පාර්ලිෙම්න්තුෙව් පළමුවන දවෙසේ ෙමෙහම නම් මාස ෙදක, තුනක් යන ෙකොට ෙකොෙහොමද? ඔය පිරිහීම තුළින් ඕවා එන්න ෙදන්න එපා. ඉස්ෙසල්ලා ඒ ලක්ෂණය තබා ගන්න. [බාධා කිරීමක්] දැන් බලන්න.
+
+ෙමෙතක් ෙව්ලා කථා කරමින් සිටිෙය් ජාතික පතිපත්තිය ගැන. අපි ෙපොඩ්ඩක් ෙවනස් ෙවලා ජනතාවට වරපසාද ෙදන්න හැදුවාම ඔන්න ෙටොක්ක ගහනවා. මා නැවත කියන්ෙන්, අෙප් යුතුකම ආණ්ඩුව රකින එක ෙනොෙවයි; ජනතාව ෙවනුෙවන් කථා කිරීමයි කියලායි. එෙහම නැත්නම් විරුද්ධ පක්ෂය ෙමොකටද ෙම් පත් ෙවලා තිෙබන්ෙන්? අපි කිව්වා වාෙග් -[බාධා කිරීමක්] රතන් වැඩ පිළිෙවළක් කියලා -[බාධා කිරීමක්] පාර්ලිෙම්න්තුෙව් එක්සත් ජාතික පක්ෂයට සුළු පිරිසක් ඉන්න පුළුවන්. නමුත් bullet පිරිසක් අපට ඉන්ෙන්. ෙම්ක ඇතුෙළේ game ගහන එක් ෙකෙනක්, ෙද ෙදෙනක් ඉන්න පුළුවන්. ඒවාෙය් ෙවනසක් නැහැ. නමුත් රට ෙවනුෙවන් කථා කරන පිරිසක් ඉන්න පුළුවන්. එෙහම ෙන්ද, ෙසෙනවිරත්න ඇමතිතුමනි? එෙහම ෙන්ද යාපා ඇමතිතුමනි? ඇමතිතුමනි, හැකියාව අනුව ෙනොෙවයි, ඔබතුමන්ලාට අවස්ථාව ලැබී තිෙබන්ෙන්. දැන් ඔබතුමන්ලා නිශ්ශබ්දයි. අපි ෙමතැන කථා කරන්ෙන් ඔබතුමන්ලාත් ෙවනුෙවනුයි. ඔබතුමා ෙවනුෙවන් -[බාධා කිරීමක්] කමක් නැහැ. භය ෙවන්න එපා. ඔබතුමාෙග් තනතුර නැති වන්ෙන් නැහැ. තිෙබන්ෙන්, උඩට යෑම මිසක් පහළට යෑම ෙනොෙවයි.
+
+ගරු අනුර පියදර්ශන යාපා මහතා (පරිසර අමාතɕතුමා) (மாண்ᾗமிகு அᾒர பிாியதர்ஷன யாப்பா - சுற்றாடல் அைமச்சர்)
+
+(The Hon. Anura Priyadharshana Yapa - Minister of Environment)
+
+ඔබතුමා ඒ පැත්ත බලා ගත්තා නම් හරි. අපි ගැන අපි බලා ගන්නම්.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඒක අපි ෙහොඳට බලා ගන්නම්. ෙමෙහේ බැහැයි, උම්බෑයි කියන අය ඉන්න පුළුවන්. නමුත් අපි අන්තිමට දිනන්න පුළුවන්
+
+පාර්ලිෙම්න්තුව 319 320
+
+[ගරු රවි කරුණානායක මහතා]
+
+වාතාවරණය හදනවාය කියන එක මතක් කරන්න කැමැතියි. ඒක තමයි අපි ඇති කරන්ෙන්. [බාධා කිරීමක්] ෙබල්ල කපන අයෙග් ෙබල්ල නැති ෙව්වි. නමුත් එක්සත් ජාතික පක්ෂෙය් අපට දිනන්න පුළුවන්. අපි අදක්ෂෙයෝ ෙම් පැත්ෙත් තියා ගන්ෙන් නැහැ. [බාධා කිරීමක්] ජාතික පතිපත්ති ගැන කතා කරන ෙකොට-[බාධා කිරීමක්] ජාතික පතිපත්ති ගැන අපි පක්ෂය ෙවනුෙවනුත් කතා කරනවා. [බාධා කිරීමක්] නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) ගරු මන්තීතුමා, තව විනාඩියයි තිෙබන්ෙන්. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ගරු නිෙයෝජɕ කථානායකතුමනි, අපි ඔබතුමා ඔතැනට දැම්ෙම් අඩු ගණෙන් මට සියයට 20ක විතර වැඩි කිරීමක් කරාවිය කියා මිසක් අඩු කිරීමක් කරාවිය කියා ෙනොෙවයි. මා තවම ෙමතැන කතා කරලා තිෙබන්ෙන් මිනිත්තු 25යි. [බාධා කිරීමක්] ෙමොන වැටක්ද?
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) අලි වැටක් ගහන්න ඕනෑ ලු. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ෙමෙහන් අලි පැටව් වාෙග් ඔක්ෙකොම train කරලා අර පැත්තට ගිහින් ෙපොඩි බුලත් ෙකොළයක් බවට පත් ෙවලා තිෙබනවා; ආප්පයක් බවට පත් ෙවලා තිෙබනවා. [බාධා කිරීමක්] 'අර්ස්කින් ෙම්' එක ගිලලා දැන් ඒක වමාරලා; දැන් ඒක අමතක ෙවලා තිෙබනවා. ෙම් පැත්ෙතන් ඉෙගන ගත්තාට පස්ෙසේ ඔය පැත්තට ගියාට ඕක ෙහොඳට කියාත්මක කරන්න. ෙමොකද, වැඩි කල් ඔය පැත්ෙත් ඉන්ෙන් නැහැ. ඒ නිසා අපි ෙම් අවස්ථාෙව්දී කියන්ෙන්, අපි අලි වැටක් දමලායි තිෙබන්ෙන් කියායි. ඔය පැත්තට -ආණ්ඩුවට- තමයි පශ්නය තිෙබන්ෙන්. [බාධා කිරීමක්] අෙප් අලිෙයෝ ටික ගිහිල්ලා ඔබතුමන්ව knock out කළා ෙන්. බලන්න ෙකෝ එෙහම පැනලා එෙහම වැෙඩ් කරනවා නම් ඒ සැබෑ මට්ටමත් ෙවනස් ෙවලා තිෙබනවා ෙන්. ඒවා ගණන් ගන්න එපා. ඒක තමයි මම කිව්ෙව් ෙම් ඡන්ද පතිඵලය විකෘති ෙවලා තිෙබන පතිඵලයක්ය කියලා. ෙම් විකෘති ෙවලා තිෙබන පතිඵලයක්. බය ෙවන්න එපා. [බාධා කිරීමක්] අපට වැඩ නැහැ. අපට ජාතිකත්වයක් නැහැ.
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) ගරු මන්තීතුමනි, ඔබතුමාෙග් කතාව අවසන් කරන්න. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) අවසන් කරන්න ඉස්ෙසල්ලා පටන් ගන්න ෙදන්න ෙකෝ ගරු නිෙයෝජɕ කථානායකතුමනි. මම ෙමෙතක් දුර- [බාධා කිරීමක්] ඔබතුමා කිව්ෙව් අලුත් ආකාරයකින් ගමන් කරන්න අවශɕයි කියායි.
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) අලුත් පෙව්ශයක් ෙන් ආරම්භ කරලා තිෙබන්ෙන්.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) කතාව ෙනොෙවයි, අපි වැඩට බහිමු. දැන් ඡන්ද ඉවරයි. හයවන පාර්ලිෙම්න්තුෙව් තිබුණු ඒ සම්පදාය ෙගෙනන්න එපා. ඔතැන පුටුෙව් තිබ්බා ෙකොඩිවිනයක්. ඒක ගියා; ශුද්ධ වුණා. දැන් අලුත් තාලයකට හිතන්න. [බාධා කිරීමක්] මා කියන්ෙන් ඒ අවස්ථාව ගැනයි. ෙම් පනත් සංෙශෝධනය කරන අවස්ථාෙව්දී රෙට් ආර්ථිකය ගැන කතා කරන ෙකොට ෙර්ල් පීලි විකුණලා යකඩ කර්මාන්තය දියුණු කරන්න හදනවා. ෙමොනවාද ඒ විහිළු? එක පැත්තකින් ඒක දිය කරලා, ඊට පස්ෙසේ ආනයනය කරලා, ඊටත් පස්ෙසේ කියයි අපට මඩකළපුෙව් සිට යන්න අවශɕයි, ඒ ෙර්ල් පීල්ල හදන්න අවශɕයි කියලා. එතෙකොට මාතර ඉඳන් හම්බන්ෙතොටට වුවමනා ඒ ෙර්ල් පීලි නැවතත් ආනයනය කරන්න අවශɕයි. එෙහම කරන්න අවශɕතාවක් තිෙබනවාද? [බාධා කිරීමක්] මට මිනිත්තු 40ක් තිෙබනවා, ගරු නිෙයෝජɕ කථානායකතුමනි.
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) ගරු රනිල් විකමසිංහ විපක්ෂ නායකතුමා ඔබතුමාෙග් කාලය - ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) නැහැ, නැහැ. ඒක මට අදාළ නැහැ. නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) විපක්ෂෙය් පධාන සංවිධායකතුමාෙග් කාලෙයන් අඩු කර ෙගන තිෙබනවා.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) එතුමා විපක්ෂ නායකතුමා වශෙයන් කතා කළා. එතෙකොට අපි එතුමාට මිනිත්තු 12ක් දුන්නා.
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) ඒ දීලා තිෙබන්ෙන් විපක්ෂෙය් මන්තීවරුන්ෙග් කාලය අඩු කරන්න-
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) නැහැ, නැහැ. කවුරුවත් එෙහම කියලා නැහැ. බය ෙවන්න එපා. අෙප් විපක්ෂෙය් පධාන සංවිධායක ෙජෝන් අමරතුංග මැතිතුමා ඒ ගැන කතා කරාවි.
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) නැහැ. නැහැ. විපක්ෂෙය් පධාන සංවිධායකතුමා- ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) හරි, හරි. වග කීමකින් ෙන් මම කියන්ෙන්. ෙම් අවස්ථාෙව්දී අපි කියන්ෙන් ෙම් රෙට් පතිපත්ති ඇති කිරීම ගැනයි. යකඩ ටික දිය කරලා, ෙර්ල් පීලි නැති කරලා, ඊට පසු ඒවා ආනයනය කරන වැඩ පිළිෙවළකින් ෙම් රෙට් සංවර්ධනයක් ඇති වන්ෙන් නැහැ. ඒකට ෙහොඳම උදාහරණයක් තමයි ෙම් රෙට් ඒක පුද්ගල ආදායම. [බාධා කිරීමක්]
+
+2010 මැයි 06 321 322
+
+ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) බලපත නිකුත් කරන්ෙන්. මම ඔබතුමාට පැහැදිලි කරන්න ඕනෑ-
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) මට පැහැදිලියි. මම ඔබතුමාට ගරු කරනවා. ඔබතුමා දැන ෙගනයි කතා කෙළේ.
+
+ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) අද තිෙබන්ෙන් ආනයන හා අපනයන (පාලන) පනත යටෙත් මුල් ගැසට් නිෙව්දන තුන සම්බන්ධෙයන් විවාදය පමණයි.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඔබතුමා දැන් පාර්ලිෙම්න්තුෙවන් අවසර ඉල්ලන්ෙන් වුණු ෙදයක් ගැන ෙන්. දැන් දිය කරලා ඉවරයි. ෙමතැනදී අප සම්මත කළත්, නැතත් ඒ ෙර්ල් පීලි ටික ආෙයත් එන්ෙන් නැහැ; කරලා ඉවරයි. ඉතින් ඒ වාෙග් ෙද්වල් වැඩක් නැහැ ෙන්. ෙම්ක නිකම් අෙප් ෆීලික්ස් ෙපෙර්රා ඇමතිතුමාෙග් කාලෙය්දී මාළු ටින් කරන්න ගියා වාෙගයි. ඒක ෙබොෙහොම ඕනෑකමකින් කළා. [බාධා කිරීමක්] මම ඔබතුමාට උදවු කරන්න ගිහින් මෙග් ෙවලාව ගන්නවා ෙන්. ඔබතුමා ෙහොඳ වැඩක් කළා. තල්මෙසක් වාෙග් ඉඳලා දැන් ෙපොඩි මාළු පැටිෙයක් වාෙග් ඉන්නවා. ෙබොෙහොම ෙහොඳ වැඩක් කළා. ඒ නිසා තමයි promotion එකක් දීලා තිෙබන්ෙන්. මම ඔබතුමාට උදවු කරන්න ආවාම මෙග් ෙවලාව නැති කරන්න එපා.
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) ගරු රවි කරුණානායක මන්තීතුමනි, දැන් ඔබතුමාෙග් කතාව අවසන් කරන්න.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) මට තව මිනිත්තු පහක් තිෙබනවා. මිනිත්තු පහකින් අවසන් කරන්නම්. [බාධා කිරීමක්] හරියට හරි. ෙබොෙහොම හරි. මම ඉතින් නැහැයි කිව්ෙව් නැහැ ෙන්. [බාධා කිරීමක්] හරි. ඒක තමයි. දැන් ඉතින් අවසරය සඳහා අත්සන් කළා. අපි බලමු ෙකොච්චර කල් යාවිද කියලා. මෙග්ත් මිතෙයක් තමයි රාජිත ෙසේනාරත්න ඇමතිතුමා. ටින් කරන එක දැන් ඉක්මනට කරවන්න. නැත්නම් නැවත ඇවිල්ලා කියයි, රුසියාෙවන් බැහැ, දැන් ෙම්ක ෙගෙනන්න තිෙබන්ෙන් ඉරානෙයන් කියලා.
+
+ගරු අල්හාජ් ඒ.එච්.එම්. අස්වර් මහතා (மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர்) (The Hon. (Alhaj) A.H.M. Azwer) ඇයි, ඉරානය ෙහොඳ නැද්ද? ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඔන්න ඉතින් ඕක තමයි. ඉරානය, උතුරු ෙකොරියාව, කියුබාව ඒවා නරකද? ෙගෙනන්නෙකෝ ඉතින්. සල්ලි ටික ෙගනැල්ලා දමන්නෙකෝ. ඉරානය ෙහොඳයි කියනවා නම් ෙතල් මිල අඩු කරන්නෙකෝ. ෙමොකද, අද රුපියල් 90ට විකුණන්න පුළුවන් එක රුපියල් 135ට විකුණන එක ෙමොන අපරාධයක්ද? ඒක තමයි මම කියන්ෙන්. ගරු නිෙයෝජɕ ඇමතිතුමනි, මම කලින් කිව්වා වාෙග්
+
+ඔබතුමන්ලා ෙමතැන ඉල්ලන්ෙන් කරුණාකර ෙම්කට අපට අවසරය ෙදන්න කියන එකයි. ෙදන්න ඕනෑ නැහැ. දීලා ඉවරයි. දුන්ෙන් නැති වුණත් වැෙඩ් කර ඉවරයි. යම් විධියකින්, ෙලෝකෙය් අනවශɕ භාණ්ඩ පමාණයක් කියා තිෙබනවා. ඒක -යම් විධිය- අපට පිළිගන්නත් පුළුවන්; ෙනොපිළිගන්නත් පුළුවන්. නමුත් දැන් අවසරය ඉල්ලන්ෙන් ඒ නැති කර තිෙබන භාණ්ඩ ටික නැවත ෙගෙනන්නයි. ගරු නිෙයෝජɕ ඇමතිතුමා විතරයි, අඩු ගණෙන් පාර්ලිෙම්න්තුවට පැහැදිලි කෙළේ ෙම් අවශɕතාව ෙමොකක්ද කියලා. රෙට් ආනයන අපනයන පතිපත්තිය ගැන කථා කරන්න විෙද්ශ ඇමතිවරයා වශෙයන් ෙකළින්ම පටන් ගත්තා. ඉතින් දැන් බලන්න, කිසිම සම්බන්ධකමක් නැහැ. ඒක නිසායි මම කිව්ෙව්, විෂය ක්ෙෂේතයට අදාළව වැෙඩ් කළා නම් හරියි කියන එක. ෙමතැන හැම එකටම "බිල් ක්ලින්ටන්", "ෙමොනිකා ෙලවින්ස්කි" කියා හරි යන්ෙන් නැහැ. ඒ කාලෙය් ඒවා කිව්වාම ඇෙමරිකාෙව් කමන්තණ කියා කිව්වා. දැන් කුමන්තණය පාවිච්චි කර තමයි එල්ෙලන්න හදන්ෙන්. දැන් බලන්න ෙම් රෙට් අපනයන සංවර්ධනය කරන්න අවශɕයි. අපට පුළුවන්ද, ෙම් රෙට් තිෙබන නිෂ්පාදන ඉරානයට හරි, එෙහම නැත්නම් උතුරු ෙකොරියාවට හරි, කියුබාවට හරි, ෙවනිසියුලාවට හරි යවා වැෙඩ් කරන්න. දැන් ඒවාට කථා කළාම එතෙකොට කමන්තණයක් නැහැ. දැන් යුෙරෝපය ඉදිරියට ගිහිල්ලා දණ ගහෙගන අෙන්! Labour GSP ආරක්ෂා කරන්න ඕනෑය කියා එතැන කිව්වාම පශ්නයක්ද? අපි එදා කිව්වා, Labour GSP එක ආරක්ෂා කරමු; ෙමොකද, ෙම්ක නැති වුෙණොත් අහිංසක තරුණ තරුණියන්ෙග් රක්ෂා 3,00,000ක් නැති වනවාය කියා. එදා කිව්වා, අපි කුමන්තණයක් කළාය කියා. අද ෙමොනවාද කරන්ෙන්? ඒ කිව්ව එක තමයි අද කරන්ෙන්.
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) ගරු මන්තීතුමා, කාලය අවසානයි. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) තව මිනිත්තුවකින් මම අවසාන කරන්නම්. ගරු අගමැතිතුමනි, ඒ නිසා Labour GSP එක ආරක්ෂා කරන්න. එදා විපක්ෂ නායකතුමා අවුරුදු තුනකට ඉස්ෙසල්ලා කිව්වා, අපි එකට වැඩ කර ෙම්ක ආරක්ෂා කරමු කියා. එතෙකොට කිව්වා, පිට රට ගිහින් රට නැති කළාය කියා. ෙමොනවාද ෙම් කළ විහිළුව? අපි එදා කිව්ව එක ෙනොෙවයිද, අද ජී.එල්. පීරිස් ඇමතිතුමා ෙවනත් සින්දුවකින් ගහන්ෙන්? එම සින්දුවම ෙවනත් තාලයකින් ගහනවා. දැන් ෙරෝහිත ෙබෝෙගොල්ලාගම මහත්මයාට බණිනවා, අරක කිව්වාය කියලා. අසතɕ ෙන්. එදා කිව්ෙවත් කරුණාකර ෙම්ක ආරක්ෂා කරන්න කියලායි. ඇයි තිස්සනායගම්ට සමාව දුන්ෙන්? ෙමොකක්ද කිව්ෙව්? යුෙරෝපෙය් අන්තර්ගත ෙවලා තිෙබනවා, කරුණාකර නීති හරියාකාරව කියාත්මක කරන්න කියා. දැන් සරත් ෙෆොන්ෙසේකා මැතිතුමාට ෙමොකද ෙවලා තිෙබන්ෙන්? ෙම් රෙට් යුද්ධය දිනලා ජයක් ලබා ගත් එතුමා හිරෙගදර. එෙහම කතා කර ෙලෝකයට කියනවා, යුද්ධය ඉවරයි කියා. යුද්ධය නැති කළ පුද්ගලයා තවම ෙම්ක ඇතුෙළේ දමා තිෙබන්ෙන්. ෙම්වා තමයි ශුද්ධ කරන්න තිෙබන්ෙන්. ෙම්වා තමයි හරිගස්වන්න තිෙබන්ෙන්.
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) මන්තීතුමා, ඔබතුමාට ෙබොෙහොම ස්තුතියි. කථාව අවසන් කරන්න.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) අපනයන ක්ෙෂේතය සංවර්ධනය කරන්න රෙට් ජාතික පතිපත්තියක් ඇති කරමු. එක්සත් ජාතික පක්ෂය හැම ෙවලාෙව්ම ෙම් ජාතික පතිපත්ති ගැන කථා කරන්න ගිහිල්ලා තමයි-[බාධා කිරීමක්] නමුත් වැඩි කල් යන්න ඉස ්ෙසල්ලා ෙත්ෙර්වි, එක්සත් ජාතික පක්ෂය කිව්ව ෙද් තමයි හරි කියන එක.
+
+පාර්ලිෙම්න්තුව 323 324
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) ස්තුතියි. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ගරු නිෙයෝජɕ කථානායකතුමනි, ෙම් අවස්ථාෙව්දී රෙට් සංවර්ධනයක් ඇති කරන්න පුළුවන් ආකාරෙය් වැඩ පිළිෙවළක් ඇති කරලා මින් පසුව කරුණාකර අලුත් ආකාරයකට ෙම් හත්වන පාර්ලිෙම්න්තුව ඔබතුමාෙග් නිෙයෝජɕ කථානායක ධුරෙයන් අපි ගමන් කරමු කියා මතක් කරමින් මම නිහඬ වනවා.
+
+[පූ. භා. 11.51] ගරු ෆීලික්ස් ෙපෙර්රා මහතා (සමාජ ෙසේවා අමාතɕතුමා) (மாண்ᾗமிகு பீᾢக்ஸ் ெபேரரா - சᾚக ேசைவகள் அைமச்சர்) (The Hon. Felix Perera - Minister of Social Services) ගරු නිෙයෝජɕ කථානායකතුමනි, මෙග් මිත රවි කරුණානායක මැතිතුමාෙග් කථාෙවන් පස්ෙසේ කථා කරන්න ලැබීම ගැන මම සන්ෙතෝෂ වනවා. සිංගප්පූරුෙව් ආදර්ශය ගැන ෙන්ද එතුමා කිව්ෙව්?
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) නැහැ. ලංකාෙව් ආදර්ශය සිංගප්පූරුව ගන්නවා. ගරු ෆීලික්ස් ෙපෙර්රා මහතා (மாண்ᾗமிகு பீᾢக்ஸ் ெபேரரா) (The Hon. Felix Perera) ඒ තත්ත්වයට අපට දැන් ඉතාමත්ම ෙලෙහසිෙයන් පත් වන්න පුළුවන්. ඇයි? [බාධා කිරීමක්] සිංගප්පූරුව ගැන එතුමා කිව්ෙව් ෙමොනවාද? ලී ක්වාන් යූ කිව්වා, ෙම් තත්ත්වය ෙගන යන්න එතුමාට ස්ථාවර ආණ්ඩුවක් ඕනෑය කියා. ස්ථාවර ආණ්ඩුවක් හදා ගැනීමට එතුමා පාවිච්චි කළ පධාන තර්කය තමයි, “මට ස්ථාවර ආණ්ඩුවක් ෙදන්න, වැඩිපුර මන්තී සංඛɕාවක් ෙදන්න, අර්බුදකාරී විපක්ෂෙයන් අප ඉවත් වන්න ඕනෑ”ය කියන එක. ඉවත් වුණාට පස්ෙසේ තමයි එතුමාට රාජɕය ෙගන යන්න පුළුවන් වුෙණ්. 1984 වන තුරු සිංගප්පූරුෙව් පාර්ලිෙම්න්තුෙව් විරුද්ධ පක්ෂෙය් මන්තීවරු සිටිෙය් නැහැ. අෙප් ඉන්නවා. ඒකයි ෙවනස. ඊ ළඟට අප ෙම් වතාෙව් ඉතාමත්ම සාර්ථකව මැතිවරණයට මුහුණ දීලා තුෙනන් ෙදකකට ආසන්න පමාණෙය් මන්තී සංඛɕාවක් අරෙගන තිෙබනවා. ඒක නිසා අපටත් ඒ ආදර්ශය ගන්න පුළුවන් වනවා. සිංගප්පූරුව සංවර්ධනය වීමට තිබුණු මූලිකම ෙහේතුව තමයි එහි වරාය. ඒක ෙලෝකෙය් කාර්ය බහුලම වරාය. වරාෙයන් තමයි ෙලොකුම ආදායමක් එන්ෙන්. දැන් අපි ෙමොනවාද කර තිෙබන්ෙන්? අපි හම්බන්ෙතොට වරාය ඉදි කර තිෙබනවා. නැව් හාරසිය ගණනක් දවසකට යනවා. ඒ ආදර්ශෙයන් අපට පුළුවන් විශාල විෙද්ශ විනිමයක් උපයා ගන්න. [බාධා කිරීමක්] ජාතɕන්තර නැව් මාර්ගය වැටිලා තිෙබන්ෙන් ෙකොෙහන්ද? ෙම්ක කල්පනා කරන්න. අතිරික්ත මාර්ගයක් ෙහොයා ෙගන තමයි ෙකොළඹට එන්න ෙවලා තිෙබන්ෙන්. [බාධා කිරීමක්] තමුන්නාන්ෙසේ වාෙග් අපිත් trade ගැන ටිකක් දන්නවා ෙන්. ඒ නිසා අවශɕ තැන වරාය හදා ගන්න ඕනෑ. අවශɕ තැන ෙනොෙවයි වරාය තිබුෙණ්. එදා තිබුණු ෙවළඳ ආර්ථිකයට වඩා ෙවනත් ෙවෙළඳ ආර්ථිකයක් අද ෙලෝකෙය් පවතින්ෙන්. ඉස්ෙසල්ලා බල කඳවුරු ෙදකක් තිබුණා. දැන් එක කඳවුරයි තිෙබන්ෙන්. දැන් ෙගෝලීයකරණය ෙවලා. අපිත් ෙගෝලීයකරණෙය් සිතුවිලි -චින්තන- ෙම් මහින්ද චින්තන වැඩ පිළිෙවළත් එක්ක බද්ධ කර ෙගනයි යන්ෙන්. ඒ නිසා භය වන්න එපා. පසු බෑමක් ඇති වන්ෙන් නැහැ. [බාධා කිරීමක්] සිංගප්පූරුෙව් ඒක පුද්ගල ආදායම ෙඩොලර් 34,760යි. ඒ වාෙග්ම සිංගප්පූරුෙව් තිෙබන අෙනක් කාරණා ෙමොනවාද? උපෙත්දීම ලබන ආයු කාලය. පිරිමිෙයකුෙග් ආයු කාලය අවුරුදු
+
+78යි. ස් තියකෙග් ආයු කාලය අවුරුදු 83යි. මට භාර දී තිෙබන්ෙන් සමාජ ෙසේවා අමාතɕාංශය. මා ගිහින් පරීක්ෂා කළාම ඇත්ත වශෙයන්ම කියනවා නම් අෙප් ආයු කාලය වැඩි ෙවලා. ඇයි, අෙප් ආයු කාලය වැඩි ෙවලා තිෙබන්ෙන්? මහින්ද චින්තන වැඩ පිළිෙවළ තුළින් ෙපොෙහොර සහනාධාරය ලබා දීෙමන් සියයට 86ක් ෙද්ශීය ෙගොවිතැන එක්ක බද්ධ ෙවලා ෙගොවිතැෙන් කාර්ය භාරය ඉෂ්ට කළාම ඇත්ත වශෙයන්ම ඉදිරිෙය්දී අෙප් ආර්ථිකය ෙහොඳ වනවා. ෙලෝක ආර්ථිකය කඩා වැෙටද්දි අෙප් ආර්ථිකය කඩා ෙනොවැටුෙණ් ඇයි? කඩා ෙනොවැටුෙණ් ෙමොකද කියා ඔබතුමා උත්තරයක් ෙදන්න. ඉස්සර ඇෙමරිකාවට ෙහම්බිරිස්සාව හැදුණාම අපිට උණ සන්නිපාතය හැෙදනවා. ෙමවර එෙහම වුෙණ් නැහැ. අෙප් ආර්ථිකය කඩා වැටුෙණ් නැහැ. එෙහ බැංකුවලින් අස් කරද්දි අෙප් රෙට් බැංකුවලින් කවුරුවත් අස් කෙළේ නැහැ. ඒක මතක තියා ගන්න ඕනෑ. ඒක පිළිගත් නිසා තමයි මහ මැතිවරණෙය්දී ජනතාව තුෙනන් ෙදකක බලයක් දුන්ෙන්. ෙපොෙහොර සහනාධාරය හැටියට ෙපොඩි ගණනක්ද අපි ලබා ෙදන්ෙන්? [බාධා කිරීමක්] තමුන්නාන්ෙසේලාෙග් ඔය කථාව අපිට පිළිගන්න පුළුවන් කියා මා හිතන්ෙන් නැහැ.
+
+ෙකෙසේ ෙවතත් අපි කියන්න ඕනෑ, අද රටක් වශෙයන් බලද්දි ෙමොනවා නැති වුණත් ආර්ථික වර්ධනය ෙහොඳයි කියා. රෙට් විෙද්ශ සංචිතය දැන් ශීඝෙයන්ම වැඩි වී ෙගන එනවා. විෙද්ශ ෙවෙළඳාම දැන් වැඩි වී ෙගන එනවා. ඊ ළඟට ෙමොනවාද ෙවලා තිෙබන්ෙන්? ශී ලංකාෙව් ආර්ථිකය 2009 වර්ෂෙය්දී විතරක් සියයට 3.5කින් වැඩි වුණා. තමුන්නාන්ෙසේ ඔය ආර්ථික නɕාය ෙකොෙහන් ගන්නවාද කියා මා දන්ෙන් නැහැ. අෙප්ක්ෂා කෙළේ සියයට 2.5යි. නමුත් සියයට 3.5කින් වැඩි වුණා. ඊ ළඟට, 2009 ෙද වන කාර්තුෙව් ඉඳලා ආර්ථිකය ශක්තිමත් ෙවමින් යනවා. ෙහේතුව, ෙම් යුද්ධය නිමා ෙවලා අවුරුද්දයි. වැඩි කාලයක් ෙනොෙවයි. ෙම් වන විට රට තුළ සාමකාමී පරිසරයක් ෙගොඩ නැඟිලා තිෙබනවා. අෙප්ක්ෂා නැවත වරක් වර්ධනය ෙවමින්, සංචාරකෙයෝ පැමිෙණමින්, ෙම් රෙට් ෙහොඳ සංවර්ධනයක් කරා ෙව්ගවත් ගමනක් යෑමට අපිට අවස්ථාව ලැබිලා තිෙයනවා.
+
+ජනාධිපතිතුමාෙග් සංකල්පය අනුව ෙමොනවාද එතුමා ෙමවර කිව්ෙව්? එතුමා කිව්වා, රට සංවර්ධනය කරන්න අවකාශය ෙදන්න කියා. ඉස්සර ෙවලා ඉල්ලුෙව් යුද්ධය නිම කරන්න අවකාශය ෙදන්න කියා. යුද්ධය නිම ෙකරුවා. දැන් රට සංවර්ධනය කරන්න අවකාශය ෙදන්න කියා තිෙබනවා. දැන් රට සංවර්ධනය ෙවමින් යනවා. ෙකොත්තු ෙරොටි දමනවා වාෙග්, ආප්ප දමනවා වාෙග්, බිත්තර ආප්ප දමනවා වාෙග් දවෙසන් ෙදෙකන් සංවර්ධනය කරන්න බැහැ. යුද්ධය නිම ෙවලා අවුරුද්දයි. ඊ ළඟ අවුරුද්ෙද් ෙමොකක්ද වන්ෙන් කියා බලා ෙගන ඉන්න. අපි වැඩ ෙපන්වන්නම්. අපිට වැඩ ෙපන්වන්න බැරිකමක් නැහැ.
+
+අපිට කියන්න ෙබොෙහෝ ෙද්වල් තිෙබනවා. ආර්ථික සංවර්ධනය ගැන කියන්න පුඵවන්. කෘෂිකර්ම අංශෙය් සියයට 12ක වර්ධනයක් තිෙබනවා. 2008 තිබුෙණ් සියයට 7.5යි. 2009 සියයට 3.2කින් වැඩි වුණා. දැන් සියයට 12ක් දක්වා වැඩි ෙවලා. කර්මාන්ත අංශෙය් සියයට 5.9ක වර්ධනයක් තිබුණා. ෙපොඩ්ඩක් බැහැලා තිබුණා. නමුත් දැන් 2009 සියයට 4.2ක වර්ධනයක් තිබුණා. ෙසේවා අංශෙයත් සියයට 3.3කින් වර්ධනයක් ෙවලා තිබුණා. ෙම් අනුව බලද්දී විදුලිය, ගෑස්, ජලය, ෙත් නිෂ්පාදනය, සංචාරක, රාජɕ ෙසේවා හැම එකකම වර්ධනයක් තිෙබන බව අපට ෙපෙනනවා. ෙම් අනුව අපිට පැහැදිලිව ෙපෙනනවා, තමුන්නාන්ෙසේලාෙග් බලාෙපොෙරොත්තු සුන් ෙවලා, ඉදිරිෙය්දී තමුන්නාන්ෙසේටත් ඔය පැත්ෙතන් ෙම් පැත්තට සංකමණය වන්න සිද්ධ වන බව. ඊෙය්ත් එක් ෙකෙනක් සංකමණය වීෙම් මූලික ලක්ෂණය ෙපන්නුම් ෙකරුවා. [බාධා කිරීමක්]
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඒ කියන්ෙන් ඔබතුමන්ලා ෙම් පැත්තට ඇවිත් අපි ආණ්ඩු පක්ෂයට එනවා කියලාද?
+
+2010 මැයි 06 325 326
+
+ගරු ෆීලික්ස් ෙපෙර්රා මහතා (மாண்ᾗமிகு பீᾢக்ஸ் ெபேரரா) (The Hon. Felix Perera) නැහැ, ඔබතුමාලා ෙම් පැත්තට එන්න. ඊ ළඟට ෙමොනවාද? අද යකඩ ගැන කථා ෙකරුවා. මං හිතන්ෙන් තමුන්නාන්ෙසේලා දන්නවා, යකඩ සුන්බුන් ටික ෙමෙහන් පිට රට යවලා යකඩ බවට පරිවර්තනය කරලා නැවත වරක් ෙමහාට එවනවා කියලා. මෙග් ආසනෙය්ත් තිෙයනවා factories තුනක්, සුන්බුන්වලින් යකඩ හදන ඒවා. ඉතින් අපි සුන්බුන් එහාට යවලා, යකඩ වශෙයන් නැවත වරක් ආනයනය කරනවා. ඒක නිසා ෙමෙහේ බද්දක් ඇති කරලා, බදු දාලා, තහංචි දාලා ඒවා ෙමෙහම පාවිච්චි කෙළොත් - recycle කෙළොත්- අපිට ෙලොකු විෙද්ශ විනිමයක් ඉතුරු කර ගන්න පුළුවන්.
+
+ඊ ළඟට, දියමන්ති කර්මාන්තය. දැන් බලන්න, ෙලෝකෙය් තිෙයන ඝනම දවɕ තමයි දියමන්ති. දියමන්තියක් කපන්න දියමන්තියක්ම ඕනෑ. හරියට ගහක් නසන්න ගහක් තියනවා වාෙග්ම, ෙද්ශපාලනඥෙයක් නසන්න ෙද්ශපාලනඥෙයක්ම ඕනෑ වාෙග්, දියමන්තියක් කපන්න දියමන්තියක්ම ඕනෑ. දැන් "Sri Lanka cut" කිව්වාම ගරු නිෙයෝජɕ කථානායකතුමනි, ෙලෝකෙය් ඕනෑම තැනක තැනක් තිෙයනවා. දැන් ෙම්වාටයි සහන ෙදන්න ඕනෑ. තමුන්නාන්ෙසේලා දන්නවා, අද අෙප් ලංකාෙව් උසස්ම තත්ත්වය තිෙයන ශමය ලබා ගැනීමට චීනෙයන් විශාල ඉල්ලුමක් තිෙබනවා. ලංකාෙව් තමයි ෙහොඳම ශම හමුදාව -බල හමුදාව- තිෙයන්ෙන්. අෙප් රටට GSP Plus නැති කිරීමට උත්සාහ ගත් කීප ෙදෙනක් හිටියා. GSP Plus එක ඇතත්, නැතත් ෙම් ආණ්ඩුව ෙගනි යන්න පුළුවන් කියන එක අපි ඔප්පු කරලා ෙපන්වලා තිෙයනවා. ඒ ෙවනුෙවන් ෙවනත් විකල්ප මාර්ග රාශියක් අපි සාදා ෙගන යනවා. එම නිසා දැන් අෙප් විෙද්ශ ආනයනය අඩු ෙවලා අපනයනය වර්ධනය කර ගනිමින් තිෙබනවා. උදාහරණයක් වශෙයන් මාෙග් කලින් තිබුණු අමාතɕාංශයම ගත්ෙතොත්, ගිය පාර මසුන් විෙද්ශගත කිරීෙමන් -export කිරීෙමන්- ෙඩොලර් මිලියන 173ක ෙලොකු ආදායමක් අපිට ලබා ගන්න පුළුවන් වුණා. තමුන්නාන්ෙසේලා දන්නවා, ටූනා මසුන් අපි අල්ලා ගත්ෙත් නැත්නම් උන් ෙවනත් රටකට සංකමණය ෙවනවා. එතෙකොට එතැනින් අල්ලා ගන්නවා. මගදී ඉඳලා අල්ලා ගත්තාම ඒෙක් විෙද්ශ විනිමය අපිට ෙමහාට එනවා. විෙද්ශ විනිමය විතරක් ෙනොෙවයි-
+
+ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) ෙකොමිස් කීයද? ගරු ෆීලික්ස් ෙපෙර්රා මහතා (மாண்ᾗமிகு பீᾢக்ஸ் ெபேரரா) (The Hon. Felix Perera) ඒවා අපි නැවත සකස් කළාම -value-addition එකක් කරලා- විෙද්ශ විනිමය විශාල පමාණයක් ලබා ගන්න පුළුවන්. ගරු කථානායකතුමනි, අපි ඒක ඔප්පු කරලා තිෙයනවා. ඉතින් මම කියන්ෙන් ෙම්කයි. තමුන්නාන්ෙසේලාෙග් ආර්ථික පැත්ත ෙමොනවා වුණත් අද අපි සාර්ථකව අෙප් ආර්ථිකය ෙමෙහය වන්න රට ලෑස්ති කර ෙගන ඉන්නවා. රාජɕ මූලɕ තත්ත්වය දැන් ෙහොඳ අතට හැරී ෙගන එනවා. ඒ විතරක් ෙනොෙවයි. යුද්ධය පවතිද්දිත් අපට ෙකොච්චර විෙද්ශ විනිමය ලැබුණාද? ඕස්ෙට්ලියාෙවන් ලැබුණා ඇෙමරිකානු ෙඩොලර් මිලියන 18.5ක්. ඉන්දියාෙවන් ෙඩොලර් මිලියන 20ක් ලැබුණා. ඉන්දියාෙවන් තවත් රුපියල් මිලියන 1,206ක් ලැබුණා. විෙද්ශ ආධාර එකඟතාවන් අනුව චීනෙයනුත් ලැබුණා. ඒ වාෙග්ම ජපානෙයන්, ෙකොරියාෙවන්, කුෙව්ට්වලින්, ජර්මනිෙයන්, එක්සත් ජාතීන්ෙග් සංවිධානෙයන්, ආසියානු සංවර්ධන බැංකුෙවන් මිලියන 2221.7ක් ලැබිලා තිෙයනවා, යුද්ධය පවතින කාලෙය්. දැන් යුද්ධය අවසන් වුණාම ඕනෑ තරම් ආෙයෝජනය කරන්න විෙද්ශ රටවල් අද ෙපොර කකා බලා ෙගන ඉන්නවා. එයට ෙහේතුව ෙවලා තිෙයන්ෙන්, සාමකාමී පරිසරය උඩ අෙප් රට ආෙයෝජනයට සුදුසුම රටක් විධියට අද
+
+ෙලෝකය පිළිෙගන තිබීමයි. ඒ තත්ත්වය උදා කෙළේ ජනාධිපතිතුමා. ෙමොනවා නැති වුණත් අද රෙට් බිය නැති කරලා තිෙයනවා. ඉස්සර තමුන්නාන්ෙසේලාත් හිටිෙය් බෙයන්, අපිත් හිටිෙය් බෙයන්. කළු වීදුරුවක් දැක්කාම යූඑන්පීද, ශීලංකාද, ෙජ්වීපීද කියලා නැහැ, එල්ටීටීඊ තස්තවාදීන් විසින් හැම ෙකෙනක්ම ඝාතනය කළා. එක්සත් ජාතික පක්ෂෙය් අයත් ඝාතනය කළා. අෙප් අයත් ඝාතනය කළා. අද ඒ තත්ත්වය නැති කරලා තිෙයනවා. මම කියන්න කැමතියි, -[බාධා කිරීමක්] මාෙග් කථාවට බාධා කරන්න එපා. තමුන්නාන්ෙසේෙග් කථාෙවදී කියන්න. ගරු නිෙයෝජɕ කථානායකතුමනි, මට තව විනාඩි කීයක් තිෙයනවාද?
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) තව විනාඩි තුනක් තිෙබනවා. ගරු ෆීලික්ස් ෙපෙර්රා මහතා (மாண்ᾗமிகு பீᾢக்ஸ் ெபேரரா) (The Hon. Felix Perera) මා ඉක්මනට අවසන් කරන්නම්. ෙකෙසේ ෙවතත් ෙම් ආණ්ඩුව තව කාලාන්තරයක් තිස්ෙසේ පවතිනවා විතරක් ෙනොෙවයි, ෙම් රෙට් ෙවනසක් ඇති කරන්න මහින්ද චින්තනය අද උදවු වන එක ගැනත් අපට කිසිම සැකයක් නැහැ කියන එක මම මතක් කරනවා. ඒ සඳහා නිවැරදි නායකත්වයක් ඇති කරමින් රෙට් සංවර්ධනය ෙව්ගවත් කරමින් කටයුතු කරනවා. විෙශේෂෙයන්ම නැවත වරක් යුද්ධයක් ඇති ෙනොවන විධියට උතුරු නැ ෙඟනහිර පෙද්ශ සංවර්ධනය කිරීම සඳහා අද ෙකොතරම් කාර්ය භාරයක් ඉෂ්ට කරනවාද ෙම් ආණ්ඩුව? අපි නැ ෙඟනහිර මුදා ගත්තාට පස්ෙසේ පළමුෙවන්ම පටන් ගත්ෙත් කුමක්ද? පළමුෙවන්ම පටන් ගත්ෙත් නැ ෙඟනහිර සංවර්ධනය කරන්නයි. ඒෙකන් විශ්වාසයක් ඇති ෙවලා තිෙබනවා. ගිය වර TNA එෙක් හිටපු මන්තීවරු පවා පැරදුණත්, දිනුවත් අෙප් සංවර්ධනය දැකලා අද අෙප් පක්ෂෙයන් ඡන්දය ඉල්ලන්න කියා කර තිෙබනවා; ඒ අයෙග් ෙද්ශපාලන මතිමතාන්තර ෙවනස් කරමින් ඉන්නවා. අද සාමකාමී ෙලස ඒ පෙද්ශවලට සංකමණය ෙවනවා. ඒ විතරක් ෙනොෙවයි. අද දහස් ගණනක් මිනිසුන් උතුරට ගිහිල්ලා තමන්ෙග් පරණ ගම් බිම් බලනවා. ඒ විතරක් ෙනොෙවයි. ඒ අය ආගන්තුක සත්කාරය වැඩි කරමින්, සම්බන්ධතාවන් වැඩි කරමින්, සංහිඳියාව වැඩි කරමින් අද කටයුතු කිරීම නිසා ඇත්ත වශෙයන්ම අපට ෙලොකු බලාෙපොෙරොත්තුවක් තියා ගන්න පුළුවන්. ඒ නිසා තමුන්නාන්ෙසේලා හිතන කඩා වැටීම සිදු වන්ෙන් නැහැ. තමුන්නාන්ෙසේලා හිතන ෙද්වල් සිදු වන්ෙන් නැහැ. තමුන්නාන්ෙසේලා ගිය වරත් කිව්ෙව් එෙහමයි. තව අවුරුද්දකින් වැෙටනවාය, ෙදකකින් වැෙටනවාය කිව්වා. ගිය වර පාර්ලිෙම්න්තුව පටන් ගනිද්දී අපට සිටිෙය් මන්තීවරුන් 86 ෙදනායි. අවසන් ෙවද්දී කීයකින්ද අවසන් වුෙණ්? දැන් තමුන්නාන්ෙසේලාෙග් තත්ත්වය ෙමොකක්ද? තමුන්නාන්ෙසේලාට ෙවන්ෙන් ෙමොකක්ද? එම නිසා මා තමුන්නාන්ෙසේලාට ආරාධනාවක් කරනවා, ෙම් සංවර්ධනය ෙව්ගවත් කරලා ෙම් රට ආසියාෙව් ඓශ්චර්යයවත් රටක් බවට පත් කරන්න සියලු මත ෙභ්ද අයින් කරලා අපිත් එක්ක එකතු ෙවන්නය කියා. ෙමය මාෙග් ෙම් හත්වන පාර්ලිෙම්න්තුෙව් පළමු වන කථාවයි. ෙකෙසේ ෙවතත් තමුන්නාන්ෙසේලාෙග් බලාෙපොෙරොත්තු ඉෂ්ට වන්ෙන් නැති බව පකාශ කරන අතර දැන්වත් කල්පනා කර බලා ආණ්ඩුවට සහෙයෝගයක් ලබා ෙදන්නය කියා අවසාන වශෙයන් ඉල්ලීමක් කරනවා. ෙම් රට ආසියාෙව් ඓශ්චර්යයවත් රටක් කිරීමට ෙහේතු වාසනා ලැෙබ්වා කියා පාර්ථනා කරමින් මෙග් කථාව අවසන් කරනවා. ෙබොෙහොම ස්තුතියි.
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) ස්තුතියි, ගරු සුනිල් හඳුන්ෙනත්ති මන්තීතුමා.
+
+පාර්ලිෙම්න්තුව 327 328
+
+[අ. භා. 12.04] ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) ගරු නිෙයෝජɕ කථානායකතුමනි, විෙශේෂෙයන්ම 2000 අවුරුද්ෙද් ඉඳලා අඛණ්ඩව හතරවන වතාවටත් ෙම් පාර්ලිෙම්න්තුව නිෙයෝජනය කරමින් පාර්ලිෙම්න්තු පජාතන්තවාදය ශක්තිමත් කරන්න, ඒ වාෙග්ම රෙට් ජනතාවෙග් උන්නතිය ෙවනුෙවන් ෙම් පාර්ලිෙම්න්තුෙව් හඬ නඟන්න අපව ෙම් පාර්ලිෙම්න්තුවට පත් කරපු රෙට් සියලුම ජනතාවට, විෙශේෂෙයන්ම ෙකොළඹ දිස්තික්කෙය් ජනතාවට පණාමය පුද කරමින් අද දිනෙය් විවාදයට ගන්න ගැසට් නිෙව්දනෙය් සඳහන් ෙරගුලාසි පිළිබඳව කරුණු කීපයක් දක්වන්න මා බලාෙපොෙරොත්තු වනවා. අපි අද උෙද්ත් මූලික වශෙයන්ම මතු කෙළේ ආනයන හා අපනයන (පාලන) පනතට අදාළව අද ෙම් ඉදිරිපත් කරලා තිෙබන ෙරගුලාසි විධිමත් ආකාරයට ෙම් පාර්ලිෙම්න්තුවට ඉදිරිපත් කරලා නැතිය කියන කාරණාවයි.
+
+ෙම් පාර්ලිෙම්න්තුව ආරම්භ කළ දිනෙය්දීම ආණ්ඩු පක්ෂය ෙගනා ෙයෝජනාව විපක්ෂය; එක්සත් ජාතික පක්ෂය ස්ථීර කරලා, ගරු කථානායකතුමා අත් ෙදෙකන් අල්ලා ෙගන ගිහින් ෙම් මූලාසනෙය් වාඩි ෙකෙරව්ෙව් ෙම් ගරු පාර්ලිෙම්න්තුෙව් උත්තරීතරත්වය, අපි හැම ෙදනාෙග්ම අයිතිය ආණ්ඩුකම වɕවස්ථාවට අනුව ආරක්ෂා කරාවිය කියන විශ්වාසය ඇතුවයි. නමුත් අද අපට ෙපෙනනවා, ගරු කථානායකතුමාෙග් අතින් ඒ විශ්වාසය හරියාකාරව ඉෂ්ට වන්ෙන් නැහැයි කියලා. කනගාටුෙවන් වුණත් අපි ඒ ෙද් කියන්න ඕනෑ. ෙමොකද, ඒකට ෙහේතුව ගරු නිෙයෝජɕ කථානායකතුමනි, -
+
+ගරු අල්හාජ් ඒ.එච්.එම්. අස්වර් මහතා (மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர்) (The Hon. (Alhaj) A.H.M. Azwer) Sir, I rise to a point of Order. The Hon. Member is violating the Standing Orders. He cannot make a remark on the conduct of the Hon. Speaker.
+
+ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) Very correct. ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti)
+
+What is the number of the Standing Order? ගරු අල්හාජ් ඒ.එච්.එම්. අස්වර් මහතා (மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர்) (The Hon. (Alhaj) A.H.M. Azwer) ෙනොම්මරය දන්ෙන් නැද්ද? කියලා ෙදන්නද? මෙග් class එකක් තිෙයනවා, -[බාධා කිරීමක්] Sir, you know it. It is common knowledge. - [Interruption.] ෙම් ෙගොල්ලන්ෙග් වැෙඩ්ම- [බාධා කිරීම්] ෙම් ෙගොල්ලන් ගරු කථානායකතුමාට ෙගෞරවයක් දක්වන්ෙන් නැති ෙබෝම්බකාරෙයෝ. ඉතින් ෙකොෙහොමද, සභාවක් ෙගනි යන්ෙන්? ඒක හැන්සාඩ් වාර්තාෙවන් ඉවත් කරන්නය කියා මා ඉල්ලා සිටිනවා.
+
+ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) ගරු නිෙයෝජɕ කථානායකතුමනි, මම ගරු අස්වර් මන්තීතුමාට ගරු කරනවා, ෙම් පාර්ලිෙම්න්තුෙව් හිටපු ගරු මන්තීවරයකු
+
+හැටියට, වග කිව යුතු ෙජɕෂ්ඨ මන්තීවරයකු හැටියට. හැබැයි ස්ථාවර නිෙයෝගවලට පටහැනි නම්, ඒ රීති පශ්නයට අදාළ ස්ථාවර නිෙයෝගය ෙමොකක්ද කියා එතුමා කියන්න ඕනෑ. මෙග් කථාෙව් වැරැද්දක් තිෙබනවා නම් ගරු නිෙයෝජɕ කථානායකතුමාට පුළුවන් ඒක ෙපන්වලා ෙදන්න.
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) ස්ථාවර නිෙයෝගවලට පටහැනි යමක් තිෙබනවා නම් ඉවත් කරන්න.
+
+ගරු අල්හාජ් ඒ.එච්.එම්. අස්වර් මහතා (மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர்) (The Hon. (Alhaj) A.H.M. Azwer) You cannot refer to the conduct of the Hon. Speaker. - [Interruption.]
+
+ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) ගරු නිෙයෝජɕ කථානායකතුමනි, අද දිනෙය්දී මා මතු කළ මූලික කාරණාව අදාළ වන්ෙන් ආනයන හා අපනයන (පාලන) පනෙත් 20(4) වගන්තියටයි. එය මා නැවත කියවනවා:
+
+It states, I quote: "20. (4) Every regulation made by the Minister shall be brought before Parliament within a period of one month from the date of the publication of that regulation under subsection (3), or, if no meeting is held within that period, at the first meeting after the expiry of that period, by a motion that such regulation shall be approved.”
+
+ෙමතැන තිෙබන පශ්නය, දැන් ආණ්ඩුව, ආනයන හා අපනයන (පාලන) පනෙත් විධිවිධාන අනුව -
+
+ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) Sir, I rise to a point of Order. නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) ගරු මන්තීතුමා, රීති පශ්නයක්. ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) ගරු නිෙයෝජɕ කථානායකතුමනි, රීති පශ්නයක් තිෙබනවා. ෙම් ගැසට් නිෙව්දනය පාර්ලිෙම්න්තුවට ඉදිරිපත් කළ ආකාරයත්, ඒ කියන්ෙන් පාර්ලිෙම්න්තුව විසුරුවා හැරීමට ෙපර කලින් හිටපු ඇමතිතුමා සභාගත කළ ආකාරයත්, නව පාර්ලිෙම්න්තුවක් පත් වූ පසුව සභාගත කළ ආකාරයත් පිළිබඳව ෙල්ඛන සහිතව කරුණු දැක්වීෙමන් පසු ගරු කථානායකතුමා නිෙයෝගයක් දුන්නා. ස්ථාවර නිෙයෝග අනුව, ඒ නිෙයෝගය පිළිබඳව යළිත් කථා කරන්නට කිසි ෙසේත්ම පුළුවන්කමක් නැහැ. එය සභාව පිළිගනිමින් විවාදය කර ෙගන යනවා. ඒ නිසා දැන් විවාදයට සම්බන්ධ වනවා හැර නැවත රීති ගැන කථා කරන්න, නැවත ඒ කරුණු අනාවරණය කරන්න පුළුවන්කමක් නැහැ. එය රීතිමය වශෙයන් සම්පූර්ණෙයන් පිළිගත හැකියි.
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) රීති පශ්නය පිළිගත හැකියි. ගරු සුනිල් හඳුන්ෙනත්ති මන්තීතතුමා.
+
+2010 මැයි 06 329 330
+
+ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) ඒ සඳහා මෙග් කාලය ගන්න එපා. මම ගරු කථානායකතුමාෙග් නිෙයෝගයට අභිෙයෝග කරන්නට යනවා ෙනොෙවයි. මම එම නිෙයෝගය පිළිගනිමින් මෙග් මතය කියන්නට ඕනෑ. මෙග් මතය කියන්නට අයිතියක් මට තිෙබනවා. ගරු කථානායකතුමාෙග් මතය එතුමා ඉදිරිපත් කළා. ඒක පිළිගත්තා. මම කියන්ෙන් ෙමෙහම ගිෙයොත් ෙම් පාර්ලිෙම්න්තුෙව් අපි ඉන්න එෙක් ෙත්රුමක් නැහැ කියලායි. ගරු නිෙයෝජɕ කථානායකතුමනි, ඒක නිසා ෙමය විවාදයකට පටලවන්නට මට ඕනෑ කමක් නැහැ. දැන් ෙම්ෙක් මූලික පශ්නය තිෙබන්ෙන්,- [බාධා කිරීම්] මම ෙනොෙවයි ද කථා කරන්ෙන්? [බාධා කිරීම්]
+
+ගරු අනුර පියදර්ශන යාපා මහතා (மாண்ᾗமிகு அᾒர பிாியதர்ஷன யாப்பா) (The Hon. Anura Priyadharshana Yapa) ඔබතුමා ඒ රීති පශ්නය ඉදිරිපත් කළා. එය පතික්ෙෂේප වූ පසුව නැවත පාර්ලිෙම්න්තුවට මතයක් ෙගන එන්නට බැහැ. ඕක මතයක් ෙනොෙවයි ෙන්.
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) ගරු මන්තීතුමා, උෙද් දුන් තීන්දුවට අමතරව ඔබතුමා කථා කරන්ෙන්. තීන්දුවක් දීලා තිෙබනවා ෙන්.
+
+ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) ෙහොඳයි. දැන් ෙම්ක සම්මත කර ගන්නා පශ්නය ෙනොෙවයි තිෙබන්ෙන්. ගැසට් නිෙව්දනෙය් කාලය ඉකුත් ෙවලා තිෙබනවා. ඇත්තටම ෙම් ෙගනැවිත් තිෙබන්ෙන් expire වුණු ගැසට් නිෙව්දනයක්. Expire වුණ ගැසට් නිෙව්දනයක් ෙගනාවා නම් කළ යුතුව තිබුෙණ් ඒක අලුතින් ෙගෙනන එකයි. පරණ එකක් විවාද කරන එක තමයි දැන් අපි කරන්ෙන්. පරණ එෙක් වුණත් තිෙබන වැරැද්ද ෙම්කයි. ගරු නිෙයෝජɕ කථානායකතුමනි, රසායනික අවි පනතින් නිෂ්පාදනය, සකස් කිරීම, අත් කර ගැනීම, පරිෙභෝජනය, ආනයනය ෙහෝ අපනයනය තහනම් කරලා තිෙබන රසායනික දවɕ 38ක් ලංකාවට ආනයනය කරන්නට අපි නීති ලිහිල් කරනවා. ෙමහිදී කෘෂි කර්මාන්ත කටයුතුවලට, ඖෂධවලට ෙම් ෙද්වල් පාවිච්චි කරනවා කියලා තර්ක කරන්නට පුළුවන්. නමුත් අපි දැන් ෙම්ක බරපතළ විධියට සලකන්නට ඕනෑ. එෙහම නම් ෙමපමණ කාලයක් රසායනික අවි පනතින් ෙම්වාෙය් නිෂ්පාදනය, ආනයනය තහනම් කරලා තිබුෙණ් ඇයි? ඒ තහනම් කරලා තිබුණු පදනම ෙමතැන නිවැරදිව සාකච්ඡා කරන්ෙන් නැතිව, තකහනිෙය්, කඩිමුඩිෙය්, හදිසිෙය් අද ෙම් නව පාර්ලිෙම්න්තුව රැස් වන පළමුවන දවෙසේම ෙම්ක ෙගන ඒෙම් අරමුණ ෙමොකක්ද කියන එක ගැනයි අද අපි ෙම් කථා කරන්ෙන්. ගරු නිෙයෝජɕ කථානායකතුමනි, ඒක නිසා විෙශේෂෙයන්ම ඔබතුමන්ලා ෙම් පාර්ලිෙම්න්තුෙව් නවක මන්තීවරුන්ට ආදර්ශයක් වන්න. ෙම් පාර්ලිෙම්න්තුවට ෙම්ක කලින් ෙගනැල්ලා, ෙම්ක සාකච්ඡාවට භාජනය කරලා, පමාණවත් කාලයක් තුළ සංවාද ගත කරන්නට ඉඩ දීලා ෙම්ක කරන්නට තිබුණා. අපි කියන්ෙන් ඒකයි. බලය තිෙබනවා තමයි. බලය දැළි පිහියක් කර ගන්නට එපා. ෙම් රෙට් ජනතාව තමුන්නාන්ෙසේලාට බලය දීලා තිෙබන්ෙන් ඒක දැළි පිහියක් කර ෙගන හතර වෙට් කපා ගන්නට ෙනොෙවයි. බලය තිෙබනවා වාෙග්ම ෙමොළයත් පාවිච්චි කරන්නය කියලා අපි ඉල්ලා සිටිනවා.
+
+ඒ වාෙග්ම ෙම් ගරු පාර්ලිෙම්න්තුෙව් අද සිද්ධ වන ෙද් ඉතාමත්ම භයානක අනාගතයකට අපව කැඳවනවා. අපි දන්නවා, ෙම් පාර්ලිෙම්න්තුෙව් ගරු මන්තීවරුන්ව ෙමෙහයවන්න, ෙම් පාර්ලිෙම්න්තුෙව් කටයුතු ෙමෙහයවන්න ගරු කථානායකතුමාට අවශɕ උපෙදස් ෙදන්ෙන් සහ ඒ අවශɕ මඟ ෙපන්වීම කරන්ෙන් මහ ෙල්කම්තුමා බව. මහ ෙල්කම් ධම්මික කිතුල්ෙගොඩ
+
+මැතිතුමාත් එක්ක මට ෙපෞද්ගලික පශ්නයක් නැහැ. නමුත් එතුමාව පත් කරන්ෙන්, දහහත්වන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනයට අනුව ආණ්ඩුකම වɕවස්ථා සභාවයි. දහහත්වන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනයට අනුව සති ෙදකක් සඳහායි එතුමාට පත්වීම් ලිපිය ෙදන්ෙන්. එතෙකොට පත්වීම් ලිපිය ෙදන්ෙන් සති ෙදකක් සඳහායි. අතිගරු ජනාධිපතිතුමා ෙමොකද කරන්ෙන්? නිසි පරිදි ආණ්ඩුකම වɕවස්ථා සභාව පත් කරන්ෙන් නැතිව, සති ෙදෙකන් ෙදකට එතුමාව පත් කරනවා. ඒ අනුව සති ෙදකක් අෙප් මහ ෙල්කම්තුමා පාර්ලිෙම්න්තුෙව් යහපත් කල් කියාෙවන් සිටිෙයොත් ඊ ළඟ සති ෙදක සඳහා එතුමාෙග් පත්වීම් ලියුම ෙදනවා. ඒක හරි නැහැ. අපි කියන්ෙන් ධම්මික කිතුල්ෙගොඩ මැතිතුමා වුණත් අපට පශ්නයක් නැහැ, පාර්ලිෙම්න්තු මහ ෙල්කම් ධුරයට ස්ථිරව පත් කරන්න කියායි. ඒක අපි කාෙගත් පජාතන්තවාදයට ෙහොඳයි; ඒක අප කාෙගත් යහ පැවැත්මට ෙහොඳයි; ෙම් පාර්ලිෙම්න්තුෙව් පැවැත්මට ෙහොඳයි. රාජපක්ෂ පවුෙලන් ආව ගරු කථානායකතුමා ඉහළ පුටුෙව් ඉන්නවා. ඒක අපට ෙහොඳයි. අපි ඒකට ගරු කරනවා. ගරු චමල් රාජපක්ෂ මැතිතුමා අපි ෙබොෙහොම ආදරය කරන, ගරු කරන කථානායකවරෙයක්. එතුමාට පහළ පුටුෙව් ඉන්න මහ ෙල්කම්තුමාටත් සති ෙදෙකන් ෙදකට ජනාධිපතිතුමාෙග් ලිපිය ලැෙබන තුරු බලාෙපොෙරොත්තුෙවන් ඉන්න සිද්ධ වනවා නම්, අපි කවුරුත් යටත් වන්ෙන් ඒකට. මම කියන්ෙන් ෙම්ක ආණ්ඩු පක්ෂෙය් මන්තීවරුන්ටත් වන්න පුළුවන්; විපක්ෂෙය් අපටත් වන්න පුළුවන්. ඒ නිසා අපි කියන්ෙන් ආණ්ඩුකම වɕවස්ථා සභාව පිහිටුවලා ධම්මික කිතුල්ෙගොඩ මැතිතුමාව මහ ෙල්කම් ධුරෙය් ස්ථිරව පත් කරන්න කියලායි.
+
+ගරු අල්හාජ් ඒ.එච්.එම්. අස්වර් මහතා (மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர்) (The Hon. (Alhaj) A.H.M. Azwer) හරි, ඒක කරනවා. ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) ඒක හරියට අර එළුවාෙග් ෙමොකක්ද එක වැෙටනකම් බලා ෙගන හිටියා වාෙග් ෙකෙර්වි කියලා බලා ෙගන ඉඳලා හරි යන්ෙන් නැහැ. ෙම්ක තමයි බරපතළ තත්ත්වය. අද ගරු සරත් ෙෆොන්ෙසේකා මන්තීතුමා පාර්ලිෙම්න්තුවට එන එක අර්බුදකාරී වන්ෙන්, ඒ වාෙග්ම ෙම් අණ පනත්වලදී අපි ඇත්ත කථා කරලා කරුණු ෙපන්වලා ෙදන එක පැත්තකට විසි වන්ෙන් ඒකයි. ඒක බරපතළ තත්ත්වයක්.
+
+ඊ ළඟට මම විෙශේෂෙයන් කියන්න කැමැතියි අද අෙප් මාතෘකාවට අදාළව තිෙබන තත්ත්වය. අද අෙප් රෙට් පවතින ආර්ථිකය ෙමොකක්ද, අපි ගමන් කරමින් ඉන්ෙන් ෙකොතැනටද? අපි කවුරුත් දන්නවා 2010 අවුරුද්දට අය වැයක් නැතිව ෙම් රට ගමන් කරන්න උත්සාහ කරන බව. ෙම් ගැන පාර්ලිෙම්න්තුෙව්දී මීට කලිනුත් කථා වුණා. යුද්ධය ඉවර කරලා අවුරුද්දක් පිෙරන ෙම් ෙමොෙහොෙත් දී ආණ්ඩුෙව් වගකීම තමයි; තමුන්නාන්ෙසේලාෙග් වගකීම තමයි ෙම් රට බලාෙපොෙරොත්තු වන අය වැය ඉදිරිපත් කරන එක. සම්පූර්ණ මූලɕ පාලන බලය ජනාධිපතිතුමාෙග් අතට ෙගෙනන ෙකොට ඒක ගැටලු සහගත වනවා. කල්පනා කරලා බලන්න. ගැසට් පතයක් අෙප් ෙම් ෙම්සය උඩ තිෙබනවා. ෙම්කට අනුව ඇමතිකම් ෙබදා ෙගන තිෙබන්ෙන් ෙකොෙහොමද? ඇමතිවරුන්ෙග් විෂයය පථය ෙබදිලා තිෙබන්ෙන් ෙකොෙහොමද? මුදල් අමාතɕාංශය භාරව ඉන්ෙන් ජනාධිපතිතුමා. වරාය ඇමති, සිවිල් ගුවන් ෙසේවා ඇමති, මහා මාර්ග ඇමති ජනාධිපතිතුමා. ඊට අමතරව එතුමා ආරක්ෂක ඇමතිතුමා. ඊ ළඟට ෙවනත් අමාතɕාංශ යටෙත් තිබුණු ආයතන ගණනාවක් අද ජනාධිපතිතුමා අතට ඇවිල්ලා තිෙබනවා. කෘෂි රක්ෂණ මණ්ඩලය ජනාධිපතිතුමා අතට ඇවිල්ලා තිෙබනවා. ෆීලික්ස් ෙපෙර්රා ඇමතිතුමාෙග් සමාජ ෙසේවා අමාතɕාංශය යටෙත් තිබුණු සමාජ ආරක්ෂණ මණ්ඩලය ජනාධිපතිතුමා යටතට ඇවිල්ලා තිෙබනවා. අපනයන ණය රක්ෂණ මණ්ඩලය ජනාධිපතිතුමා අතට ඇවිල්ලා තිෙබනවා. ඉතින් අද රෙට් පජාතන්තවාදය පාර්ලිෙම්න්තුවට, ජනතාවට
+
+පාර්ලිෙම්න්තුව 331 332
+
+[ගරු සුනිල් හඳුන්ෙනත්ති මහතා]
+
+ෙකෙසේ ෙවතත් ආණ්ඩු පක්ෂයට ෙකෝ?; ආණ්ඩු පක්ෂෙය් ඇමතිවරුන්ට ෙකෝ? අද අමාතɕ ධුර ගත්ත ෙබොෙහෝ ෙදනකුට ඒ අමාතɕ ධුරෙය් දිවුරුම් දීලා, තමන්ෙග් අමාතɕාංශයට ගිහිල්ලා ඒ නිලධාරින් හම්බ ෙවලා සැලැස්මක් හදන්න පුළුවන්ද අවුරුදු හයකට? අවුරුදු හයකට බැහැ, මාස හයකට පුළුවන්. සමහර අමාතɕාංශවලට අයත් රට වෙට් තිෙබන ආයතනවලට ගිහිල්ලා බලලා එන ෙකොට මාස හය ඉවරයි. කල්පනා කරලා බලන්න. ෙකෙනක් ඇමති ධුරයක් ගත්තාම තමන් පත් ෙවච්ච දිස්තික්කෙය් ජනතාව බලාෙපොෙරොත්තු වනවා ඒ ඇමති ධුරෙයන් තමන්ෙග් පෙද්ශයට වැඩක් කරන්න පුළුවන් කියලා. අලුත් ඇමතිවරු කැමැතියි තමන්ෙග් ඇමතිධුරෙයන් යමක් කරලා ෙපන්වන්න. එය කරන්න පුළුවන් පතිපාදන නැත්නම්, එය කරන්න පුළුවන් බලය නැත්නම්, එය කරන්න පුළුවන් ආයතන ටික නැත්නම්, එය කරන්න හැකියාව තිෙබන තැන් ටික නැත්නම් ෙමොකද වන්ෙන්? ෙම් පාර්ලිෙම්න්තුවට අපි කවුරු පත් වුණත් එෙහමයි. දැන් අලුත් මන්තීවරු පත් ෙවලා ඉන්නවා. තමන් නිෙයෝජනය කළ දිස්තික්කෙයන් වැඩිම මනාප ලබා ෙගන පත් වුණු අලුත් මන්තීවරු ආණ්ඩු පක්ෂෙය් ඉන්නවා. ඒ වැඩිම මනාප දුන්න ජනතාව බලාෙපොෙරොත්තු වනවා, “අෙප් මන්තීතුමා ඇමතිවරයකු හැටියට ඇවිල්ලා අෙප් පෙද්ශවලට යමක් කරයි” කියලා. ෙකොළඹ දිස්තික්කෙය් ගරු දුමින්ද සිල්වා මන්තීතුමා, ගාල්ල දිස්තික්කෙය් ගරු නිශාන්ත මුතුෙහට්ටිගම මන්තීතුමා වැනි අය ඒ දිස්තික්කවල ලක්ෂ ගණනින් වැඩිම මනාප ගත්ත අය බව අපි දන්නවා. ඉතින් ඒ අයට හැකියාව තිෙබන්න ඕනෑ තමන්ෙග් දිස්තික්කවලට ගිහිල්ලා තමන්ෙග් ජනතාවට වග කීෙමන් යමක් කරන්න. අපි දන්නවා ෙම් පාර්ලිෙම්න්තු මන්තී ධුරෙයන් ඒ ෙද් කරන්න බැහැ. ගරු දුමින්ද සිල්වා මන්තීතුමාට පාර්ලිෙම්න්තු මන්තීවරෙයකුට ලැෙබන රුපියල් ලක්ෂ 50න් වැඩ කරන්න බැහැ. [බාධා කිරීමක්]
+
+ගරු චන්දසිරි ගජදීර මහතා (மாண்ᾗமிகு சந்திரசிறி கஜதீர) (The Hon. Chandrasiri Gajadeera) තමුන්නාන්ෙසේලා කලින් කිව්වා ඇමතිවරු වැඩියි, වියදම් වැඩියි කියලා. තමුන්නාන්ෙසේලා කලින් කියපු එක දැන් නැවතත් ෙවනස් කරනවා.
+
+ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) අපි කියන්ෙන් ෙමොකක්ද කියලා අෙන්, ඔබතුමාට ෙත්ෙරන්ෙන් නැහැ. අපි කියන්ෙන් හැන්දත් තමන්ෙග් අෙත්, ෙබදා ගන්ෙනත් තමන්ට ඕනෑ විධියට, අෙනක් අයට ෙමොකුත් නැහැ කියන එක. ඒක ඔබතුමන්ලාට ඔතැන වාඩි ෙවලා කථා කරන්න බැහැ. ඔබතුමන්ලා ෙවනුෙවන් තමයි අපි ෙම් කථා කරන්ෙන්. මුදල් පාලන බලය තමන්ෙග් අතට අර ෙගන, මුදල් සංසරණය වන සියලු ආයතන තමන්ෙග් අතට අර ෙගන තමන්ෙග් මන්තීවරු තමන්ෙග් අත පල්ෙලන් හැලිච්ච කට්ටිය බවට පත් කළාම, ඒක පජාතන්තවාදී නැහැ.
+
+ගරු ලලිත් දිසානායක මහතා (තාක්ෂණ හා පර්ෙය්ෂණ නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு லᾢத் திசாநாயக்க - ெதாழில்ᾒட்பவியல், ஆராய்ச்சி பிரதி அைமச்சர்)
+
+(The Hon. Lalith Dissanayake - Deputy Minister of Technology and Research)
+
+ඒ ඔබතුමන්ලාට. ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) ඔබතුමාටත් එෙහම ෙන්. අරණායක මනුස්සෙයක් කථා කරලා කිව්ෙව් අෙප් මන්තීතුමාට ෙමොකක්ද ෙම් පර්ෙය්ෂණ ඇමතිකමක් හම්බ ෙවලා, ඒෙකන් ෙමොනවාද කරන්න පුළුවන් කියලා.
+
+මතකද? එෙහම බැහැ. ඒ නිසා අ පි කියන්ෙන් අරලිය ගහ මන්දිරෙය් නැති පජාතන්තවාදය ෙම් පාර්ලිෙම්න්තුෙව්ත් නැති කරන්න එපා කියලායි. පාර්ලිෙම්න්තුෙව් ඒක තිෙබන්න ඕනෑ. කථානායක පුටුෙව් ඒක තිෙබන්න ඕනෑ. මහ ෙල්කම් පුටුෙව් ඒක තිෙබන්න ඕනෑ. මහ ෙල්කම්තුමා ට එතුමාෙග් රාජකාරිය කරන්න අයිති බලය තිෙබන්න ඕනෑ. ඒක නැති කරන්න එපා. විපක්ෂෙය් ඉන්ෙන් අපි ටික ෙදනා ෙවන්න පුළුවන්. හැබැයි විපක්ෂෙය් අෙප් නිෙයෝජනය, මහ ජන නිෙයෝජනය. ඒක නැති කරන්න එපා. ඒක නැති කරන්න, ඒකට අත තියන්න ෙදන්න බැහැ. හැම මන්තීවරයකුටම පුටුවක් තිෙබනවා. හැම මන්තීවරයකුෙග්ම බලය එක සමානයි. හැම මන්තීවරයකුටම මහ ජන බලයක් තිෙබනවා. ඒක අභිෙයෝගයට ලක් කරන්න එපා. අද ෙමතැන සිද්ධ වුෙණ් ඒක. අද ෙම් ෙරගුලාසි විවාදයට ගන්න අවශɕ නම්, ඔබතුමන්ලාට තිබුණා පජාතන්තවාදී විධියට පක්ෂ නායක රැස්වීමක් කැඳවලා අෙනක් මන්තීවරුන්ෙග්ත් අදහස් අහලා, අෙනක් පක්ෂවලත් අදහස් අහලා, ෙවච්ච වැරැද්ද නිවැරදි කරලා විවාදයට ගන්න. ඒකයි කළ යුතුව තිබුෙණ්. එෙහම නැතිව කථානායකතුමාෙග් ශී මුඛෙයන් නිෙයෝගය පිට ෙවච්ච පළියට ඒක පජාතන්තවාදී නැහැ. ඒක පජාතන්තවාදී ෙවන්ෙන් නැහැ.
+
+අද ආර්ථිකය තිෙබන්ෙන් බරපතළ තත්ත්වයක. දැන් බලන්න, මහ බැංකුෙව් ෙම් අලුත් වාර්තාව අනුව ඊෙය් "The Island" පුවත් පෙත් ෙමෙසේ සඳහන් කරලා තිෙබනවා:
+
+“Budget deficit expands 15.75 % year-on-year in January” ෙම් කියන්ෙන් ෙමොකක්ද? පසු ගිය අවුරුද්දත් එක්ක සංසන්දනය කරන ෙකොට, 2010 ජනවාරි වන ෙකොට අය වැය හිඟය රුපියල් බිලියන 63.2යි. ඒක 2009 දී රුපියල් බිලියන 54යි. ඒ කියන්ෙන් 2009 ජනවාරි මාසෙය් සිට 2010 ජනවාරි මාසය වන විට අය වැය හිඟය වැඩි වීම සියයට 15.75යි. එෙහනම් තමුන්නාන්ෙසේලා ෙම් පාර්ලිෙම්න්තුවට 2009 අවුරුද්ෙද් අය වැය ෙගනාෙවොත් අනිවාර්යෙයන්ම අය වැය හිඟය සියයට 13ක්, සියයට 15ක් ෙවනවා. ජාතɕන්තර මූලɕ අරමුදෙල් කණ්ඩායම දැන් ඇවිල්ලා ඉන්නවා ලංකාවට. ජාතɕන්තර මූලɕ අරමුදෙල් කණ්ඩායෙම් නිෙයෝගය අනුව තමුන්නාන්ෙසේලා 2009 අවුරුද්දට අය වැය ෙගනාෙවොත්, අය වැය හිඟය පවත්වා ගන්න ඕනෑ සියයට හෙත් සීමාෙව්. 2011 අවුරුද්ෙද් අය වැය ෙගනාෙවොත්, අය වැය හිඟය පවත්වා ගන්න ඕනෑ සියයට පෙහේ සීමාෙව්. දැන් ආණ්ඩුව මුහුණ දීලා තිෙබන අර්බුදය තමයි සියයට පෙහේ සියයට හෙත් සීමාෙව් අය වැය හිඟය තියා ගන්න බැරි වීම. ෙමොකද, මහ බැංකු වාර්තාවම කියනවා 2010 ජනවාරි මාසය වන විට අය වැය හිඟය සියයට 15යි කියලා. "The Island" පුවත් පෙත් පළ කර තිෙබන එම වාර්තාව හැන්සාඩ් වාර්තාවට ඇතුළත් කිරීම සඳහා මා එය සභාගත* කරනවා. එය හැන්සාඩ් වාර්තාවට ඇතුළත් කරන්නය කියලා ඔබතුමාෙගන් ෙබොෙහොම කාරුණිකව ඉල්ලා සිටිනවා.
+
+ගරු නිෙයෝජɕ කථානායකතුමනි, අද සාමානɕ ජීවිතය ගත්තත් එෙහමයි. පසු ගිය අෙපේල් මාසෙය් -මැතිවරණ මාසෙය්- තත්ත්වය ෙමොකක්ද? ඒ වන ෙකොට ෙවෙළඳ ෙපොෙළේ හාල් කිෙලෝ එකක මිල රුපියල් 59.80යි. දැන් රුපියල් 65යි. මැයි මාසෙය් පළමුවැනි දා වන ෙකොට ඒක වැඩි වුණා. අෙපේල් මාසෙය් මැද සතිෙය් රුපියල් 69ට තිබුණු සම්බා සහල් කිෙලෝ එක දැන් රුපියල් 75යි. අෙපේල් මාසෙය් තුන්වන සතිය වන ෙකොට රුපියල් 36ට තිබුණු පාන් ෙගඩිය දැන් වැඩි ෙවලා තිෙබනවා රුපියල් 40 දක්වා. රුපියල් 36ට තිබුණු පාන් ෙගඩිය දැන් රුපියල් 40යි. අෙපේල් මාසෙය් තුන්වන සතිෙය් රුපියල් 350ට තිබුණු හාල්මැස්සන් කිෙලෝ එක දැන් රුපියල් 400යි. අෙපේල් මාසෙය් තුන්වන සතිෙය් අල කිෙලෝ එක තිබුෙණ් රුපියල් 61 ට. දැන් රුපියල් 72යි. ෙම්කයි ඇත්ත තත්ත්වය. අද සාමානɕ ජනතාවට කන්න විධියක් නැහැ. තමුන්නාන්ෙසේලා ෙමොකද කරන්ෙන්? තමුන්නාන්ෙසේලා දුප්පත්කම නැති කරන්න කියලා, පදික ෙව්දිකාෙව් ඉන්න ෙවෙළන්දාව දමනවා මහ පාරට.
+
+* කථාව අවසානෙය් පළ කර ඇත. * உைரயினிᾠதியில் தரப்பட்ᾌள்ளᾐ. * Produced at end of speech.
+
+2010 මැයි 06
+
+දුප්පත්කම නැති කරන්න කියලා තමුන්නාන්ෙසේලා ෙමොකද කරන්ෙන්? දුප්පතුන්ට කඩල ෙගොට්ටක් විකුණා ෙගන කන්න තිබුණු අයිතිය නැති කරනවා. හිඟා කන්න තිෙබන අයිතිය නැති කරනවා. හිඟා කෑම නතර කරලා දුප්පත්කම නැති කරන්න බැහැ, ගරු නිෙයෝජɕ කථානායකතුමනි. දුප්පතුන් නැති කරනවාය කියන්ෙන් දුප්පතුන්ට ජීවත් ෙවන්න විධියක් නැති කරන එක ෙනොෙවයි; දුප්පතුන්ව නැති කරලා දමන එක ෙනොෙවයි. දුප්පත්කම නැති කරනවා නම් දුප්පතුන් ෙපොෙහොසතුන් බවට පත් කරන්න ඕනෑ. දුප්පතුන් ෙපොෙහොසතුන් කරන්න පුළුවන් කමයක් ෙහොයන්න ඕනෑ. එෙහම නැතිව දුප්පතුන් ජීවත් වන කමය නැති කරලා දමන එක ෙනොෙවයි. කඩල ෙගොට්ටක් විකුණා ෙගන ජීවත් වුණා නම්, ඇපල් ෙගඩියක් විකුණා ෙගන ජීවත් වුණා නම්, හඳුන්කූරු ටිකක් විකුණා ෙගන ජීවත් වුණා නම්, කඩ බක්කියක් දමා ෙගන ජීවත් වුණා නම්, හිඟා කාෙගන ජීවත් වුණා නම් ඒක නැති කරලා ඒ මිනිසුන්ව පාෙරන් අයින් කරන එක ෙනොෙවයි උත්තරය. දැන් තමුන්නාන්ෙසේලා ෙතෝරන්ෙන් ඒ වාෙග් උත්තර.
+
+ෙම් ගරු සභාවට නවක මන්තීවරයකු හැටියට ආපු අෙප් නාමල් රාජපක්ෂ මන්තීතුමා එතුමාෙග් පළමුවන කථාව කළා ෙබොෙහොම ෙහොඳට. එතුමාෙග් කථාෙව්දී එතුමා කිව්වා ෙම් රෙට් තරුණයින් ෙවනුෙවන් තරුණ ෙකොමිසමක් ඇති කරන්න ඕනෑ කියලා. ඒ ෙයෝජනාව ෙහොඳ ෙයෝජනාවක්. හැබැයි එතුමාට අපි එක කාරණයක් මතක් කරලා ෙදන්න ඕනෑ. එතුමාට පුළුවන් මා ෙම් කියන වාර්තාව පාර්ලිෙම්න්තු library එෙකන් බලා ගන්න. තරුණයන් පිළිබඳ ජනාධිපති ෙකොමිෂන් සභාව 1989 දී පිහිෙටව්වා. ෙම් තිෙබන්ෙන් ඒ ෙකොමිසෙම් වාර්තාව. ඒ ෙකොමිසෙම් සභාපතිතුමා තමයි මහාචාර්ය ලක්ෂ්මන් ජයතිලක මැතිතුමා. කනගාටුදායක ෙද් තමයි, ඒ ෙකොමිසෙම් ඊ ළඟ සාමාජිකයා - ෙදවන සාමාජිකයා, ෙදවන වැදගත්ම සාමාජිකයා - වර්තමාන පාර්ලිෙම්න්තුෙව් විෙද්ශ කටයුතු ෙනොෙහොත් බාහිර කටයුතු ඇමති මහාචාර්ය ජී.එල්. පීරිස් මැතිතුමා වීම. ඒ කියන්ෙන් මහාචාර්ය ගාමිණී ලක්ෂ්මන් පීරිස් මහතා. අෙප් ගරු නාමල් රාජපක්ෂ තරුණ මන්තීතුමාෙගන් අපි ඉල්ලා සිටිනවා, වර්තමාන විෙද්ශ කටයුතු ඇමතිතුමා සාමාජිකත්වය දරපු, ඒ වාෙග්ම ලක්ෂ්මන් ජයතිලක මැතිතුමා සභාපතිත්වය දරපු තරුණයන් පිළිබඳ ජනාධිපති ෙකොමිෂන් සභාෙව් වාර්තාව කියවන්නය කියා. එහි වගන්තිෙයන් වගන්තිය නිර්ෙද්ශ ඉදිරිපත් කර තිෙබනවා. ඒ අතරින් පළමුවන ෙද් ෙමොකක්ද? ෙම් රෙට් විරැකියාව නැති වන්න ඕනෑ කියන එක. ෙදවැනි ෙද් ෙමොකක්ද? සමාජ අසාධාරණය නැති වන්න ඕනෑ කියන කාරණය. තුන්වන නිර්ෙද්ශය ෙමොකක්ද? ජාතික ධනය අයුතු ෙලස පරිහරණය නතර වන්න ඕනෑ කියන එක. රෙට් අධɕාපන කමෙය් තිෙබන අසමානතාව තුරන් වන්න ඕනෑ කියන එක තවත් එකක්. තරුණයන් පිළිබඳ ජනාධිපති ෙකොමිෂන් සභා වාර්තාෙව් පටුෙන් ඒ ටික තිෙබනවා. ෙමන්න ෙම් කාරණා කියාත්මක කරන්න වැඩ පිළිෙවළක් තමුන්නාන්ෙසේලාෙග් ආශ්චර්යවත් රජයට තිෙබනවා දැයි කල්පනා කර බලන්න. තරුණ පිරිස සමාජ සංස්ථාවලින් බැහැර වීම සහ ආයතන පිරිහීම, තරුණයන්ෙග් දුක් ගැනවිලි විසඳීම, අධɕාපනය හා ෙසේවා නියුක්තිය අතර ෙනොගැළපීම, සමාජ අසමානතා උග කරන්නා වූ ෙවනස්කම්, භාෂා පතිපත්තිය, කුල පීඩනය, ජන වාර්ගික සමඟිය කියන ෙම්වා තමයි අද ඇමතිවරයකු ෙවලා ඉන්න ජී.එල්. පීරිස් මැතිතුමා සාමාජිකත්වය දරපු, එදා -1989 දී-තරුණ අසහනය පිළිබඳ ෙසොයා බැලීම සඳහා පත් කරපු ඒ ෙකොමිසෙම් නිර්ෙද්ශයන් වුෙණ්. ඒ නිර්ෙද්ශයන් එකක් ෙහෝ කියාත්මක කරන්න තමුන්නාන්ෙසේලාෙග් ආණ්ඩුවට තිෙබන වැඩ පිළිෙවළ ෙමොකක්ද, ෙම් පවතින තත්ත්වය යටෙත්? අලුතින් සටන් පාඨ හැටියට, අලුත් ජනපිය මාතෘකා හැටියට යම් යම් ෙද් ෙගනාවාට වැඩක් නැහැ. තිෙබන නිර්ෙද්ශයන්වත් කියාත්මක කරන්න වැඩ පිළිෙවළක් තිෙබනවාද කියා කල්පනා කරන්නය කියලා අපි ඔබතුමන්ලාෙගන් ෙබොෙහොම කාරුණිකව ඉල්ලා සිටිනවා.
+
+ගරු නිෙයෝජɕ කථානායකතුමනි, අද රෙට් තත්ත්වය බරපතළයි. අද ෙම් ආණ්ඩුව බලාෙපොෙරොත්තු වූ ජන වරම ෙකෙසේ ෙවතත් බලය ලැබිලා තිෙබනවා. රෙට් ජනතාවෙග් ජන වරමින් -කැමැත්ත නැතත්- බලය ලැබිලා තිෙබනවා. හැබැයි
+
+තමුන්නාන්ෙසේලා ඒ බලය පාවිච්චි කරන්ෙන් ෙමොන පැත්තටද කියන එක තීරණය කරන්න ඕනෑ. ඒක දැළි පිහියක් කර ගත්ෙතොත් සිදු වන්ෙන් හැම පැත්තම කපා ගන්න එකයි. අද පදික ෙව්දිකාෙව් ෙවෙළන්දා මහ පාෙරන් ඇද දමලා; ඒ වාෙග්ම විශ්වවිදɕාල ශිෂɕයන්ෙග් ගැටලු නැවත උග කරලා; වැඩ කරන ජනතාවෙග් පශ්නවලට විසඳුම් ෙදන්ෙන් නැතුව රෙට් ආර්ථිකෙය් ණය බර වැඩි කරලා; බදු බර වැඩි කරලා. ඒ වාෙග්ම ජනතාවට බලාෙපොෙරොත්තුවක් වී තිබුණු, අය වැෙයන් වැඩි කරන්න බලාෙපොෙරොත්තු වූ වැටුප වැඩි ෙනොකර, අසාධාරණ විධියට ෙම් කමය පවත්වා ෙගන යනවා නම්, ෙම් පාර්ලිෙම්න්තුවට එන්න ඉන්න මන්තීවරයකුට පාර්ලිෙම්න්තුවට සහභාගි වන්න තිෙබන අයිතිය කථානායකතුමාෙගන් කප්පාදු වනවා නම්, ෙම් පාර්ලිෙම්න්තුෙව් වැරැදි විධියට නීති, අණපනත්, ෙරගුලාසි පනවා ගන්නවා නම් අෙප් රෙට් පජාතන්තවාදය ගැන රෙට් ජනතාවට තිෙබන විශ්වාසය බිඳ වැෙටනවා. විෙශේෂෙයන්ම විපක්ෂෙය් මන්තීවරුන් වන අප හැම ෙදනාටම වග කීමක් තිෙබනවා, නවක මන්තීවරුන්ට වග කීමක් තිෙබනවා අප ෙපනී ඉන්න පජාතන්තවාදය ෙවනුෙවන්, යහ පාලනය ෙවනුෙවන්, රෙට් ජාතික සමඟිය ෙවනුෙවන් ෙපනී සිටීෙම්. තමුන්නාන්ෙසේලාට වග කීමක් තිෙබනවා, විනය ගරුක සමාජයක් නිර්මාණය කරන්න මැදිහත් වීෙම්.
+
+ගරු අල්හාජ් ඒ.එච්.එම්. අස්වර් මහතා (மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர்) (The Hon. (Alhaj) A.H.M. Azwer) නැඟී සිටිෙය්ය. எᾨந்தார். rose. ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) විෙශේෂෙයන්ම අස්වර් මන්තීතුමා වාෙග් ෙජɕෂ්ඨ මන්තීවරුන්ට වග කීමක් තිෙබනවා, අලුත් මන්තීවරුන්ට ආදර්ශයක් ෙදන විධියට කටයුතු කිරීෙම්.
+
+ගරු නිෙයෝජɕ කථානායකතුමනි, මම නැවත වතාවක් අවධාරණය කරනවා, විෙශේෂෙයන්ම අද සාකච්ඡාවට ෙගනා ආනයන හා අපනයන (පාලන) පනත යටෙත් වන නිෙයෝග සම්මත කර ගන්ෙන් ෙම් පාර්ලිෙම්න්තුෙව් අප හැෙමෝෙග්ම අනුමැතිය හරියාකාරෙයන් ලබා ෙගන ෙනොෙවයි කියන එක. විෙශේෂෙයන්ම ඒ පනෙත් 20.(4) වගන්තිෙය් තිෙබන, මාසයක් ඇතුළත ෙම්ක ෙගෙනන්න ඕනෑය කියන නිර්ෙද්ශය, ඒ ෙරගුලාසිය, ඒ වගන්තිය උල්ලංඝනය කරලාය කියන එක කනගාටුෙවන් වුණත් අපට කියන්න සිද්ධ වනවා. ඒ නිසා ඒ උල්ලංඝනය කිරීෙම් කටයුත්ත දිගින් දිගටම කර ෙගන යන්න එපා කියා මම නැවත ඉල්ලා සිටිනවා. ඒක කථානායකතුමාෙග් නිෙයෝගය අභිෙයෝගයට ලක් කිරීමක් ෙනොෙවයි. එතුමාෙග් නිෙයෝගයට ගරු කරමින්ම නමුත් ෙම් ෙද් කනගාටුෙවන් වුණත් කියන්න සිදු වනවා.
+
+ඒ වාෙග්ම ෙමහි ෙදවන ෙකොටස හැටියට තිෙබන යකඩ සහ වාෙන් නිෂ්පාදන සම්බන්ධ පශ්නය ගනිමු. මා නැවත ෙමය මතු කරන්න ඕනෑ. ෙමොකද අපි දන්නවා, අෙප් රෙට් ෙලෝහ -පිත්තල, තඹ- කර්මාන්තයට අවශɕ කරන අමු දවɕ හැටියට ගත හැකි යකඩ විශාල පමාණයක් අබලි දවɕ හැටියට ඉවත දමන බව. ඒවා සාමානɕ කමෙයන් බැහැර කරලා පිට රට යවන වැඩ පිළිෙවළක් තිෙබනවා. ඒ නිසා කිරිබත්ෙගොඩ, ගම්ෙපොළ, ඒ වාෙග්ම කඩුෙවල කියන පෙද්ශවල තඹ, පිත්තල කර්මාන්තය ආශිතව ජීවත් වන ලක්ෂ ගණනාවකෙග් රැකියා, ජීවිත අනතුරට වැටිලා තිෙබනවා. ෙමොකද ඒවා රත් කරලා ෙවනත් ආකාරවලින් පිට රට යවනවා. ෙම්ක වළක්වන්න පාර්ලිෙම්න්තුවට නීති ෙගනාවා. අද කන්තෙල් සීනි කර්මාන්තශාලාෙව් -තිකුණාමලය දිස්තික්කය නිෙයෝජනය කරන මන්තීවරු දන්නවා- අබලි යකඩ දවɕ, -ෙහොඳට තිෙබන ඒවා- කුට්ටි කරලා, කපලා පිට රට යවනවා. ෙම්ෙකන් ලබන නිදහස වැරදි විධියට පාවිච්චි කෙළොත් සිද්ධ වන්න පුළුවන් ෙදය 4 — PL 004841 - (2010/05)
+
+333 334
+
+පාර්ලිෙම්න්තුව 335 336
+
+තමයි, අෙප් තිෙබන ෙද්ශීය කර්මාන්තය ශක්තිමත් ෙවනවා ෙවනුවට අෙප් රෙට් තිෙබන තඹ පිත්තල කර්මාන්තය -පනිට්ටුවක් හරි හදලා ජීවිතය ගැට ගසා ගත්ත මිනිසුන්ෙග් ජීවන මාර්ගය- මහ පාරට වැෙටන එක. ෙම් ලිහිල් කරන ලිහිල් කිරීම කරුණාකරලා ඒ ෙද්ශීය කර්මාන්තයන්ට බාධාවක් ෙවන්න ෙදන්න එපා කියලා අපි ඉල්ලා සිටිනවා. ෙමොකද, ෙම් ෙවනුෙවන් විෙශේෂ මැදිහත් වීමක් අපි අවස්ථා කීපයකදී ෙම් පාර්ලිෙම්න්තුෙව් දී කර තිෙබනවා. ගරු නිෙයෝජɕ කථානායකතුමනි, එක පැත්තකින් රසායනික අවි සම්මුතිය උල්ලංඝනය කරලා ලංකාවට රසායනික දවɕ 38ක් ෙග්න්න අද ෙම් ගැසට් නිෙව්දනෙයන් අනුමැතිය ෙදනවා. අනික් පැත්ෙතන් අෙප් රෙට් තිෙබන අබලි දවɕ, තඹ පිත්තල කර්මාන්තය ෙද්ශීය වශෙයන් පවත්වාෙගන යන්න තිෙබන ඉඩකඩ අවදානමට ලක් කර ගන්නවා. "ජාතික ආර්ථිකය හදනවා, ෙද්ශීය කර්මාන්ත නඟා සිටුවනවා, ඒ ෙවනුෙවන් පණ වුණත් ෙදනවා" කියන ආණ්ඩුව පළමුවන පාර්ලිෙම්න්තුවටම ෙග්නවා, අෙප් රෙට් ෙද්ශීය කර්මාන්තකරුවන්ට අභිෙයෝගයක් ෙදන අණපනත්; නීති. අද ෙම් ෙරගුලාසි සම්මත කර ගැනීම ඔබට කරන්න අයිතිය තිෙබනවා වුණාට, ඔබ ඒ නිෙයෝගය පිළිපැද්දා වුණාට, එය පජාතන්තවාදී විධියට සිද්ධ ෙනොකළාය කියන ෙචෝදනාෙවන් ෙම් ආණ්ඩුවට ගැලෙවන්න බැහැයි කියමින් මෙග් කථාව අවසන් කරනවා. ඔබතුමාට ස්තුතියි.
+
+Document “A” * සභාෙම්සය මත තබන ලද වාර්තාව : * சபாபீடத்தில் ைவக்கப்பட்ட ஆவணம் : * Article tabled:
+
+Budget deficit expands 15.75% year-on-year in January At 1.15 percent of GDP, deficit could meet interim target of 4.5 percent of GDP
+
+By Devan Daniel
+
+Sri Lanka’s budget deficit for the month of January 2010 reached 1.15 percent of GDP, expanding 15.75 percent to Rs. 63.2 billion from Rs. 54 billion in January 2009, as total expenditure increased by 10.48 percent while total revenues grew 5.45 percent on better tax collections which increased 7.92 percent.
+
+According to latest datea released by the Central Bank, tax revenue in January amounted to Rs. 46.3 billion compared to Rs. 42.9 billion in January 2009. Total revenue during the month increased 5.45 percent to Rs. 48.3 billion from Rs. 45.8 billion in the corresponding period last year.
+
+Total expenditure increased 10.48 percent to Rs. 111.7 billion from Rs. 101.1 billion year-on-year:Recurrent expenditure increased 7.88 percent to Rs. 94.4 billion from Rs. 87.5 billion. Capital expenditure including long term investments on infrastructure development amounted increased 27.2 percent to Rs.17.3 billion from Rs. 13.6 billion.
+
+The overall budget deficit in January 2010 amounted to Rs. 63.2 billion which was 15.75 percent higher than in January 2009.
+
+The deficit in January amounted to about 1.15 percent of GDP and seems to be on track to achieving Treasury estimates, a shade over 25 percent of total estimated deficit for the first four months of 2010. According to the interim budget, the estimated budget deficit for the first four months of the year is Rs. 245.2 billion or 4.5 percent of GDP.
+
+The estimated GDP for 2010 is about Rs. 5,448.8 billion and the deficit for January is divided by the GDP estimate for the entire year and economist avoid dividing GDP into 12 (to gauge the GDP value for a single month) because fiscal seasonality results in an uneven spread of revenues and expenditure throughout the year.
+
+According to the Treasury’s Pre-election Budgetary Position report, the deficit for the entire year is estimated at 7.5 percent, reaching Rs. 414.7 billion but it could be a challenge with the Central Bank warning against reckless spending if the government was to successfully meet priority expenses without expanding the deficit further as it could put considerable pressure on the economy.
+
+In 2009, the estimated deficit was 7 percent of GDP but the government overshot this target reaching 9.7 percent of GDP, in a year the Central Bank described as the most difficult in Sri Lanka’s economic history.
+
+If 2009 was a bad year due to external pressures caused by the global financial crisis, the Central Bank also warned the government in 2008 that fiscal consolidation and reforms to public institutions would be important steps to be taken going into 2009.
+
+During the latter part of 2009 the Central Bank again warned that the fiscal position of the government looked precarious and is it turned out, that was exactly how it was when the year ended.
+
+While acknowledging the need for government spending it infrastructure development, rehabilitation of once war-torn areas, public welfare and poverty alleviation, the Central Bank continues to warn the government against recklessness and inefficiency which could jeopardize the macro-economic gains having low inflation and low interest rates and threaten welfare and poverty alleviation programmes.
+
+The IMF has delayed the third tranche of the US$ 2.6 billion standby facility programme until the government shows it was committed to fiscal consolidation through its policies when the next budget is presented and approved by parliament.
+
+නිෙයෝජɕ කථානායකතුමා (பிரதிச் சபாநாயகர் அவர்கள்) (The Deputy Speaker) දිවා ආහාර විෙව්කය සඳහා පස් වරු 1.00 දක්වා සභාෙව් කටයුතු තාවකාලිකව අත් හිටුවනු ලබනවා.
+
+රැස්වීම ඊට අනුකූලව තාවකාලිකව අත් හිටුවන ලදින්, අ. භා. 1.00ට නිෙයෝජɕ කාරක සභාපතිතුමා [ගරු චන්දකුමාර් මුරුෙග්සු මහතා] ෙග් සභාපතිත්වෙයන් නැවත පවත්වන ලදී.
+
+அதன்பᾊ, அமர்ᾫ பி.ப.1.00 மணி வைர இைடநிᾠத்தப்பட்ᾌ மீண்ᾌந் ெதாடங்கிற்ᾠ. குᾨக்களின் பிரதித் தவிசாளர் அவர்கள் [மாண்ᾗமிகு சந்திரகுமார் ᾙᾞேகசு ] தைலைம வகித்தார்கள்.
+
+Sitting accordingly suspended till 1.00 p.m. and then resumed, MR. DEPUTY CHAIRMAN OF COMMITTEES [THE HON. CHANDRAKUMAR MURUGESU] in the Chair.
+
+[අ. භා. 1.00] ගරු ලලිත් දිසානායක මහතා (තාක්ෂණ හා පර්ෙය්ෂණ නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு லᾢத் திசாநாயக்க - ெதாழில்ᾒட்பவியல், ஆராய்ச்சி பிரதி அைமச்சர்)
+
+(The Hon. Lalith Dissanayake - Deputy Minister of Technology and Research)
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙදවන වතාවටත් මා ෙමම පාර්ලිෙම්න්තුවට ෙතෝරා පත් කර එවීම ගැන කෑගල්ල දිස්තික්කෙය් පගතිශීලී ජනතාවට මා පථමෙයන්ම ස්තුතිවන්ත ෙවනවා. ඒ වාෙග්ම මම නව කැබිනට් නිෙයෝජɕ අමාතɕවරෙයක් හැටියට පත් කිරීම ගැන අතිගරු ජනාධිපතිතුමාටත් මා ස්තුතිවන්ත ෙවනවා.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, අද දින වැදගත් වූ නිෙයෝග කීපයක් ෙම් ගරු සභාවට ඉදිරිපත් කර තිෙබන ෙමොෙහොෙත් මමත් ඒ පිළිබඳව කරුණු කීපයක් පකාශ කරන්න
+
+[ගරු සුනිල් හඳුන්ෙනත්ති මහතා]
+
+2010 මැයි 06 337 338
+
+බලාෙපොෙරොත්තු ෙවනවා. ඇත්ෙතන්ම ෙම් අදාළ කරුණු ටික ඉතාම වැදගත් ෙවනවා. එකක් තමයි, විෙශේෂිත වූ රසායනික දවɕ කීපයක් ෙම් රටට ෙගන්වීෙම්දී බලපතයකට යටත් කිරීම හා පමිතිකරණයක් -ඒ පිළිබඳ යම් කමෙව්දයක්- ඇති කිරීම අපි අගය කරන්න ඕනෑය කියන එක. අෙප් සුනිල් හඳුන්ෙනත්ති මන්තීතුමා එතුමාෙග් කථාෙව්දී ෙම්ක ෙපන්වන්න හැදුෙව් එක්සත් ජාතීන්ෙග් සම්මුතිෙයන් ෙමම රසානික දවɕ ෙගන්වීම තහනම් කර තිෙබනවා කියලායි. ෙම්ෙක් එතුමා වරද්දා ගත්ත ෙදයක් තිෙබනවා. ෙම් සම්මුතිය -Convention එක- දැන් මා ළඟ තිෙබනවා. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, රසායනික අවි නිෂ්පාදනය කිරීම - development, production, stockpiling - පමණයි එක්සත් ජාතීන්ෙග් සම්මුතිෙයන් තහනම් කර තිෙබන්ෙන්. පරමාණුව ගත්ෙතොත්, ඒ තුළින් කරන නිෂ්පාදන ෙහොඳ පැත්තට ගන්නත් පුළුවන්, මිනිසාෙග් ප රිහානිය පැත්තට ගන්නත් පුළුවන්. ෙම් බලපතයට යටත් කරන ෙම් රසායන දවɕ දැනටමත් ෙවළඳ ෙපොෙළේ තිෙබනවා. ඒවා ෙගන්වනවා. ඒවා ෙගන්වන්ෙන් ෙකොෙහොමද, ෙමොකක්ද පමිතිය කියන එක නැහැ. පමිතිකරණය ඇති කිරීමක් තමයි ෙම් ගැසට් නිෙව්දනය මඟින් කරලා තිෙබන්ෙන්. විෙශේෂෙයන් හයිඩජන් සයනයිඩ් කියලා කියන්ෙන් ෙමොනවාද? මා හිතන්ෙන් ෙම්කත් උෙද් මතු කරපු ෙදයක් කියලායි. හයිඩජන් සයනයිඩ් රසායනික අවියක් නිෂ්පාදනය කරන්න ගන්න පුළුවන්. ඒ හයිඩජන් සයනයිඩ් කියන රසායන දවɕෙය් එක පැත්තක්. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙම් හයිඩජන් සයනයිඩ් කියන රසායන දවɕ ඡායාරූප develop කිරීෙම් කර්මාන්තයට වාෙග්ම කෘමිනාශකයක් හැටියටත් ෙයොදා ගන්නවා. ඒ වාෙග්ම විශාල ගබඩාවල කෘමීන් විනාශ කිරීම සඳහා ධූමකරණයට අවශɕ වන දවɕ නිෂ්පාදනය කිරීම සඳහා, ෙපොෙහොර නිෂ්පාදනය වාෙග්ම ගෘහ ආෙල්ප කරන තීන්ත - paint - නිෂ්පාදනය කිරීම සඳහාත් ෙමම හයිඩජන් සයනයිඩ් කියන දවɕ ෙයොදා ගන්නවා. ඒ වාෙග්ම ෙම්කම ෙයොදා ගන්න පුළුවන් රසායනික අවි නිෂ්පාදනය කිරීමට. නමුත් එෙහම ෙදයක් කරනවා නම් එක්සත් ජාතීන්ෙග් සම්මුතියට අනුව අනිවාර්යෙයන් ඒක නවත්වලා තිෙබනවා. ඒක පවතින නීතිෙයනුත් තහනම්. ෙමහි මූලිකම පරමාර්ථය ෙවලා තිෙබන්ෙන් ෙම් රසායන දවɕ මඟින් ෙම් රෙට් ෙද්ශීය ආර්ථිකයට, විෙශේෂෙයන්ම කෘෂි කර්මාන්තයට, කර්මාන්ත අංශයට පෙයෝජනයක් ලබා දීමයි. එය බලපතයක් හරහා ෙගන්වීම තුළින් පමිතියකින් ෙතොරව ෙවනත් කටයුතුවලට ෙයදවීම නැවැත්වීම සිදු වනවා. එතෙකොට ෙමොකද ෙවන්ෙන්? ෙම්ක ලියා පදිංචි ෙවලා බලපතයක් යටෙත් ඒවා ආනයනය කරන ෙකොට කවුද ෙම්වා ෙගන්වන්ෙන් කියන එක රජය ෙහොඳට දන්නවා. ඒවා ෙගන්වන පමාණය, ඒවා ෙකොෙහේටද නිකුත් වුෙණ් කියලා පැහැදිලිව අපට බලා ගන්න පුළුවන්. නමුත් ෙම් පමිතිකරණය නැතුව ඒවා නිකම්ම ෙගන්වු ෙවොත් මා හිතන්ෙන් අපට ෙම්ක ෙහොඳ පැත්තට යනවාද, නරක පැත්තට යනවාද කියන පරීක්ෂණය කරන්න බැරි ෙවනවා කියලායි. ඒ නිසා ෙමය ඉතාම වැදගත්. මා හිතන්ෙන් ෙම් කටයුත්ත අප අගය කරන්න ඕනෑ කියලායි.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ඊ ළඟ ෙද් තමයි බුරුසු. දැන් ගැලරිෙය් පාසල් ළමුන් ඉන්නවා මම දකිනවා. දවසකට තුන් පාරක් දත් මදින්න කියලා ෙන් කියන්ෙන්. ෙම් බුරුසුෙවත් ෙපොඩි හානියක් තිබුණා. ෙම්ක මා නිෙයෝජනය කරන විදɕා හා තාක්ෂණ අමාතɕාංශෙය් උපෙද්ශක කාරක සභාෙව්දී ගරු මන්තීවරයකු ඉදිරිපත් කළ ෙදයක්. ෙමොකක්ද ෙහේතුව? ෙම් බුරුසුව ෙද්ශීයව නිෂ්පාදනය කරන ෙකොට අප පමිතියට අනුව නිෂ්පාදනය කරන්න ඕනෑ. නමුත් විෙද්ශෙයන් ආනයනය කරන බුරුසුවට පමිතියක් තිබුෙණ් නැහැ. ෙම් නව තත්ත්වය යටෙත් විෙද්ශෙයන් ආනයනය කරන -අපි ෙගන්වන- බුරුසුවට ඒ පමිතිකරණය තිබුණාම මුදල් අමාතɕාංශෙය් අනුමැතිය ගන්නත් ඕනෑ. අර ලාභ භාණ්ඩයක් ෙගනැල්ලා අෙප් රෙට් නිෂ්පාදනය කරන දත් බුරුසුවට වැඩිය අඩු මිලට විකුණලා ලාභයක් ගන්න තත්ත්වයක් තමයි තිබුෙණ්. ඒක ෙම් නිසා නවතිනවා. එතෙකොට එක පැත්තකින් වඩා ගුණාත්මක ෙදයක් අෙප් රෙට් පාරිෙභෝගිකයාට ලැෙබනවා. අෙනක් පැත්ෙතන් අෙප් රෙට් ෙද්ශීය නිෂ්පාදකයා ආරක්ෂා වනවා. ෙම්ෙක් පැති ෙදකක් තිෙබනවා.
+
+විපක්ෂය හැම ෙවෙල්ම හැම ෙදයකටම විරුද්ධ වනවා. රවි කරුණානායක මන්තීතුමා එහා පැත්ෙත් ඉඳන් හැම දාම කියන්ෙන් "ආර්ථිකය වැෙටනවා, ආර්ථිකය වැෙටනවා" කියලායි. ඒක හරියට එළුවා පස්ෙසේ ගියා වාෙග් තමයි. හැම දාම එතුමා කියන්ෙන් ආර්ථිකය වැෙටනවා කියලායි. නමුත් එතුමා හිටිෙය් අවුරුදු ෙදකයි, සෙතොස සම්පූර්ණෙයන්ම වැහුවා. ෙම් රෙට් සාමානɕ ජනතාවට, විෙශේෂෙයන්ම රජෙය් ෙසේවකයන්ට අඩුවට භාණ්ඩයක් මිල දී ගන්න තිබුණු අවස්ථාව නැති වුණා. මට මතකයි අප මාවනැල්ලට ගිහිල්ලා සෙතොස ආරම්භ කළා. ඒ කාලෙය් අෙප් ෙවළඳ ඇමතිතුමා විධියට හිටිෙය් ගරු දි.මු. ජයරත්න මැතිතුමායි. රුපියල් ලක්ෂයකට වැඩිය business තිබුණා. නමුත් ෙම් අයෙග් ආණ්ඩුව ආවා. රනිල් විකමසිංහ මහත්මයාෙග් ආණ්ඩුව පැය 24ක්ම සෙතොස අරින්න කිව්වා. ඇරියා. රෑ 12ටත් ඒවා ඇරලා තිබුණා. අන්තිමට ෙමොකද වුෙණ්? එෙහම ඇරිෙය් ෙමොකද? පැය 24ක්ම ඇරිෙය් ඒවා වහන්න ඕනෑ නිසායි. අන්තිෙම්දී අප අවුරුදු ගණනක් තිස්ෙසේ පවත්වා ෙගන ආපු, සාමානɕ ජනතාවට ෙසේවයක් කරපු සෙතොස වහලා දැම්මා. දැන් ෙම් ෙගොල්ෙලෝ කියනවා ආර්ථිකය ගැන. ෙතල් ටික ෙදන්නලු tax එක නැතුව. බදු නැතුව රජයක් දුවන්න බැහැ ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි. බදු අවශɕයි. ඒ ෙගොල්ෙලෝ විපක්ෂෙය් ඉඳ ෙගන කියනවා "බදු වැඩියි, ෙමච්චරයි, ෙම්වා නිකම් ෙදන්න, ෙම්වා ෙමච්චර අඩුවට ෙදන්න පුළුවන්" කියලා. නමුත් රජයක පැවැත්මට බදු අය කිරීම අවශɕයි. ඒ බදු තුළින් ෙමොකද ෙවන්ෙන්? අපි සමෘද්ධි පතිලාභ ලබා ෙදනවා. ෙනොමිලෙය් අධɕාපනය ලබා ෙදනවා. ෙනොමිලෙය් ෙසෞඛɕ ෙසේවාවන් ලබා ෙදනවා. ඒ සියල්ල ලබා ෙදනවා. ඒ නිසා අප ෙම්ක හිතට ගන්න ඕනෑ. ෙම් කරුණු කාරණා කියන ෙකොට, ෙම් වාෙග් වැදගත් ෙදයක් ඉදිරිපත් කරන ෙකොට ඒෙක් වැරැදි පැත්ත තමයි හැම ෙවලාෙව්ම ඒ ෙගොල්ලන් ෙපන්වලා ෙදන්න යන්ෙන්. ඒක අද ජනතාව ෙත්රුම් අර ෙගන ඉන්නවා.
+
+සුනිල් හඳුන්ෙනත්ති මන්තීතුමා කිව්වා ආර්ථිකය ෙහොඳ නැහැ කියලා. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, පසු ගිය මාසෙය් -අවුරුදු මාසෙය්- ගෙම් ජනතාවට ෙබොෙහොම සරුයි. රබර් කිෙලෝ එක රුපියල් 460ට, 470ට ගියා. අෙප් පෙද්ශෙය් කරාබු නැටි කිෙලෝ එක රුපියල් 500ට, 600ට ගියා. ගම්මිරිස් මිල ඉහළ ගියා. පුවක් ෙගඩියට ෙහොඳ මිලක් ලැබුණා. ගෙම් ජනතාවට තමයි ෙම් ආදායම ආෙව්. අන්න ඒ නිසා තමයි ගෙම් ජනතාව -නගරෙය් ෙනොෙවයි- ෙම් ආණ්ඩුව ෙතෝරා ගත්ෙත්. ඒ කාලෙය් අරයා එනවා, ෙමයා එනවා කිව්වා ජනාධිපති ෙවන්න. විවිධ පතිලාභ ෙදනවා කිව්වා. අපිට නම් කිසි බයක් තිබුෙණ් නැහැ. මහින්ද රාජපක්ෂ ජනාධිපතිතුමා වැඩි ඡන්ද දහ අට ලක්ෂයකින් දිනුෙව්. ඇයි? අවුරුදු 33ක් තිස්ෙසේ ෙම් රෙට් ජනතාවට බලපෑ පශ්නයක් තිබුණා. ඒ තමයි යුද්ධය. අපි එදා ෙම් පාර්ලිෙම්න්තුවට එන ෙකොට එල්ටීටීඊ සංවිධානය නිෙයෝජනය කළ ෙබොෙහෝ මන්තීවරු ෙමතැන හිටියා. අපි යුද්ධය ගැන කථා කළා. නමුත් ඒ අය කථා කෙළේ නැහැ. ඒ අය ෙමොනවාද කිව්ෙව්? හැම විටම රජයටයි බැන්ෙන්. යුද්ධය කරන අෙප් හමුදාවට බැන්නා. නමුත් අපි එදා එල්ටීටීඊ සංවිධානයට විරුද්ධව කථා කළා. ජනාධිපතිතුමා ඒ තස්තවාදය ෙම් රටින් තුරන් කරලා දැම්මා. අද කාටත් නිදහස තිෙබනවා. ෙම් රෙට් අපි කවුරුත් කිසිම බයක් නැතිව සිංහල අවුරුද්ද ෙහොඳින් සැමරුවා. ඒ නිදහස ෙම් රෙට් සියලුම ෙදනාට තිෙබනවා. ඒක ෙම් රෙට් ජනතාව ෙත්රුම් ගත්තා. මල් වට්ටියක් තියන්න රුවන්මැලි සෑයට යන උපාසක අම්මා දඹුල්ෙල් දී ෙබෝම්බයට හසු ෙවලා මැරුණා. නාවික හමුදා ෙසබළා ෙගදර එන ෙකොට මැරුණා. දළ දා හාමුදුරුෙවෝ වඳින්න ගිය අය ෙබෝම්බයකට හසු ෙවලා මැරුණා. සිරිමා ෙබෝධින් වහන්ෙසේ වන්දනා කරන්න ගිය අය මැරුවා. අරන්තලාෙව් හාමුදුරුවරු මැරුවා. ෙම් සියල්ල කෙළේ තස්තවාදයයි. ඒ තස්තවාදය අද නැහැ. ඒ තස්තවාදය අද ඉවත් කරලා තිෙබන්ෙන්. ඒ නිසා අද ෙම් රට සාමකාමීයි. අද ආෙයෝජකෙයෝ එනවා. සංචාරකෙයෝ ෙම් රටට එනවා. අද ජනතාවට කියන්න ෙදයක් නැහැ. ඒ නිසා තමයි ජනතාව වැඩි ඡන්ද දහඅට ලක්ෂයක් දුන්ෙන්. අතිගරු මහින්ද රාජපක්ෂ මැතිතුමා අවුරුදු
+
+පාර්ලිෙම්න්තුව 339 340
+
+[ගරු ලලිත් දිසානායක මහතා]
+
+4ක් ෙම් රට කරපු නායකෙයක්. එෙහම නම් ඡන්ද අඩු ෙවන්න ඕනෑ. ඉතිහාසය අරෙගන බැලුෙවොත්, ෙජ්.ආර්. ජයවර්ධන මහතාෙග් ජනාධිපති කාලෙය් සිට මැතිවරණවලදී කිසිම ජනාධිපතිවරෙයක් ෙම් අන්දෙම් වැඩි පවණතාවක් ගත්ෙත් නැහැ. චන්දිකා බණ්ඩාරනායක මැතිනියටත් ගන්න බැරි වුණා. නමුත් මහින්ද රාජපක්ෂ ජනාධිපතිතුමා අවුරුදු 4ක් ෙම් රට පාලනය කරලා ජනාධිපති හැටියට එතුමාෙග් ෙදවැනි වාරයටත් ගියා. ෙදවැනි වාරයට ගිෙය් වැඩි ඡන්ද දහ අට ලක්ෂයක් ලබා ෙගන. මම හිතන්ෙන් වැඩිම පතිශතයක් ලැබුවා. ඒ ඇයි? ෙම් රෙට් මහ ජනතාව එතුමාෙග් කියා කලාපය අනුමත කළා.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ඊ ළඟට අපි පාර්ලිෙම්න්තු මැතිවරණයට ආවා. පාර්ලිෙම්න්තු මැතිවරණයත් අපි ජයගහණය කළා. ඒ නිසා අපි කියන්ෙන් එක්සත් ජාතික පක්ෂය ෙමොනවා කිව්වත් -
+
+ගරු අෙශෝක් අෙබ්සිංහ මහතා (மாண்ᾗமிகு அேஷாக் அேபசிங்க) (The Hon. Ashok Abeysinghe) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙම් අවස්ථාෙව් දී සභාෙව් ගණපූරණයක් නැහැ.
+
+පාර්ලිෙම්න්තුව ගණන් ෙකොට ගණපූරණයක් ෙනොමැති වූෙයන්, ෙබදුම් සීනු ශබ්ද කිරීමට නිෙයෝග කරන ලදී.
+
+පසුව ගණපූරණයක් තිබුෙණන්- பாராᾦமன்றம் கணக்கிடப்பட்ᾌ, கூட்ட நடப்ெபண் இல்ைல ெயனக் கண்டதனால், பிாிᾫ மணி அᾊக்கப்பட ேவண்ᾌெமனக் கட்டைளயிடப்பட்டᾐ.
+
+பிறகு, கூட்ட நடப்ெபண் இᾞந்ததனால் - Parliament counted, and a Quorum not being present, the Division Bells were ordered to be rung.
+
+Later, a Quorum being present -
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees)
+
+Hon. Deputy Minister, you carry on and please wind up quickly.
+
+ගරු ලලිත් දිසානායක මහතා (மாண்ᾗமிகு லᾢத் திசாநாயக்க) (The Hon. Lalith Dissanayake) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, එක්සත් ජනතා නිදහස් සන්ධානය හැටියට ජනාධිපතිවරණය අපි ජය ගත්තා. පාර්ලිෙම්න්තු මැතිවරණයත් අපි ආසන 144ක් ලබා ෙගන ජයගහණය කළා. ෙජ්.ආර්. ජයවර්ධන මැතිතුමාෙග් අනුපාත කමය යටෙත්ත් අපි තුෙනන් ෙදකක් ළඟටම ඇවිල්ලා තිෙබනවා. ඒ නිසා කවුරු ෙමොනවා කිව්වත් ෙම් රෙට් ජනතාව ඉන්ෙන් මහින්ද රාජපක්ෂ ජනාධිපතිතුමාෙග් නායකත්වය ඇති ෙම් ආණ්ඩුවත් එක්කයි. ඒක නවත්වන්න බැහැ. ෙමොකද, ෙහේතුව? රාජපක්ෂ නායකත්වය යටෙත් තමයි ෙම් රෙට් ජනතාවට ෙම් සහනය -ජීවත් වීෙම් නිදහස- ලබා දී තිෙබන්ෙන්. එෙහම නම් ඒ නායකත්වයට අපි ගරු කරනවා.
+
+අද දින ඉදිරිපත් කර ඇති ෙමම නිෙයෝග මගින් ජනතාවට, ෙද්ශීය කර්මාන්තයට සහන ලබා දීම ගැන ස්තුතිවන්ත ෙවමින් මෙග් කථාව අවසන් කරනවා.
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees) ගරු හර්ෂ ද සිල්වා මන්තීතුමා.
+
+[අ. භා. 1.11]
+
+ගරු (ආචාර්ය) හර්ෂ ද සිල්වා (மாண்ᾗமிகு (கலாநிதி) ஹர்ஷ த சில்வா) (The Hon. (Dr.) Harsha De Silva) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, මෙග් මංගල කථාව පැවැත්වීමට ඉඩ පස්තාව ලබා දීම පිළිබඳව මම ඔබතුමාට ස්තුතිවන්ත ෙවනවා. එෙසේම ඔබතුමාට සුබ පාර්ථනා කරමින් මම මෙග් කථාව ආරම්භ කරනවා.
+
+මම ෙම් ගරු සභාෙව් ෙමොකක් ද කරන්ෙන් කියලා ෙපොඩි විගහයක් කෙළොත් ෙහොඳයි කියා මම කල්පනා කළා. ආණ්ඩුෙව් ෙසේවකයන්ෙග් දරුවන් ෙදෙපොළක ෙගන් වැඩිමහල් දරුවා හැටියට එක්දහස් නවසිය හැත්තෑ ගණන්වල පාසල් යන කාලය මට ෙහොඳට මතකයි. මෙග් පියා ෙකොයි ෙව්ලාෙවත් ඉතිහාසය ගැන කථා කළා. මෙග් දිවංගත මව ගුරුවරියක්. අපි ෙපොඩි කාෙල් තමයි ඇය අසනීප වුෙණ්. ඒ කාලෙය් අවශɕ ෙබෙහත් තිබුෙණ් නැහැ. අෙප් නෑෙයෝ පිට රටින් ෙබෙහත් ෙගනාවා. නමුත් ඇයව ෙබ්රා ගන්න අපට බැරි වුණා. ඒ දවස්වල මට මතකයි, අපි කැන්ටිෙම් ෙපෝලිම්වල ඉන්නවා. ඒ chicken puffs, sausage rolls ගන්න ෙනොෙවයි, සුදු ෂර්ට් ෙදකට භූමිෙතල් ගඳ ගහන ෙරදි කෑල්ලයි, නිල් කලිසම් ෙරදි කෑල්ලයි ගන්න. මම හිතන්ෙන් ෂර්ට් ෙදකටයි, කලිසම් ෙදකටයි විතරයි ඒ කාෙල් අපට ration එෙකන් ෙරදි හම්බ වුෙණ්. ඉඳලා හිටලා අෙප් පියා ෙමොකක් හරි ආණ්ඩුෙව් වැඩකට පිට රට ගියාම සමහර විට සපත්තු කූට්ටමක් ෙග්නවා. ඇයි මම ෙම් පරණ කථා කියන්ෙන්? එදා අෙප් රෙට් තිබුණු ආර්ථික කළමනාකරණය නිසා අපි වාෙග් නිශ්චිත පඩියකින් ජීවත් වුණු සාමානɕ පවුල්වල ජනතාව මුහුණ දුන්න හාල් ෙපොත් යුගය පිළිබඳව මට සෘජු අත් දැකීමක් තිෙබනවා, ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි.
+
+ඒ එක්කම මට මතකයි, 1977 දී පැවැති ඡන්දෙයන් පස්ෙසේ එදා ගරු ෙජ්.ආර්. ජයවර්ධන මැතිතුමාෙග් ආණ්ඩුව ෙකොෙහොමද විවෘත ආර්ථිකයට මුල පිරුෙව් කියලා. ෙපෝලිම් නැති ෙවච්ච හැටි, භූමිෙතල් ගඳ තිබුණු ෂර්ට්, කලිසම් ෙරදි ෙවනුවට වැදගත් විධියට ඇඳ ෙගන පාෙර් බැහැලා යන්න පුළුවන් ෂර්ට්, කලිසම් ෙරදි ආපු හැටි, හාල් ෙපොත් ෙවනුවට අවශɕ කෑම බීම කෙඩන් ගන්න පුළුවන් ෙවච්ච හැටි මට මතකයි. මම හිතන්ෙන් ෙමතැන ඉන්න මෙග් වයෙසේ අෙනක් මන්තීවරුන්ටත් ෙම්වා මතක ඇති. ඒක අපිට අදහා ගන්න බැරි විපර්යාසයක් වුණා. නමුත් මම පසුව දැන ගත්තා, ෙමෙහම වුෙණ් අෙප් රෙට් ආර්ථික කළමනාකරණෙය් මහා විශාල ෙවනස් වීමක් ෙවච්ච නිසාය කියලා. ඒ ෙවනස් වීමත් එක්ක ජනතාවෙග් ජීවන තත්ත්වය ඉහළ ගියා කියලා අපි කවුරුත් පිළිගන්න ඕනෑ. ෙසෙරප්පු ෙවනුවට සපත්තු දැම්මා. මඤ්ෙඤොක්කායි, ලුණු මිරිසුයි ෙවනුවට බතුයි, පරිප්පුයි, මාළුයි කෑම ෙම්සයට ආවා. මට ෙහොඳට මතකයි, පරණ crank එෙකන් කරකවපු ඔස්ටින් එක ෙවනුවට ඩැට්සන් කාර් හමු වුණා. අපි ඒ කාෙල් සඳුදා අටහමාරට ෙර්ඩිෙයෝෙවන් ඇහුෙව් මුවන් පැලැස්ස. මුවන් පැලැස්ස ෙවනුවට අපට ෙටලිවිෂන් එෙකන් රුසියාෙව් Olympic Games බලන්න හැකි වුණා.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙම් සියලු කාරණා මෙග් ජීවිතයට බලපෑවා. ෙකොෙහොමද සාමානɕ ජනතාවෙග් ජීවන තත්ත්වය දියුණු කරන්ෙන්? ෙකොෙහොමද අෙප් රට දියුණු කරන්ෙන්? ලැබුණු ශිෂɕත්වවල ආධාරෙයන් මම ඇෙමරිකා එක්සත් ජනපදයට ගිහින් ආර්ථික විදɕාව හැදෑරුවා. මම ආර්ථික සංවර්ධනය පිළිබඳව ආචාර්ය උපාධියක් ලබා ගත්තා. අද අපි ෙගොඩක් දුරට ආර්ථික සංවර්ධනය ගැන කථා කරනවා. Financial liberalization, එෙහමත් නැත්නම් මූලɕ පතිසංස්කරණ හරහා ආර්ථික සංවර්ධන ෙව්ගය වැඩි කරන්ෙන් ෙකොෙහොමද කියලා මම ගැඹුරින් අධɕයනය කළා. ඒ ගැන PhD thesis එකක් ලිව්වා. ඊට පස්ෙසේ මම නැවත ලංකාවට පැමිණිලා රෙට් එවකට පධානතම සංවර්ධන බැංකුෙව් පධාන ආර්ථික උපෙද්ශක සහ
+
+2010 මැයි 06 341 342
+
+භාණ්ඩාගාරික ෙලස ෙසේවය කරලා ෙබොෙහෝ ෙද් ඉෙගන ගත්තා. මහා පරිමාණ කර්මාන්ත වාෙග්ම කුඩා වɕවසායකයින්ෙග් මූලɕමය පශ්න මම අධɕයනය කළා. ඔවුන්ට ඔවුන්ෙග් වɕාපාර කර ෙගන යාමට අවශɕ මූලɕමය පහසුකම් හැකි තාක් දුරට ඔවුන්ට ලබා ෙදන්න කටයුතු කළා. ඉන් අනතුරුව නිෙයෝජɕ කාරක සභාපතිතුමනි, උපාධිධාරින් පහෙළොවක්, විස්සක් සමඟ රැකියා සියයකට වඩා උත්පාදනය කරමින් අපි පර්ෙය්ෂණ වɕාපාරයක් ආරම්භ කළා. පසුව එය ජාතɕන්තර සමාගමකට ආෙද්ශ කරවීමත් සමඟ මම තරුණ විෙය්දීම එදිෙනදා ජීවත් වීම සඳහා රැකියාවක් කරන්නට තිබූ අවශɕතාෙවන් මිදුණා. ඉන් අනතුරුව මම දිගින් දිගටම ආර්ථික සංවර්ධනය පිළිබඳව උපෙද්ශකවරයකු හැටියට ජාතɕන්තරව වැඩ කරමින් ෙබොෙහෝ ෙද් ඉෙගන ගත්තා. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, මම වසර දහයකට අධික කාලයක් ෙම් රෙට් ආර්ථික කළමනාකරණය දිහා බලා ෙගන හිටියා. මම කිසි ෙදයක් කථා කෙළේ නැහැ. මම අධɕයනය කළා ෙකොෙහොමද අපට වඩා පිටිපස්ෙසන් හිටපු රටවල් ශීඝෙයන් අපිව අභිභවා ඉදිරියට යන්ෙන් කියලා. මම දැක්කා, එදා 1977 දී ගරු ෙජ්.ආර්. ජයවර්ධන ජනාධිපතිතුමා පටන් ගත්ත ඒ ආර්ථික සංවර්ධන ගමන දියාරු ෙවච්ච හැටි. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ඒ ගත්ත ගැම්ම ඉස්සරහට ෙගනි යන්න අපට බැරි වුණා. යුද්ධය තිබුණු බව ඇත්ත. නමුත් සියලුම ආර්ථික පසු බෑම් අපට යුද්ධයට බැර කරන්නට බැහැ. යුද්ධය තිෙබන අතෙර් ආර්ථිකය මීට වඩා සංවර්ධනය කර ගන්නට අපට හැකියාවක් තිබුණා. නමුත් ඒක සිද්ධ වුෙණ් නැහැ. මීට අවුරුදු පහකට පමණ කලින් මා කල්පනා කළා, ෙම් ගැන ඍජුව මා කථා කරනවාය කියා. ආර්ථික විදɕාව පිළිබඳ මෙග් දැනීම, රජෙය් ෙසේවක මෙග් ෙදමව්පියන්ෙග් පසු බිම සහ මෙග් අත් දැකීම් උපෙයෝගී කර ෙගන මා ආර්ථික කළමනාකරණය පිළිබඳ පසිද්ධ සංවාදයකට එළඹුණා. යුද පසු බිම තුළ මා විෙව්චනය එල්ල කෙළේ ඉතාමත් පෙව්ශෙමන්. ෙපොඩි ෙපොඩි තර්ජන ගර්ජන ආවා; නැත්ෙත් නැහැ. ඒත් මා මාධɕ තුළින්, විද්වත් හමු තුළින් පසිද්ධ සංවාදය දිගටම ඉදිරියට අරෙගන ගියා. මෑත කාලෙය්දී මා දුප්පත් ජනතාව ෙවනුෙවන් හඬක් නැඟුවා. ඔවුන් ෙවනුෙවන් නැඟී සිටියා. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, කවුරු ෙහෝ කියන්නට පුළුවන්, "ෙමතුමාව කිසිම පා ගමනක, එෙහමත් නැත්නම් ස්ටයික් එකක, ස්ෙට්ජ් එකක දැකලා නැහැ" කියා. සම්පූර්ණ ඇත්ත. මා කෙළේ ෙම් රෙට් ආර්ථික කළමනාකරණෙය් තිෙබන දුර්වලතා ගැන ෙපොෙතන්, පත්තරෙයන්, ෙටලිවිෂන් එෙකන් තාක්ෂණිකව ඉදිරිපත් කිරීමයි. ආර්ථික කළමනාකරණෙය් ෙහොඳ ෙදය ගැනත් කථා කළා. ෙම් රෙට් උද්ධමනය ඉහ වහා යන ෙකොට මා දැඩි ෙලස මහ බැංකුව විෙව්චනය කළා. ඔවුන්ෙග් මූලɕ පතිපත්ති දුර්වලකම් නිසා, අප සාමානɕ භාෂාෙවන් කියනවා නම් සල්ලි අච්චු ගැසීම නිසා බඩු මිල ශීඝෙයන් ඉහළ යාම පිළිබඳව මා දිගින් දිගටම කථා කළා. එවිට සමහරු මට ෙද්ශ ෙදෝහියාය කිව්වා. පත්තරවලින් මඩ ගැසුවා. නමුත් මා සහ තවත් මා වාෙග් අය විෙව්චන ඉදිරිපත් කළා. අවසානෙය්දී මහ බැංකුව පිළිගත්තා ෙමතැන තර්කයක් තිෙබනවාය කියා. උද්ධමනය සියයට 29.9 දක්වා ඉහළ ගිය ෙවලාෙව් 2008 මහ බැංකුව ඒ උද්ධමන මාපකය විසි කර දමා අලුත් එකක් පටන් ගත්තා. ෙකෙසේ ෙවතත් ෙම් උද්ධමනය දැන් සියයට 6 දක්වා අඩු වී ති ෙබනවා. මා ෙපෞද්ගලිකව ඒ ගැන සතුටු ෙවනවා. දිගින් දිගටම මූලɕ විනයක් තබා ගනීවිය කියා මා බලාෙපොෙරොත්තු වනවා. [බාධා කිරීමක්] ගරු වාසුෙද්ව නානායක්කාර මන්තීතුමනි, ෙමතැන තිබුෙණ් උද්ධමනයට ෙහේතුව ෙමොකක්ද කියන එකයි. අප කියනවා, “Too much money chasing too few goods” කියා. [බාධා කිරීමක්]. That is what I said and that is what I continue to say. There needs to be a certain expansion of money. There needs to be a certain amount of money that will ensure that the economy will carry on without friction. However, - [Interruption.] Exactly. It is the same principle. Inflation is always and everywhere a monetary phenomenon. This is what Milton
+
+Friedman said a long time back. But, it is the truth. When you print more money than that is required, what happens is, prices go up. So, now what has happened, Hon. Member, is that the Central Bank has actually stopped printing money beyond the necessary requirement and that is the reason why inflation has come down. That is precisely why I said that I hope the Central Bank will have this monetary discipline into the future. It is good that inflation has come down. Inflation is the greatest enemy of the society. What happens to the money that people have in their pockets? It becomes worthless. Now you need Rs. 2,000 to buy what we used to buy with Rs. 1,000. Also let me tell you, Mr. Deputy Chairman of Committees, that during the period of the previous Government - April, 2004 to March, 2010 - inflation increased by 97 per cent. If you look at the Colombo Consumer Price Index and compare the two figures for those two periods, you will see that inflation has increased by 97 per cent. You get the same figure if you cumulate inflation year over year. That is why I say, that inflation is the greatest enemy of society and it hurts the poor more than it hurts the rich. ෙමොකද? මා කියන්නම්, ගරු වාසුෙද්ව නානායක්කාර මන්තීතුමනි. මිනිෙහක් රුපියල් දහදාහක පඩියක් ගත්ෙතොත් ඒ පඩිෙයන් වැඩි හරියක්ම පාවිච්චි ෙවන්ෙන් එදිෙනදා අවශɕ ආහාර සහ අවශɕ භාණ්ඩ ගන්නටයි; අතɕවශɕ භාණ්ඩ ගන්නටයි. නමුත් අතɕවශɕ භාණ්ඩවල මිල ඉහළ යන ෙකොට ඒ ජනතාවට හැකියාවක් නැහැ, තමන්ට අවශɕ කරන පමාණයට භාණ්ඩ ගන්නට. නමුත් ෙපොෙහොසත් මිනිසුන්ට එෙහම ෙනොෙවයි. මාසයට රුපියල් මිලියනයක් හම්බ කරන එක් ෙකනා supermarket එකට ගිහින් අතɕවශɕ භාණ්ඩ ගන්න වැය කරන්ෙන් රුපියල් විසිදාහක් නැත්නම් තිස්දාහක් වන්නට පුළුවන්. එතෙකොට පතිශතයක් හැටියට ෙම් උද්ධමනය ෙපොෙහොසත් මිනිසුන්ට වඩා දුප්පත් මිනිසුන්ට වඩාත් බලපානවා. ඒක තමයි අප එදා ඉඳලා දුප්පත් මිනිසුන් ෙවනුෙවන් කථා කළාය කියා මා ෙම් ගරු සභාෙව් කිව්ෙව්.
+
+ෙසේවක අර්ථ සාධක අරමුදල සූරාකමින්, ෙපෞද්ගලික අංශෙය් පඩිෙයන් ජීවත් වන ලක්ෂ සංඛɕාත පිරිසකෙග් බඩට ගැසීම පිළිබඳව මා දිගින් දිගටම විෙව්චනයන් ඉදිරිපත් කළා. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ඒ අතරතුර තමයි එක්සත් ජාතික පක්ෂය මට ආරාධන ය කෙළේ, ආර්ථික විදɕාඥයකු හැටියට: වෘත්තිකයකු හැටියට; රටට ආදරය කරන පුරවැසියකු හැටියට එක්සත් ජාතික පක්ෂෙය් ජාතික ලැයිස්තුෙවන් මට ඉදිරිපත් වන්නය කියා. ෙම් තීරණය ගන්නට මට ෙබෙහවින් අපහසු වුණා. මෙග් දයාබර බිරිඳත්, දරු ෙදෙදනාත්, පියාත්, නැ ගණියත්, මෙග් කලɕාණ මිතයන් සහ වෘත්තීය සගයනුත් සමඟ මා දීර්ඝ ෙලස සාකච්ඡා ෙකොට තමයි අවසානෙය්දී ඒ සඳහා ඉදිරිපත් වීමට තීරණය කෙළේ. මට ඇත්ත ඒ හැටියටම ෙපන්වා දීම සම්බන්ධෙයන් මා ඔවුන්ට මෙග් හෘදයංගම ස්තුතිය පුද කරනවා. මෙග් ෙද්ශපාලන ජීවිතෙය් එක වැරදි අඩියක් ෙහෝ තැබුවෙහොත් ඔවුන්ෙගන් මට කිසිම සමාවක් නැති බවත් මා ෙහොඳින් දන්නවා. එක්සත් ජාතික ෙපරමුණට ලක්ෂ 24ක ඡන්ද පමාණයක් ලැබුණු නිසා ජාතික ලැයිස්තුෙවන් හත් ෙදෙනකු පත් කර ගැනීමට අවස්ථාව ලැබුණා. මට ද ජාතික ලැයිස්තුෙවන් අවස්ථාවක් ලබා දී මාව පත් කර ගැනීම පිළිබඳව මා එක්සත් ජාතික පක්ෂෙය් නායකත්වයට ෙබෙහවින්ම ස්තුතිවන්ත වනවා. ජාතික ලැයිස්තුව තුළින් වෘත්තිකයන්ට යම් කිසි අවස්ථාවක් ලබා දිය යුතුයි කියන ස්ථාවරෙය් සිටින සියලුම ෙදනාට පක්ෂ ෙභ්දයකින් ෙතොරව මා කෘතඥතාව පුද කරනවා. ආර්ථික විෙශේෂඥයකු හැටියට මෙග් දායකත්වය එක්සත් ජාතික පක්ෂය හරහා රට ෙවනුෙවන් ලබා දීමට මා ෙපොෙරොන්දු වනවා.
+
+පාර්ලිෙම්න්තුව 343 344
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, අද අපි ආනයන සහ අපනයන (පාලන) පනත යටෙත් නිෙයෝගයන් තුනක් සම්බන්ධෙයන් විවාද කරනවා. නමුත් රජය ෙම් නිෙයෝගයන් පිළිබඳව යම් පැහැදිලි කිරීමක් කළා නම් තමයි ෙම් සභාෙව් ඒ පිළිබඳව හරවත් විවාදයක් කර ෙගන යන්න හැකි වන්ෙන්. නමුත් එෙසේ ෙනොකිරීම නිසා පශ්න රාශියක් පැන නැඟිලා තිෙබනවා. ආනයන සහ අපනයන (පාලන) පනත යටෙත් ඇති ෙම් නිෙයෝගයන් වැදගත් බවට කිසිම සැකයක් නැහැ. They are even trying to remove the ban on 38 items that was banned by a global convention. So, there has to be some reason as to why they want to let these 38 items come into this country. නමුත් ෙම් නිෙයෝගයන්වල අෙප්ක්ෂිත පතිඵලය තීරණය වන්ෙන් ෙම් රෙට් සමස්ත ආර්ථික කළමනාකරණය මතයි. එෙසේ නම් අද අෙප් රෙට් ආර්ථිකෙය් සතɕ තත්ත්වය අවෙබෝධ කර ගැනීම ෙයෝගɕ යැයි කියා මා විශ්වාස කරනවා. ජාතික රූපවාහිනිෙය් හා "දිනමිණ" පතෙය් තිෙබන සුරංගනා කථාවලට අමතරව බුද්ධිමත් ෙලස අපි ආර්ථිකය විගහ කළ යුතුයි, ගරු නිෙයෝජය කාරක සභාපතිතුමනි. මීට පථමෙයන් ගරු ජී.එල්. පීරිස් ඇමතිතුමා ආර්ථිකය ගැන කරපු විගහයත් අපි සලකා බැලිය යුතුයි.
+
+අෙප් රට අද ඉතාමත් වැදගත් සන්ධිස්ථානයකට ඇවිල්ලායි තිෙබන්ෙන්. අවුරුදු 26ක් තිස්ෙසේ පැවැතුණු කුරිරු යුද්ධය අවසන් කිරීම පිළිබඳව මුළු රටම අතිගරු ජනාධිපතිතුමාටත්, ෙජනරාල් සරත් ෙෆොන්ෙසේකා ඇතුළු අෙනකුත් හමුදාපතිවරුන්ටත්, ජීවිත පරිතɕාග කළ, තුවාල ලැබූ අනිකුත් රණ විරුවන්ට සහ ආරක්ෂක ෙල්කම්තුමා ඇතුළු සියලුම නිලධාරින්ටත් සදා ණයගැතියි. දැන් අපට තිෙබන පශ්නය ෙවනත් එකක්. එල්ටීටීඊ එකත් එක්ක කරපු යුද්ධය ඉවරයි. දැන් අපට අවශɕ ෙවලා තිෙබන්ෙන් ආර්ථික යුද්ධය දිනන්නයි. ෙම් ආර්ථික යුද්ධය ජය ගැනීම ෙකොටි තස්තවාදීන් එක්ක කරපු යුද්ධයටත් වඩා අමාරු වන බව මට මුලින්ම කියන්න සිද්ධ වනවා. සියල්ලටම පථමෙයන් ෙම් ආර්ථික යුද්ධෙය් සතුරා කවුද කියා අප හඳුනා ගත යුතු යි. හැම දාම කියනවා, අපි ෙම් ආර්ථික යුද්ධය දිනන්න ඕනෑ කියලා. We need to win this economic war. Who are we fighting against? Who is the enemy? කවුද, ආර්ථික යුද්ධෙය් සතුරා? ෙලෝක බැංකුව ද? යුෙරෝපා සංගමය ද? ඇෙමරිකාව ද? එෙහමත් නැත්නම් අර සමහරු කියන ආර්ථික ඝාතකෙයෝ ද? ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙම් සතුරා අප විසින්ම නිර්මාණය කරන දුර්වල ආර්ථික කළමනාකරණයයි. එෙසේ නම් ආර්ථික යුද්ධය ජය ගත හැක්ෙක් දුර්වල ආර්ථික කළමනාකරණය පරදවා සාර්ථක ආර්ථික කළමනාකරණයක් ඇති කර ගැනීෙමන් පමණයි. ෙමම කර්තවɕ ෙලෙහසි පහසු ෙදයක් ෙනොෙවයි; තිපුද්ගල කමිටුවකට කළ හැකි ෙදයක් ෙනොෙවයි. ආර්ථික යුද්ධය ජය ගැනීමට අවශɕ පධානතම සහෙයෝගය ලැෙබන්ෙන් රාජɕ මූලɕ පිළිබඳ පූර්ණ වග කීමක් ඇති ෙම් පාර්ලිෙම්න්තුවටයි. පාර්ලිෙම්න්තුව අහකට දාලා ආර්ථික යුද්ධය කරනවා කියන්ෙන් යුද හමුදාව නැතුව එල්ටීටීඊ සංවිධානය එක්ක යුද්ධ කරනවා වාෙග් වැඩක්.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, 2009 වර්ෂෙය් ෙනොවැම්බර් 03 වන දා එවකට මුදල් නිෙයෝජɕ ඇමති ගරු සරත් අමුණුගම මැතිතුමා විසින් අතුරු සම්මත ගිණුමක් පාර්ලිෙම්න්තුවට ඉදිරිපත් කරලා, එය ෙනොවැම්බර් මාසෙය් 05 වන දා සම්මත කර ගත් බව අපි දන්නවා. ඒ හැන්සාඩ් වාර්තාව මා කිෙයව්වා. කියවන ෙකොට මට ෙත්රුම් ගියා, එදින පාර්ලිෙම්න්තුෙව් මහා කාල ෙගෝට්ටියක් ඇති ෙවච්ච බව. ෙමොකද, ආණ්ඩුකම වɕවස්ථාෙව් 148 වන වගන්තිය පකාර පාර්ලිෙම්න්තුවට ලබා දී තිෙබන රාජɕ මූලɕ පිළිබඳ පූර්ණ පාලනය අවපමාණ වීමක් ෙලස විපක්ෂය ෙම් අතුරු සම්මත ගිණුම ගැන කරුණු දක්වපු නිසා. මා පිළිගන්නවා, ඊට පථම අතුරු සම්මත ගිණුම් 12ක් පාර්ලිෙම්න්තුෙව් සම්මත වූ බව. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, නමුත් 2003 අංක 03 දරන මූලɕ කළමනාකරණ
+
+(වගකීම) පනතට අනුව පාර්ලිෙම්න්තුවට රාජɕ මූලɕ පිළිබඳ වɕවස්ථාෙවන් ලබා දුන් බලය තවත් තහවුරු වන බව අපි දන්නවා. ඒ අවස්ථාෙව් දී තමයි ෙම් අතුරු සම්මත ගිණුම සම්මත වුෙණ්.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, එදා පාර්ලිෙම්න්තුව අවපමාණ කළා කියලා ෙචෝදනා කළා නම් අද තත්ත්වය ඊට වඩා ෙබොෙහොම බරපතළයි. ෙමොකද, 2009 ෙනොවැම්බර් 5 වැනි දා සම්මත කරපු රුපියල් ෙකෝටි 50,340ක මුදල, ඒ ෙවන් කරපු මාස හතර ෙගෙවන්නත් කලින් ඉවර ෙවලා. රුපියල් ෙකෝටි 50,340ක් කියන්ෙන් මහා විශාල මුදල් පමාණයක්. ෙමොනවාටද ෙම් මුදල් ෙවන් කෙළේ? ෙපොලියට අමතරව පුනරාවර්තන වියදම රුපියල් ෙකෝටි 19,750යි. මූලධන වියදම රුපියල් ෙකෝටි 15,890යි. අත්තිකාරම් ෙගවීම රුපියල් ෙකෝටි 620යි. ඒවාෙය් එකතුව රුපියල් ෙකෝටි 36,260යි. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, මීට අමතරව විෙශේෂ නීතිය යටෙත් ණය ෙසේවාකරණයට රුපියල් ෙකෝටි 27,200ක් ෙවනම ෙවන් කරලා තිබුණා.
+
+ෙම් ගරු සභාෙව් අවධානය මා ඊ ළඟ කාරණය ෙකෙරහි ෙයොමු කරන්න කැමැතියි. ෙම් අතුරු සම්මත ගිණුම කියාත්මක වන 2010 ජනවාරි මාසෙය් සිට අෙපේල් මාසෙය් අග දක්වා වන මාස හතරක කාලය දක්වා රජෙය් ආදායම ඇස්තෙම්න්තු කරලා තිෙබන්ෙන් රුපියල් ෙකෝටි 23,600ක් පමණයි. ගරු වාසුෙද්ව නානායක්කාර මන්තීතුමනි, ඒ කියන්ෙන් ණය ෙගවීම් සඳහා පමණක් ආදායම ෙමන් සියයට 116ක් අවශɕ ෙවලා තිෙබනවා, 2010 ජනවාරි මාසෙය් ඉඳලා අෙපේල් මාසය දක්වා පමණක්. ආදායම වාෙග් සියයට 116ක්. ණය ෙගවන්න ආදායම මදි නම් තව තවත් ණය ගන්න ෙවන එක පිළිබඳ විවාදයක් නැහැ. එතෙකොට ෙකොෙහොමද ආණ්ඩුව අෙනකුත් ෙසේවා සපයන්ෙන්? ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, තත්ත්වය ෙමෙසේ තිබියදී තමයි අතිගරු ජනාධිපතිතුමාෙග් මුදල් පිළිබඳ නිෙයෝගය ෙපෙර්දා ෙම් පාර්ලිෙම්න්තුෙව් සභාගත කෙළේ. එයින් කියැ වුෙණ් ෙමොකක්ද? එයින් කියැ වුෙණ් 2009 ෙනොවැම්බර් මාසෙය් ඉදිරිපත් කළ අතුරු සම්මත ගිණුමට අමතරව, - දැන් ඒක ඉවර නිසා - අෙපේල් 22 වන දා සිට ජූලි 22 වන දා දක්වා තවත් රුපියල් ෙකෝටි 44,015ක් වියදම් සඳහා ඒකාබද්ධ අරමුදෙලන් මුදා හැරිය යුතු බවයි.
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர்) (Mr. Deputy Chairman of Committees)
+
+Hon. Member, you have two more minutes.
+
+ගරු (ආචාර්ය) හර්ෂ ද සිල්වා (மாண்ᾗமிகு (கலாநிதி) ஹர்ஷ த சில்வா) (The Hon. (Dr.) Harsha De Silva) 2009 අතුරු සම්මත ගිණුෙමන් පාර්ලිෙම්න්තුව අවපමාණ වුණා නම්, ෙමම නිෙයෝගෙයන් පාර්ලිෙම්න්තුව සම්පූර්ණෙයන්ම බාල්දු වුණා. ඒ බව අපි කවුරුත් පිළිගන්නට ඕනෑ. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙමෙසේ පාර්ලිෙම්න්තුවට පරිබාහිරව රෙට් ආර්ථිකය කළමනාකරණය දිගින් දිගටම සිදු වීම ඉතාමත්ම භයානක කාරණයක්. ආර්ථිකය පිළිබඳව සතɕ තත්ත්වය පාර්ලිෙම්න්තුව පවා ෙනොදන්නා බැවින් ෙතොරතුරු දැන ගැනීමට තිෙබන අයිතිවාසිකම ජනතාවෙගන් ගිලිහී යනවා. විනිවිදභාවයක් නැති මූලɕ කළමනාකර ණය ඉතාමත් අන්තරායදායකයි. මා හිතන්ෙන් ෙම් ගරු සභාෙව් සියලු ෙදනාම දන්නවා ඇති, අද ගීසිෙය් ඇති ෙවලා තිෙබන තත්ත්වය. ගීසිය මහා විශාල ආර්ථික අර්බුදයකට පත් ෙවලා. ඒ අයට ඔවුන්ෙග් ණය ෙගවා ගන්න බැරි ෙවලා, අය වැය පරතරය සියයට 15ක් ෙවලා. යුෙරෝපා සංගමයත්, ජාතɕන්තර මූලɕ අරමුදලත් ඔවුන්ට හදිසි උදවු ලබා ෙදනවා. දැන් ආරංචි වන විධියට ගීසිෙය් පාර්ලිෙම්න්තුව ඔවුන්ෙග් රාජɕ මූලɕ තත්ත්වය පිළිබඳ හරියට දැන ෙගන ඉඳලා නැහැ. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, මා ෙම් ගීසිෙය් කථාව කිව්ෙව්
+
+[ගරු (ආචාර්ය) හර්ෂ ද සිල්වා]
+
+2010 මැයි 06 345 346
+
+ලංකාෙව්ත් එෙහම තත්ත්වයක් නිර්මාණය වන්නට ඉඩ තිෙබන නිසායි. තුන් හතර ෙදෙනකු හැරුණු විට ආර්ථිකය පිළිබඳව සතɕය කී ෙදෙනක් දන්නවාද? රජෙය් එක්තරා ෙකොට්ඨාසයක් පාර්ලිෙම්න්තුවට පරිබාහිරව රජෙය් මූලɕ කළමනාකරණය කරනවා; වියදම් කරනවා; ණය ගන්නවා; මුදල් අච්චු ගහනවා. පාර්ලිෙම්න්තුවට තිෙබන බලතල විහිළුවක් ෙවලා.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, අපි ඊෙය් කථා කළා, 2003 අංක 3 දරන මූලɕ කළමනාකරණ (වගකීම) පනත යටෙත් සභාගත කළ යුතුව තිබූ පූර්ව මැතිවරණ අය වැය තත්ත්වය පිළිබඳ වාර්තාව සම්බන්ධෙයන්. එහි සඳහන් වනවා, 2009 රජෙය් මුළු ආදායම රුපියල් ෙකෝටි 70,200යි කියලා. දැන් හැම ෙදනාම ෙම් රුපියල් ෙකෝටි 70,200 ගැන කියනවා. ෙම්ක සභාගත කෙළේ නැති වුණත් අපි internet එෙකන් download කරලා බලලා, මැතිවරණය කාලෙය්දී ෙම් ගැන කථා කළා. නමුත් ආණ්ඩුෙව් ණය ෙසේවාකරණය පමණක් රුපියල් ෙකෝටි 82,400යි. ගරු ඇමති ෙකනකුට මාසයකට රුපියල් 70,000ක විතර පඩියක් හම්බ වනවා ඇති කියලා මා හිතනවා, පඩියයි, ෙගවීම් ඔක්ෙකොමත් එක්ක. එතෙකොට -[බාධා කිරීමක්] දන්ෙන් නැහැ. ෙමොකක්ද මිථɕාව?
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) අපි ගන්ෙන් මන්තීවරයකුෙග් දීමනාව.
+
+ගරු (ආචාර්ය) හර්ෂ ද සිල්වා (மாண்ᾗமிகு (கலாநிதி) ஹர்ஷ த சில்வா) (The Hon. (Dr.) Harsha De Silva) හරි. අපි කියමු, රුපියල් 50,000යි කියලා. පශ්නයක් නැහැ. මාසයකට රුපියල් 50,000ක් ගන්නවා කියමු ෙකෝ. රුපියල් 65,000ක credit card බිලක් ෙගවන්න තිෙබනවා නම් ෙකොෙහොමද කරන්ෙන්?
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) ඔබතුමාෙග් මංගල කථාවට මා බාධා කරන්ෙන් නැහැ. ඔබතුමාෙග් අදහස්වලට මා එකඟ ෙනොවුණත් යම් කිසි අදහසක් ඉදිරිපත් කළ හැකි දක්ෂෙයක් හැටියට මා ගරු කරනවා. නමුත් පාර්ලිෙම්න්තුෙව් මන්තීවරුන්ට විතරක් අපහාස කරන්න එපා. ඇත්ත දන්ෙන් නැතුව අපහාස කරන්න එපා. ඒකයි මා ඉල්ලා සිටින එකම ෙද්. තමුන්නාන්ෙසේලා අපට එල්ල කරන ෙචෝදනාව පිළිබඳව අපි මීට කලිනුත් පැහැදිලි කරලා තිෙබනවා, අපි ගන්න මන්තීවරෙයකුෙග් දීමනාව ෙමච්චරයි කියලා. ඔබතුමන්ලාට බලන්න පුළුවන්.
+
+ගරු (ආචාර්ය) හර්ෂ ද සිල්වා (மாண்ᾗமிகு (கலாநிதி) ஹர்ஷ த சில்வா) (The Hon. (Dr.) Harsha De Silva) සමා වන්න, ගරු ඇමතිතුමා.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) නිකම් ෙබොරුවට ෙචෝදනා කරන්න එපා. ඔබතුමාෙග් විපක්ෂ නායකතුමාට සියලු දීමනා අපි ෙදනවා.
+
+ගරු (ආචාර්ය) හර්ෂ ද සිල්වා (மாண்ᾗமிகு (கலாநிதி) ஹர்ஷ த சில்வா) (The Hon. (Dr.) Harsha De Silva) දීමනා ගැන පශ්නයක් නැහැ.
+
+ගරු දිෙන්ෂ් ගුණවර්ධන මහතා (மாண்ᾗமிகு திேனஷ் குணவர்தன) (The Hon. Dinesh Gunawardena) එතුමා පතික්ෙෂේප කරනවාද? නැහැ. ඔබතුමා එතුමාව විෙව්චනය කරනවාද? නැහැ. එම නිසා එකම මිනුම් දණ්ෙඩන් හැම ෙදනාටම සලකන්න.
+
+ගරු (ආචාර්ය) හර්ෂ ද සිල්වා (மாண்ᾗமிகு (கலாநிதி) ஹர்ஷ த சில்வா) (The Hon. (Dr.) Harsha De Silva) හරි. අපි කියමු, මට රුපියල් 50,000ක් හම්බ වනවා කියලා. නමුත් මාසය අන්තිමට මට credit card බිලක් එනවා, රුපියල් 65,000ක. මම ෙකොෙහොමද ෙගවන්ෙන්?
+
+ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) භාගයක් ෙගවලා, ඊ ළඟ මාසෙය් ඉතිරි ෙකොටස ෙගවන්න. ගරු (ආචාර්ය) හර්ෂ ද සිල්වා (மாண்ᾗமிகு (கலாநிதி) ஹர்ஷ த சில்வா) (The Hon. (Dr.) Harsha De Silva) ඒක තමයි පශ්නය. ඒක තමයි මා කියන්ෙන්. ෙම් රටට ෙවලා තිෙබන්ෙන්ත් ඒකයි. ෙම් රට ඒ වාෙග් ණය උගුලක හිර ෙවමින් පවතිනවා.
+
+ගරු මහින්දානන්ද අලුත්ගමෙග් මහතා (மாண்ᾗமிகு மஹிந்தானந்த அᾦத்கமேக) (The Hon. Mahindananda Aluthgamage) යාළුවා නිසා ෙමොකුත් කියන්න බැහැ. ගරු (ආචාර්ය) හර්ෂ ද සිල්වා (மாண்ᾗமிகு (கலாநிதி) ஹர்ஷ த சில்வா) (The Hon. (Dr.) Harsha De Silva) ගරු ඇමතිතුමා, මම ෙම් ඇත්ත කියන්ෙන්. ෙපොඩ්ඩක් අහ ෙගන ඉන්න. අපි පස්ෙසේ ඊ ළඟ -
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர்) (Mr. Deputy Chairman of Committees)
+
+Hon. Member, your time is over. Please wind up. ගරු (ආචාර්ය) හර්ෂ ද සිල්වා (மாண்ᾗமிகு (கலாநிதி) ஹர்ஷ த சில்வா) (The Hon. (Dr.) Harsha De Silva)
+
+Okay, I will wind up. I was going to talk about some other things as well but unfortunately I am running out of time.
+
+The last thing I want to say is this. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, අෙප් රට නිල් ලංකාවක්වත්, ෙකොළ ලංකාවක්වත්, රතු ලංකාවක්වත් ෙනොෙවයි. අෙප් රට ශී ලංකාව.
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees) I am sorry, Hon. Member, your time is over. ගරු (ආචාර්ය) හර්ෂ ද සිල්වා (மாண்ᾗமிகு (கலாநிதி) ஹர்ஷ த சில்வா) (The Hon. (Dr.) Harsha De Silva) මම නවත්වනවා. අපි සියලු ෙදනා ශී ලංකා මාතාවෙග් දරුවන් බැවින් ශී ලංකාෙව් ආර්ථික යුද්ධය ජයගහණය කිරීෙම් වගකීම අපි සියලු ෙදනාටම භාරයි. ෙබොෙහොම ස්තුතියි.
+
+පාර්ලිෙම්න්තුව 347 348
+
+[අ. භා. 1.39] ගරු උදිත් ෙලොකුබණ්ඩාර මහතා (மாண்ᾗமிகு உதித் ெலாக்குபண்டார) (The Hon. Udith Lokubandara) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, පළමුවන වරට ෙම් ගරු සභාෙව් වචන කීපයක් කථා කරන්න මට අවස්ථාව ලැබී තිෙබනවා. විෙශේෂෙයන්ම ආර්ථිකය පිළිබඳව ෙබොෙහෝ ෙද්වල් කථා වුණු අවස්ථාවක මෙග් අදහස් පකාශ කරන්න ලැබීම, මමත්, මාව ෙම් තත්ත්වයට පත් කළ බදුල්ල දිස්තික්කෙය් මෙග් ජනතාවත් ලැබූ ජයගහණයක් හැටියට මා හිතනවා. විෙශේෂෙයන්ම ශී ලංකා නිදහස් පක්ෂය ෙවනුෙවන් හපුතෙල් ආසනය නිෙයෝජනය කරමින්, 1977 පටන් එක්සත් ජාතික පක්ෂෙය් බලෙකොටුවක් වූ හපුතෙල් ආසනය අවුරුදු 32කට පසුව ශී ලංකා නිදහස් පක්ෂයට ජයගහණය කර දී ෙම් පාර්ලිෙම්න්තුව නිෙයෝජනය කරන්න ලැබීම තවත් භාගɕයක් හැටියටයි මා සලකන්ෙන්. විෙශේෂෙයන්ම කියනවා නම් අද අපි සිටින්ෙන් නව ශී ලංකාවක් ඉදිරිපිටයි. අසූව දසකෙය් උපන් දරුවන් හැටියට අපට පුරුදු, ඒ වාෙග්ම අපි දැක්ෙක්, හදිසි නීති ෙරගුලාසිවලට යටත්ව උතුෙර්ත්, දකුෙණ්ත් ෙදෙක්ම යුද්ධයකට මුහුණ දුන් ශී ලංකාවක්. එවැනි තත්ත්වයක් යටෙත්යි අපි ෙලොකුමහත් වුෙණ්. දකුෙණ් ෙජ්වීපී භීෂණයත්, උතුරුකරෙය් එල්ටීටීඊ භීෂණයත් ෙදෙකන්ම අෙප් රට ගිනි ජාලාවක් ෙවලා තිබුණු එක්තරා කාලයක් තිබුණා මට මතකයි. එවැනි කාලයක් අප පසු කළා. දැන් ඒ යුගය අවසන්. ඒ බිහිසුණු අතීතය අමතක කරලා අපට දැන් ඉදිරියට යන්න අවස්ථාව ලැබී තිෙබනවා.
+
+විෙශේෂෙයන්ම ෙම් හත්වන පාර්ලිෙම්න්තුව තරුණයන්ෙගන් පිරී ගිය පාර්ලිෙම්න්තුවක්. තරුණ පාර්ලිෙම්න්තුවක් තුළින් අනාගතය ගැන විශාල බලාෙපොෙරොත්තු තියලා තමයි ජනතාව අපව පාර්ලිෙම්න්තු මන්තීවරුන් හැටියට පත් කරලා තිෙබන්ෙන්. නැවත වතාවක් ෙම් රට කලින් පැවති තත්ත්වයට ඇද ෙගන යන්න ෙනොෙවයි නව පාර්ලිෙම්න්තුව අතිවිශාල බහුතරයකින් පත් කර එවා තිෙබන්ෙන්. ගරු මහින්ද රාජපක්ෂ මැතිතුමාෙග් මහින්ද චින්තනෙය් ඉදිරි දැක්ම හරිය කියා ෙම් රෙට් ජනතාව පිළිගත්ෙත් යළිත් වතාවක් තිබුණු තත්ත්වයට ෙම් රට කවදාවත් යන්න ඕනෑ නැහැ කියන විශ්වාසය උඩයි.
+
+ජනතා පරමාධිපතɕය තමයි පාර්ලිෙම්න්තුෙව් තිෙබන්ෙන්. ෙම් රෙට් ජනතාවෙග් අවශɕතාවන් තමයි පාර්ලිෙම්න්තුෙව් සංයුතිෙයන් දැක්ෙවන්ෙන්. එම නිසා ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙම් අතිවිශාල බහුතරය දැක්කාම අප අවිවාදෙයන් පිළිගන්න ඕනෑ ෙදයක් තමයි, ජනතාවෙගන් අතිවිශාල බහුතරය මහින්ද චින්තනය පිළිගන්නා බව ෙමතැනදී පකාශ ෙවලා තිෙබනවාය කියන එක. අෙප් ෙපෞද්ගලික තරහ මරහකම් ෙකොයි විධියට තිබුණත්, සිත් අමනාපකම් ෙකොයි විධියට තිබුණත් පජාතන්තවාදී රටක් හැටියට අෙප් රෙට් ජනතාවෙග් පජාතන්තවාදී කැමැත්ත නිසා තමයි ෙම් නව පාර්ලිෙම්න්තුෙව් ආණ්ඩු පක්ෂෙය් මන්තීවරුන් හැටියට අපටත් විපක්ෂය පැත්ෙත් ඉඳ ගන්න තරම් බහුතරයක් අපට ලැබී තිෙබන්ෙන්.
+
+විෙශේෂෙයන් බදු පනත් ගැන කතා කරන ෙම් අවස්ථාෙව්දී මා යමක් කියන්න ඕනෑ. ගරු ජනාධිපති මහින්ද රාජපක්ෂ මැතිතුමාෙග් නායකත්වය යටෙත් අපෙග් සන්ධාන ආණ්ඩුෙව් ආර්ථික කියා කලාපය අනුව හැම ෙවලාෙව්ම තිබුෙණ් ෙද්ශීය චින්තනය අගය කරන ආර්ථික කියා කලාපයක්. කන්ද උඩ රට මන්තීවරයකු හැටියට මා යමක් කියන්න ඕනෑ. විශාල වශෙයන් එළවලු වගා කරන සහ අෙප් රෙට් ආර්ථිකයට විශාල දායකත්වයක් ෙදන ෙත් කර්මාන්තය තිෙබන හපුතෙල් වැනි ආසනයක මන්තීවරයකු හැටියට මම කියන්න කැමැතියි, ෙම් ආණ්ඩුව මීට ෙපර තිබුණු ෙවනත් කිසිදු ආණ්ඩුවකට වඩා ෙද්ශීය කර්මාන්තකරුවන් සහ විෙශේෂෙයන්ම ෙද්ශීය ෙගොවීන් පිළිබඳව විෙශේෂ අවධානයක් ෙයොමු කරන බව. ඒ අනුව අපි ෙම් රජය ෙකෙරහි - අපි ඇත්තටම ෙගොවි ජනතාව හැටියට - අෙප් හෘදයාංගම ආදරය පළ කරනවා. ෙමොකද, අෙප් ෙගොවියා ගැන කිඹුල් කඳුළු ෙහළා පිට රට ෙගොවියා ගැන ආදරෙයන් කතා කරපු
+
+පාර්ලිෙම්න්තුවක් ෙම් රෙට් තිබුණා. එවැනි යුගයක් තිබුණා. අෙප් අප්පච්චිලාත් ඒ පාර්ලි ෙම්න්තුවල ඉඳ ෙගන හිටියා. උඩු ගං බලා පිහිනන මන්තීවරුන් හැටියට අෙප් අප්පච්චිලාත් ඒ ආණ්ඩුවල හිටියා. නමුත් අද ඒ තත්ත්වය ෙවනස් ෙවලා. අෙප් ෙද්ශීයත්වයට, අෙප් ෙද්ශීය කර්මාන්තකරුවාට, අෙප් ෙද්ශීය ෙගොවියාට තමන්ෙග් ෙදපයින් නැඟී හිටින්න අත ෙදන, රුකුල් ෙදන ආණ්ඩුවක් යටෙත් අපට ශක්තිමත් නායකත්වයක් යටෙත් ෙම් රට ඉස්සරහට ෙගනි යන්න අද අවස්ථාව ලැබී තිෙබනවා. ෙම් නිෙයෝග ටික ගැන එක අතකින් මම නම් ෙපෞද්ගලිකව සතුටු වනවා. අෙප් ෙගොවි ජනතාවට ඍජුව බලපාන අල වැනි ෙභෝගවලට බද්දක් ගහලා හරි අෙප් ෙගොවීන් රකින්න රජය විසින් ගන්නා කියාමාර්ග ගැන ෙගොවි ජනතාව නිෙයෝජනය කරන මන්තීවරයකු හැටියට මම ස්තුතිවන්ත වනවා.
+
+ඒ වාෙග්ම මම විෙශේෂෙයන් ෙම් කරුණත් කියන්න ඕනෑ. ආණ්ඩුව විෙව්චනය කරන එක අපි හැෙමෝම ෙලෙහසිෙයන් කරනවා. ෙමොකද, විෙව්චන එල්ල කිරීම ෙබොෙහොම ෙලෙහසියි. විෙව්චන එල්ල කිරීම ෙලෙහසි වුණාට පාෙයෝගිකව රජයක් කර ෙගන යන්න තිෙබන අභිෙයෝග ගැන කථා කරනවා ෙබොෙහොම අඩුයි. විෙශේෂෙයන්ම එක්සත් ජාතික පක්ෂය පමුඛ විපක්ෂය රජය ෙවත ෙචෝදනා එල්ල කරන විට ඔවුන් ටිකක් හිතට ගන්න ඕනෑ කරුණක් තිෙබනවා. මෙග් පියා සභානායක හැටියට සිටි කාලෙය් අවුරුදු ෙදෙකන් ඒ ෙගොල්ලන්ෙග් ආණ්ඩුව කඩා වැටුණා. ඒ, ආණ්ඩුව හරියට කර ෙගන යන්න බැරි වුණු නිසායි. ෙමොකද, ආණ්ඩු කරන එක ෙලෙහසි වැඩක් ෙනොෙවයි. හැම ෙදයක්ම බලන්න ඕනෑ. හැම පැත්තම බලන්න ඕනෑ. අපි කියනවා, සමතුලිතතාවක් ඇතිව ගමන් කරන්න ඕනෑය කියා. ෙමොකද, හැෙමෝම සතුටු කරන්න ආණ්ඩුවට සිද්ධ වනවා. විපක්ෂයට තිෙබන්ෙන් එක පැත්තක් සතුටු කරන්න විතරයි. නමුත් ආණ්ඩුවක් විසින් ඒ සියල්ලම මනා කළමනාකරණයක් ඇතිව කරන්න ඕනෑ. අවුරුදු තිස් ගණනක් තිබුණු, අෙප් ජීවිත කාලයටත් වඩා දිගු කාලයක් තිබුණු යුද්ධය අවසන් කර, ඒ යුද්ධෙය් රුදුරුතාව නැති ෙකොට, අදටත් කවුරු ෙමොනවා කිව්වත් සියයට 6කට වඩා වැඩි ආර්ථික වර්ධන ෙව්ගයකින් ෙම් රට ඉදිරියට ෙගන යන්න අප ෙග් ආණ්ඩුවට හැකි වී තිෙබනවා. ඒවා ගැන වැඩිය කථා කරන්න කට්ටිය ෙපලෙඹන්ෙන් නැහැ. දූපතක් හැටියට, මුහුදින් වට ෙවලා තිෙබන ලංකාව හැටියට අපි හැම දාම සුද්දා අපට තියලා ගිය වරායන් ටික විතරක් බදා ෙගන, ෙකොළඹට විතරක් ෙකොටු කර ගත්ත, ෙකොළඹ මූලɕ කර ගත්ත ආර්ථිකයක් රටක් හැටියට තියා ෙගන සිටියා. ඒක අප පිළිගත යුතු කාරණයක්. අපි අද ඒ බැමිවලින් කැඩිලා අද ආර්ථික වර්ධනය ගමට යන තත්ත්වයක් ඇති කර තිෙබනවා. අෙප් ගරු නායකතුමාෙග් - ගරු ජනාධිපතිතුමාෙග්- ගම හම්බන්ෙතොට වුණු එකට එතුමාට කරන්න ෙදයකුත් නැහැ; අපට කරන්න ෙදයකුත් නැහැ. අපි පිළිගන්න ඕනෑ ෙදයක් තමයි, ෙම් ෙලෝකෙය් තිෙබන ෙහොඳම නැව් ගමනාගමන මාර්ගයක තමයි හම්බන්ෙතොට පිහිටා තිෙබන්ෙන් කියන එක. ඒකට අෙප් ජනාධිපතිතුමාට කරන්න ෙදයක් නැහැ, එතුමා ඒ ගෙම් උපන්නාය කියා. එතුමා ෙවන ෙකොෙහේ හරි ඉපදිලා සිටියත් අපි වරාය දමන්ෙන් හම්බන්ෙතොට තමයි. අපි සතුටු වන්න ඕනෑ, අනාගතය ගැන දූරදර්ශීව හිතන නායකෙයක් අපට සිටීම ගැන. එතුමා ෙපෞද්ගලිකව ගමට වරායක් උස්සා ෙගන ගියා ෙනොෙවයි. රටට අවශɕ සංවර්ධනය ලැෙබන තැනට එතුමා ඒක අරෙගන ගිහින් තිෙබනවා. අප ලංකාව වෙට් හම්බන්ෙතොට වරාය පමණක් ෙනොෙවයි ඉදි වන්ෙන්. සමහර කට්ටිය හිතා ෙගන ඉන්ෙන් එච්චරයි කියලායි. ඇයි, ඒක ගැන විතරක් කථා කර නවත්වන්ෙන්?
+
+එම නිසා මට විෙශේෂෙයන් කියන්න තිෙබන්ෙන් ලංකාව පුරාම සිදු වන සංවර්ධනය පිළිබඳව කරුණාකර තමුන්නාන්ෙසේලා සියලු ෙදනාම අවධානය ෙයොමු කරන්න කියලායි. අද හම්බන්ෙතොට වරාය ෙගොඩ නැ ෙඟමින් තිෙබන අවස්ථාෙව් ලංකාව වෙට් තව වරායන් පහක් බිහි වනවා.
+
+ඒ වාෙග්ම අප කාටවත් අමතක කරන්න බැරි යුගයක් අපට තිබුණා. අපි උෙද්ට පැය 6ක් ලයිට් නැතිව උඩ බලා ෙගන හිටියා; රෑට තව පැය 6ක් ලයිට් කැපුවා. අද අෙප් ලංකාෙව් එවැනි
+
+2010 මැයි 06 349 350
+
+තත්ත්වයක් නැහැ. අද අපට විදුලිබල අර්බුදයක් නැහැ. කවදාවත් හදන්න බැහැ කිව්ව ෙනොෙරොච්ෙචෝෙල් අද අපට හදා දීලා තිෙබනවා. එම නිසා ආර්ථික වශෙයන් අප ඉස්සරහට යන රටක්. ෙම්වා එක දවසින් කර මවිතයට පත් කරන්න බැහැ. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, නමුත් මෙග් වචන ස්වල්පය ඉවර කරන්න කලින් මම ෙම් ෙද් ගරු සභාවට ඉදිරිපත් කරනවා. අෙප් අතිගරු ජනාධිපතිතුමා මාවිල් ආරුවලට ගහන්න කියා නිෙයෝග දීපු ෙවලාෙව් අෙප් ෙගොඩක් උදවිය ෙකොළඹ ඉඳන් කිව්වා, "අපි ඔක්ෙකොම ඉවරයි. මහින්දට
+
+[මූලාසනෙය් අණ පරිදි ඉවත් කරන ලදී.] [அக்கிராசனக் கட்டைளப்பᾊ அகற்றப்பட்ᾌள்ளᾐ] [Expunged on the order of the Chair.] අපිව මරන්න හදන්ෙන්" කියා. නමුත් අවුරුදු හතරක් ඇතුළත ඒ කුරිරු තස්තවාදය නිම කරලා පභාකරන්ෙග් මළ කඳ නැවත ෙගනල්ලා අෙප් දරුවන්ට යළි ඒ කුරිරු තත්ත්වය ලබා ෙනොෙදන තත්ත්වයට අෙප් රට ෙගනාපු එතුමා අනිවාර්යෙයන්ම ෙම් ආර්ථික යුද්ධයත් ජයගහණය කරනවා කියන එක පකාශ කරනවා. එදාට ෙම් ගරු සභාෙව් සියලුම මන්තීවරුන් එතුමාට ශුභාශිංසනය පළ කරන්න අපත් සමඟ එකතු ෙවනවා කියන විශ්වාසයද ඇතුව ඔබ සියලු ෙදනාටම මෙග් ෙගෞරවණීය ස්තුතිය පළ කරමින් මා නිහඬ වනවා. ෙබොෙහොම ස්තුතියි.
+
+[අ. භා. 1.51]
+
+ගරු අෙශෝක් අෙබ්සිංහ මහතා (மாண்ᾗமிகு அேசாக் அேபசிங்க) (The Hon. Ashok Abeysinghe) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, මම මුලින්ම විපක්ෂෙය් පධාන සංවිධායකතුමා ඇතුළු සියලු ෙදනාටම ස්තුතිවන්ත වනවා හත් වන පාර්ලිෙම්න්තුෙව් මෙග් මංගල කථාව සිදු කිරීම සඳහා ෙම් විවාදය අතුරතුර මට අවස්ථාව ලබා දීම පිළිබඳව. මම අෙපේල් 08 වන දා දක්වා එක්සත් ජනතා නිදහස් සන්ධානෙය් කුරුණෑගල මහ නගර සභාෙව් නිෙයෝජɕ නගරාධිපතිවරයා ෙලස කටයුතු කළා. මාස 2ක් වැනි ෙකටි කාලයක් තුළදී කුරුණෑගල දිස්තික්කෙය් එක්සත් ජාතික පක්ෂ මන්තීවරයකු වශෙයන් ෙම් උත්තරීතර සභාව නිෙයෝජනය කිරීමට මා ෙතෝරා පත් කර එවීම පිළිබඳව කුරුණෑගල දිස්තික්කෙය් සියලුම ජනතාවට මෙග් ස්තුතිය පුද කරනවා. විෙශේෂෙයන්ම අවුරුදු 21කට පසුව කුරුණෑගල ආසනයට එක්සත් ජාතික පක්ෂ මන්තීවරෙයක් ඡන්දෙයන් ෙතෝරා පත් කිරීම පිළිබඳව කුරුණෑගල ආසනෙය් එක්සත් ජාතික පක්ෂෙය් සියලුම සාමාජිකයන්ටත්, දිස්තික්කෙය් සියලුම සාමාජිකයන්ටත් මෙග් ස්තුතිය පුද කරනවා.
+
+මෙග් පියා ෙහට්ටිෙපොල ගම් සභාෙව් එක්සත් ජාතික පක්ෂ සභාපතිවරයා ෙලස හිටියා. 1976 පඬුවස්නුවර ආසනය ෙවන් කරපු අවස්ථාෙව් එතුමා එක්සත් ජාතික පක්ෂෙය් පධාන සංවිධායකවරයා වශෙයන් මාස 6ක් හිටියා; පඬුවස්නුවර පාෙද්ශීය සභාෙව් උප සභාපතිවරයා වශෙයන් හිටියා. එතුමා ෙම් අවස්ථාෙව්දී සිහිපත් කරන අතර මෙග් මව, බිරිඳ ඇතුළු මෙග් සියලුම ඥාතින්ට සහ මා සමඟ ෙමම ජයගහණය ෙවනුෙවන් තමන්ෙග් ශමය කැප කළ මෙග් සියලුම සෙහෝදරයන්ට ස්තුතිය පුද කිරීමට මා ෙමය අවස්ථාවක් කර ගන්නවා.
+
+2009 වසෙර් හයවන පාර්ලිෙම්න්තුව පැවැති අවස්ථාෙව්දී 2010 වසරට අතුරු සම්මත ගිණුමක් අනුමත කර ගත්තා, 2010 අෙපේල් මාසෙය් 30 වන දා දක්වා. එම අතුරු සම්මත ගිණුම තුළින් රජය බලාෙපොෙරොත්තු වුෙණ් ෙමොකක්ද? ජනාධිපතිවරණය අවස්ථාෙව් අය වැයක් -විසර්ජන පනත් ෙකටුම්පතක්- ඉදිරිපත් කිරීමට ෙනොහැකි නිසා ඒ අතුරු සම්මත ගිණුම ඉදිරිපත් කළා. දැන් ඒ අතුරු සම්මත ගිණුම අවසාන ෙවලා. ඒ, අෙපේල් 30 වන දා.
+
+ජනාධිපතිතුමාෙග් විධායක බලය අනුව, අෙප් ආණ්ඩුකම වɕවස්ථාව අනුව ඒකාබද්ධ අරමුදලින් රජෙය් වියදම් සහ රජෙය් ණය පියවීම සඳහා ෙකෝටි 44,000ක් ෙවන් කර තිෙබනවා. ෙම් රජයට විෙශේෂෙයන්ම රජෙය් ෙසේවකෙයෝ වැඩිෙයන්ම ඡන්දය පකාශ කළා. මම හිතනවා අය වැයක් ඉදිරිපත් ෙනොකිරීම තුළින් ෙම් රජය රජෙය් ෙසේවකයන් අමතක කළාය කියා. අතුරු සම්මත ගිණුම්වලින් රජෙය් වියදම් තමයි ෙපන්වන්ෙන්. රජෙය් ෙසේවකයන් ඉදිරි අය වැය තුළින් තමන්ෙග් පඩි වැඩි වීමක් සිදු ෙවයි කියා බලාෙපොෙරොත්තු වුණා. සමස්ත ජනතාව බලාෙපොෙරොත්තු වුණා හත්වන පාර්ලිෙම්න්තුව ආරම්භ කරන අවස්ථාෙව් ෙමම පාර්ලිෙම්න්තුව තුළදි රජෙය් පතිපත්ති පකාශය ජනාධිපතිවරයා ඉදිරිපත් කරයි කියා. ඒ කිසිවක් සිදු වුෙණ් නැහැ. ජනතාවෙග්ත්, විෙශේෂෙයන් රජෙය් ෙසේවකයන්ෙග්ත් බලාෙපොෙරොත්තු සම්පූර්ණෙයන්ම කඩ වුණු අවස්ථාවක් ෙම්. ෙමම අතුරු සම්මත ගිණුම ඉදිරිපත් කිරීම තුළින් අෙප් රටට යම් යම් අහිතකර බලපෑම් ඇති ෙවලා තිෙබනවා. 2010 අෙපේල් 30 වැනි දා "ලක්බිම" පුවත් පෙත් ෙමෙසේ සඳහන් වී තිෙයනවා:
+
+"රජෙය් ෙරෝහල් ගණනාවක බරපතළ ඖෂධ හිඟයක්.''
+
+ෙමම පුවත්පත් වාර්තාව අනුව ෙමම වසර සඳහා අය වැයක් ෙනොමැති වීෙමන් වාර්ෂිකව කරනු ලබන සාම්පදායික ඖෂධ සැපයීෙම් කියාවලිය අඩ පණ වී ඇති බව ෙසෞඛɕ අමාතɕාංශය පවසනවා. එම නිසා මුදල් ෙවන් කරන තුරු ෙමම ඖෂධ හිඟය පවතින බවත් ෙමහි සඳහන් ෙවනවා.
+
+ඉදිරි අය වැයක් ඉදිරිපත් කරන තුරු ෙමවැනි ඖෂධ හිඟයක් පැවතුෙණොත් අෙප් රෙට් ජනතාවට සිදු වන හානිය කවුරුත් දන්නවා. "පූර්ව මැතිවරණ අයවැය තත්ත්වය පිළිබඳ වාර්තාව" සභාගත කර තිෙබනවා. එහි 2010 අෙප් රෙට් සමස්ත ආදායම රුපියල් ෙකෝටි 82,461ක් වශෙයන් පුෙරෝකථනය කරලා තිෙයනවා. නමුත් රෙට් තිෙයන අයහපත් මූලɕ තත්ත්වය නිසා ෙමම ආදායම සම්පූර්ණෙයන් ලැෙබන්ෙන් නැහැ. ෙම් රෙට් සමස්ත වියදම රුපියල් ෙකෝටි 1,26,557ක්. සමස්ත ආදායම රුපියල් ෙකෝටි 82,000යි. සමස්ත වියදම රුපියල් ෙකෝටි 1,26,557ක්. අපට රුපියල් ෙකෝටි 41,471ක අය වැය හිඟයක් තිෙයනවා. ෙමවැනි අය වැය හිඟයක් තිෙබන අවස්ථාවක ෙම් රට ඉදිරියට යන්ෙන් ෙකෙසේද? ෙම් අය වැය හිඟය පියවීම සඳහා අපි ෙද්ශීය හා විෙද්ශීය ණය ගන්නවා. අෙප් රෙට් ෙගවුම් ෙශේෂෙය් පශ්නයක් තිබුණා. 1976ට පස්ෙසේ පළමුවැනි වතාවට අෙප් විෙද්ශ විනිමය සංචිත - foreign exchange reserves - ෙකෝටි 8,000 දක්වා අඩු වීම නිසා ජාතɕන්තර මූලɕ අරමුදෙලන් අපට ෙකෝටි 26,000ක ණයක් අනුමත කළා. ඒෙක් පළමුවැනි වාරිකය වශෙයන් පසු ගිය සැප්තැම්බර් මාසෙය් ෙකෝටි 3,222ක් - US Dollars 322.2 million - දුන්නා. ෙනොවැම්බර් මාසෙය් ඉතිරි වාරිකය ෙකෝටි 3,222ක් දුන්නා. නමුත් තුන්වැනි වාරිකය ෙපබරවාරි මාසෙය් ලබා දීම පතික්ෙෂේප කළා. ෙමොකද, ජාතɕන්තර මූලɕ අරමුදල පකාශ කරලා තිබුණා, අෙප් රෙට් දළ ෙද්ශීය නිෂ්පාදනෙයන් අය වැය පරතරය 2010 වසෙර්දී සියයට හයක් විය යුතුයි, එය 2011 වසෙර්දී සියයට පහක් විය යුතුයි කියලා. නමුත් අද වන ෙකොට අෙප් රෙට් අය වැය පරතරය දළ ෙද්ශීය නිෂ්පාදනෙයන් සියයට 9.7ක්. එම තත්ත්වය තුළ අප රටට විෙද්ශ ණය ෙනොලැෙබන තත්ත්වයක් උදා වී තිෙයනවා. විෙශේෂෙයන් අප රටට වැඩිෙයන්ම ණය හා ආධාර ලබා දීලා තිෙයන්ෙන් ජපානය. එක්සත් ජාතික පක්ෂ රජය යටෙත් ජපානය අෙප් රටට ආධාර වශෙයන් ජයවර්ධනපුර ෙරෝහල, ජාතික තරුණ ෙසේවා සභාව ලබා දීලා තිෙයනවා. බිතානɕය අපට Victoria Dam එක ලබා දීලා තිෙයනවා. අපට පිට රටින් විශාල වශෙයන් එවැනි ආධාර ලැබිලා තිෙයනවා. නමුත් පසු ගිය වසෙර් අපට ජපානෙයන් කිසිම ආධාර මුදලක් ලැබිලා නැහැ. අපිට පිට රටින් ණය ෙනොලැෙබන එවැනි තත්ත්වයක් යටෙත් ෙමම අය වැය හිඟය පියවීමට ෙද්ශීය වශෙයන් ණය ගැනීමට රජය බලාෙපොෙරොත්තු ෙවලා තිෙයනවා. ෙම් ෙද්ශීය වශෙයන් ණය ගැනීම තුළින් වන්ෙන් ෙමොකක්ද? අෙප් රෙට් උද්ධමනය - inflation - දැනට
+
+පාර්ලිෙම්න්තුව 351 352
+
+සියයට නවයයි. ෙද්ශීය වශෙයන් ණය ගැනීම තුළින් උද්ධමනය ඉහළ යාමට ඉඩ තිෙයනවා. උද්ධමනය ඉහළ යාම තුළින් අෙප් රෙට් සාමානɕ ජනතාව ජීවත් වීෙම් අපහසුතාවකට පත් ෙවනවා. එවැනි තත්ත්වයක් තුළ තමයි අපි ෙම් රෙට් ජීවත් වන්ෙන්. විෙශේෂෙයන්ම මා නිෙයෝජනය කරන කුරුණෑගල දිස්තික්කය කෘෂිකර්මය ආශිත දිස්තික්කයක්. ෙම් රජය ජාතික පතිපත්තියකට ෙනොයෑෙම් පතිඵලයක් ෙලස අෙප් රෙට් කෘෂිකර්මෙයන් ජීවත් වන ජනතාවෙග් අස්වැන්න ෙනළන කාලයට ඔවුන්ෙග් අස්වැන්න විකුණා ගැනීමට ෙනොහැකිව, ඔවුන් තමන්ෙග් අස්වැන්න සමහර අවස්ථාවලදී අපෙත් යවන තත්ත්වයකට පත් වනවා. ආර්ථික මධɕස්ථානයක් තිෙබන දඹුල්ල වැනි පළාත්වල ලූනු වගාෙවන් ජීවත් වන ජනතාව ඔවුන්ෙග් ලූනු අස්වැන්න ෙනළන කාලයට පිට රටින් ලූනු ෙගන් වන තත්ත්වයක් තිෙයනවා. එවැනි තත්ත්වයක් තුළ ඔවුන්ෙග් අස්වැන්න විකුණා ගැනීමට ෙනොහැකි තත්ත්වයක් උදා වී තිෙයනවා. කුරුණෑගල නගරෙය් විෙශේෂෙයන් ෙමෝටර් රථ උපකරණ ආනයනය කරන වɕාපාර ස්ථාන 72ක් දැනට වැහිලා තිෙයනවා. ෙම් රෙට් පවතින දුර්වල ආර්ථික කළමනාකරණෙය් පතිඵලයක් ෙලසයි ෙමවැනි ෙද්වල් සිදු ෙවලා තිෙයන්ෙන්. ෙම් සියල්ලටම ෙහේතුව ෙමොකක්ද? අද උෙද් අෙප් විෙද්ශ ඇමතිතුමා කිව්වා, GSP Plus සහනය ලබා ගැනීම සඳහා යුෙරෝපා ෙකොමිසම සමඟ සාකච්ඡා කරනවා කියලා. නමුත් අපෙග් ෆීලික්ස් ෙපෙර්රා ඇමතිතුමා කිව්වා අපිට GSP Plus සහනය ෙනොලැබුණත් කමක් නැහැ කියලා. ෙමොනවාද ෙම් පරස්පර විෙරෝධී කථා? GSP Plus සහනය ලබා ගැනීමට නම් කළ යුත්ෙත් ෙමොකක්ද? දහහත්වන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනය කියාත්මක කළ යුතුයි. මානව හිමිකම් උල්ලංඝනය කිරීම් නැවැත්විය යුතුයි. දහහත්වන ආණ්ඩුකම වɕවස්ථා සංෙශෝධනය කියාත්මක කිරීම තුළින් අපට GSP Plus සහනය ලබා ගන්න පුළුවන්. අපට ඊෙය් ලබා දුන් පූර්ව මැතිවරණ අයවැය තත්ත්වය පිළිබඳ වාර්තාෙව් සඳහන් වනවා, GSP Plus සහනය ලබා ගැනීමට යුෙරෝපා ෙකොමිසම සමඟ සාකච්ඡා කරනවායි කියලා. ෙමවැනි තත්වයක් යටෙත් ෙම් රට ඉදිරියට යන්ෙන් ෙකොෙහොමද? ෙමම දුර්වල ආර්ථික පතිපත්තිය තුළින් ෙම් රට ඉදිරියට ෙගන යෑමට ෙනොහැකි බව මම තරෙය්ම පකාශ කරනවා.
+
+අද ආනයන හා අපනයන (පාලන) පනත යටෙත් නිෙයෝග ෙම් පාර්ලිෙම්න්තුවට ඉදිරිපත් කළා, අන්තරා යදායක රසායන දවɕ ෙම් රටට ෙගෙනන්න. ෙලෝකෙය් සෑම රටකම ෙමවැනි අන්තරායදායක දවɕ 38ක් තහනම් කරලා තිෙබනවා. නමුත් අපි ෙම් රටට ඒක ෙගෙනන්න හදනවා. ෙම්ක ගැන ෙසොයා බැලිය යුතුයි; මක් නිසාද ෙම්වා ෙගෙනන්ෙන් කියලා පාර්ලිෙම්න්තුවට දැන්විය යුතුයි. හරියට දැනුම් දීමක් ෙනොකර ෙමවැනි නීති සම්මත කර ගැනීම ෙයෝගɕ ෙනොවන බව මම ෙම් අවස්ථාෙව්දී පකාශ කරනවා.
+
+රජය පකාශ කරනවා, ෙම් රෙට් ඒක පුද්ගල ආදායම ඉතා විශාල ෙඩොලර් පමාණයක තිෙබනවාය කියලා. නමුත් ෙම්ක ගමට ගිහිල්ලා නැහැ. ෙම්ක ගමට ෙනොයෑෙම් පතිඵලයක් නිසා තමයි අෙප් රෙට් දුප්පත් අය එන්න එන්නම දුප්පත් බවට පත් වන්ෙන්. අෙප් රෙට් සමස්ත ණය පමාණය දැනට රුපියල් ෙකෝටි 4,26,000ක්. අෙප් සමස්ත ආදායමින් වැඩි පමාණයක් අපි ණය වාරික සහ ෙපොලිය ෙවනුෙවන් ෙගවනවා. පසු ගිය වසෙර් අපි ණය වාරික හා ෙපොලිය සඳහා පමණක් රුපියල් ෙකෝටි 72,500ක් ෙගව්වා. නමුත් පසු ගිය වසෙර් ආදායම තිබුෙණ් රුපියල් ෙකෝටි 70,000යි. ෙමවැනි තත්ත්වයක් තුළ ෙම් රට ඉදිරියට යන්ෙන් ෙකෙසේද? ෙම් පිළිබඳව රජය සලකා බැලිය යුතුයි, ඒ සඳහා යම් කිසි කියාමාර්ගයක් ගත යුතුයි. නැත්නම් ෙම් දුර්වල මූලɕ පතිපත්තිය නිසා අනිවාර්යෙයන්ම අප රෙට් දුප්පත් ජනතාවට විශාල අගතියක් වන බව පකාශ කරමින්, ෙමම තත්ත්වය නැති කිරීමට අනාගත එක්සත් ජාතික පක්ෂ රජයක් තුළින් හැකි ෙව්වා!යි පකාශ කරමින්, අනාගත එක්සත් ජාතික රජයක් තුළ ඉසුරුබර අනාගතයක් සියලු ෙදනාටම පාර්ථනා කරමින් මම නිහඬ වනවා. ස්තුතියි.
+
+[பி.ப. 2.03] ගරු ෙපරුමාල් රාජදුරයි මහතා (மாண்ᾗமிகு ெபᾞமாள் ராஜᾐைர) (The Hon. Perumal Rajathurai) ெகளரவ குᾨக்களின் பிரதித் தவிசாளர் அவர்கேள, இலங்ைகயின் ஏழாவᾐ பாராᾦமன்றத்தின் ᾗதிய சபாநாயகர் அவர்கᾦக்கும் பிரதிச் சபாநாயகர் அவர்கᾦக்கும் குᾨக்களின் பிரதித் தவிசாளரான தங்கᾦக்கும் நான் சார்ந்த இலங்ைகத் ெதாழிலாளர் காங்கிரᾭன் சார்பிேல வாழ்த்ᾐக்கைளத் ெதாிவித்ᾐக்ெகாள்கின்ற அேதேவைள, அரசியᾢல் ᾙதன்ᾙைறயாகப் பிரேவசித்த எனᾐ ெவற்றிக்கு உைழத்த ᾒவெரᾢயா வாழ் அைனத்ᾐ வாக்காளப் ெபᾞமக்கᾦக்கும் நான் நன்றிையத் ெதாிவித்ᾐக் ெகாள்கின்ேறன். அத்ேதாᾌ என்ᾔைடய ெபற்ேறார், மைனவி, குழந்ைதகள் மற்ᾠம் நான் கற்ற பாடசாைல உட்பட இலங்ைகச் சட்டக் கல்ᾥாி மற்ᾠம் எனக்கு ஆதரவளித்த அைனத்ᾐ நிᾠவனங்களின் நண்பர்கᾦக்கும் நன்றிையத் ெதாிவிப்பதற்கு இச்சந்தர்ப்பத்ைதப் பயன்பᾌத்திக்ெகாள்ள விᾞம்ᾗகின்ேறன். ᾒவெரᾢயா மாவட்டம் என்ᾠமில்லாதவாᾠ இம்ᾙைற ஐக்கிய மக்கள் சுதந்திர ᾙன்னணிக்கு ஐந்ᾐ ஆசனங்கைளப் ெபற்ᾠக் ெகாᾌத்ததன்ᾚலம் அக்கட்சிக்கு மிகப் ெபாிய ெவற்றிையப் ெபற்ᾠக் ெகாᾌத்திᾞப்பᾐ உங்கᾦக்குத் ெதாிᾜம். இᾐ ஏறத்தாழ 30 வᾞட காலத்தின் பின்னர் ெபறப்பட்ட ஒᾞ பாாிய ெவற்றியாகும். இந்த ெவற்றியின் பின்னணியில் இலங்ைகத் ெதாழிலாளர் காங்கிரஸ் மிக உன்னதமாகச் ெசயற்பட்டᾐ என்பைத நான் இங்கு ெதாிவித்ᾐக்ெகாள்ள விᾞம்ᾗவᾐடன், ᾒவெரᾢயா மாவட்ட மக்கைளப் பிரதிநிதித்ᾐவம் ெசய்ᾜம் பாராᾦமன்ற உᾠப்பினர்கள் என்றவைகயிேல இந்த மன்றத்திேல நாங்கள் அந்த மக்களின் உண்ைமப் பிரதிநிதிகளாகச் ெசயற்பᾌேவாம் என்ᾠம் உᾠதி கூᾠகின்ேறாம்.
+
+இலங்ைகயில் வாᾨம் இனங்களில் மைலயக சᾙதாயம் ஒᾞ சிᾠபான்ைம இனம். ஆனால், ஒᾞ ேதசிய இனம். அவர்கள் இந்நாட்ᾊற்காக உைழப்பதற்கு வந்தவர்கள். அவர்கள் கடந்த 200 வᾞடங்களாக இலங்ைகப் ெபாᾞளாதாரத்தின் ᾑணாக இᾞந்திᾞக்கின்றார்கள். எனேவ, இந்திய வம்சாவளித் தமிழர்கள் ஒᾞ மிகப் ெபாிய பாரம்பாியத்ைதக் ெகாண்டவர்கள். இᾞந்தேபாதிᾤம், இலங்ைகவாழ் ஏைனய சᾚகங்கᾦடன் ஒப்பிᾌகின்றெபாᾨᾐ இன்ᾠ மைலயக மக்களின் நிைலைம அரசியல்ாீதியாகᾫம் சᾚகாீதியாகᾫம் ெபாᾞளாதாராீதியாகᾫம் மிகᾫம் கீழ்நிைலயிᾢᾞக்கின்றᾐ என்பைத நாங்கள் ெவளிப்பைடயாகக் கூᾠகின்ேறாம். இᾐ ஒᾞ ஜனநாயக நாᾌ. எனேவ, அரசாங்கத்தின் வளப்பங்கீᾌ உட்பட அைனத்ᾐேம இங்கு வாழ்கின்ற அைனத்ᾐப் பிரைஜகᾦக்கும் சமமாகப் பகிர்ந்தளிக்கப்பட ேவண்ᾌம். உங்கᾦக்குத் ெதாிᾜம், 1931ஆம் ஆண்ᾌ காலப்பகுதியிேல இந்த நாட்ᾊேல சர்வசன வாக்குாிைம அறிᾙகப்பᾌத்தப்பட்டᾐ. அதன் பின்னர் 1948ஆம் ஆண்ᾌ அைமக்கப்பட்ட இலங்ைகயின் ᾙதலாவᾐ பாராᾦமன்றத்திேல எம்ᾙைடய சᾙதாயத்ைதச் ேசர்ந்த ஏᾨ பாராᾦமன்ற உᾠப்பினர்கள் இᾞந்தார்கள். ஆனால், அதைனத் ெதாடர்ந்ᾐவந்த ᾙதலாவᾐ பாராᾦமன்ற அமர்விேல மைலயக மக்கᾦக்கான பிரஜாᾫாிைம நீக்கம் சட்டம் ெகாண்ᾌவரப்பட்ᾌ அᾙல் ெசய்யப்பட்டதன் காரணமாக எமᾐ சார்பிேல ெதாிᾫெசய்யப்பட்ட அந்த ஏᾨ பாராᾦமன்ற உᾠப்பினர்கᾦம் ᾪட்ᾊற்குச் ெசன்றார்கள். இᾐ வரலாற்ᾠ உண்ைம. அந்த வைகயிேல ஏறத்தாழ 1977ஆம் ஆண்ᾌவைர இந்த நாட்ᾊல் அரசியல் அநாைதகளாக வாழ்ந்த ஓர் இனெமன்றால், அᾐ எம்ᾙைடய இனமாகும்.
+
+1948ஆம் ஆண்ᾌ பாராᾦமன்றத்தில் ெகாண்ᾌவரப்பட்ட மைலயக மக்களின் பிரஜாᾫாிைம நீக்கம் சட்டத்திேல எமக்கு எதிராக வாக்குகைளப் பிரேயாகித்தவர்கள்தாம் தற்ேபாᾐ மைலயகத்ைதக் காக்கப்ேபாகின்ற ஆபத்பாந்தவர்கள் என்ᾠ கூறி எம்மத்தியில் ᾙதைலக் கண்ணீர் வᾊத்ᾐக்ெகாண்ᾌ வந்தனர் என்பைத நாங்கள் இன்ᾠ காண்கின்ேறாம். ஆனால், ஒᾞ ேகவலமான, மனிதாபிமானமற்ற நிைலயிேல ெசயற்பட்ட இவர்களின் வᾞைக எம்மக்களில் சிலᾞக்கு அதிᾞப்திைய ஏற்பᾌத்தியிᾞக்கின்றᾐ என்பைதᾜம் நாங்கள் இங்கு ெதாிவித்ᾐக் ெகாள்கின்ேறாம். ஆனால், கடந்த ேதர்தᾢேல ᾒவெரᾢயா மாவட்டத்திேல அராஜகம் தைலᾑக்கி ஆᾊயதாக இன்ᾠ பலᾞம் கூக்குரᾢᾌகின்றார்கள். ᾒவெரᾢயா மாவட்டம் தமிழர்கள், சிங்களவர்கள், ᾙஸ்ᾢம்கள் அைனவᾞம் சேகாதரர்கள்ேபால் வாழ்ந்ᾐ வᾞகின்ற ஓர் அைமதியான மாவட்டம் என்பᾐ உங்கᾦக்குத் ெதாிᾜம். இம்மாவட்டம் கடந்த காலங்களிேல ஏைனய மாவட்டங்கᾦக்கு ஒᾞ
+
+[ගරු අෙශෝක් අෙබ්සිංහ මහතා]
+
+2010 මැයි 06 353 354
+
+ᾙன்ᾔதாரணமாக இᾞந்தᾐ என்பைதᾜம் நாங்கள் இங்கு ெபᾞைமயாகக் கூறிக்ெகாள்கின்ேறாம். கடந்த ேதர்தᾢன்ேபாᾐ இலங்ைகத் ெதாழிலாளர் காங்கிரஸ் ஊடாக எந்தவிதமான அராஜக நடவᾊக்ைககᾦம் இடம்ெபறவில்ைல. ஆனால், ேநற்ᾠப் ெபய்த மைழக்கு இன்ᾠ ᾙைளத்த காளான்கைளப்ேபால அங்கு சிலர் வᾞைக தந்தைமயானᾐ, மக்கள் மத்தியிேல ஓர் அதிᾞப்திைய ஏற்பᾌத்தியைமயினால் அவர்கள் அதைன எதிர்த்தார்கள். அதன் காரணமாகேவ அங்கு சில சம்பவங்கள் நடந்தன என்பைத நாங்கள் இங்கு கூறிக் ெகாள்ள விᾞம்ᾗகின்ேறாம்.
+
+இலங்ைகத் ெதாழிலாளர் காங்கிரஸானᾐ ஏறத்தாழ 60 வᾞட கால அரசியல் பாரம்பாியத்ைத ெகாண்டᾐம் ேதாட்டத் ெதாழிலாளர்கைள ைமயப்பᾌத்ᾐகின்றᾐமான ஓர் ஆலவிᾞட்சம் ேபான்ற கட்சியாகும். அᾐ மைலயக மக்களின் வாழ்வியᾢன் ஒவ்ேவார் அம்சத்திᾤம் அவர்களின் உாிைமப் ேபாராட்டத்திᾤம் தன்ைன ஈᾌபᾌத்தி, அதற்குத் தைலைமத்ᾐவம் ெகாᾌத்ᾐ, அவற்ைற ெவற்றிகரமாகச் ெசய்ᾐᾙᾊத்த ஒᾞ கட்சியாகும். இலங்ைகத் ெதாழிலாளர் காங்கிரஸ் கட்சியின் ஸ்தாபகத் தைலவரான காலஞ்ெசன்ற அமரர் ெசளமியᾚர்த்தி ெதாண்டமான் அவர்கள் பல காலம் இந்தச் சைபயிேல உᾠப்பினராக இᾞந்தவர். அவரᾐ பல்ேவᾠ அயராத ேபாராட்டங்களினால் எமᾐ சᾚகத்ᾐக்குப் பல உாிைமகள் ெபற்ᾠக் ெகாᾌக்கப்பட்ᾊᾞக்கின்றன. அவாின் வழிகாட்டᾢேல இன்ᾠ நாங்கள் இந்தச் சைபக்குள் ᾒைழந்திᾞக்கின்ேறாம். அவ்வாேற, இலங்ைகத் ெதாழிலாளர் காங்கிரᾭᾔடாக என்ᾔைடய இந்த ᾙதலாவᾐ அரசியல் பிரேவசத்திற்கு வழிவகுத்த இலங்ைகத் ெதாழிலாளர் காங்கிரᾭன் ெபாᾐச் ெசயலாளᾞம் மாண்ᾗமிகு அைமச்சᾞமான ஆᾠᾙகன் ெதாண்டமான் அவர்கᾦக்கும் அக்கட்சியின் தைலைமத்ᾐவத்திற்கும் நாங்கள் நன்றிக் கடன்பட்ᾊᾞக்கின்ேறாம். இன்ᾠ இலங்ைகவாழ் ஏைனய சᾚகங்கᾦடன் ஒப்பிᾌம்ேபாᾐ, பல்ேவᾠ வைகயிᾤம் பின்தங்கிᾜள்ள மைலயகத் தமிழ் மக்கᾦம் சமமான உாிைமகைள அᾔபவிப்பதற்கு நிச்சயமாகச் சந்தர்ப்பம் வழங்கப்பட ேவண்ᾌம். அதற்காக, எங்கᾦைடய இந்தப் பாராᾦமன்றப் பிரேவசத்ைத நாங்கள் ஒᾞ தளமாகப் பயன்பᾌத்திக் ெகாள்ேவாம். எமᾐ எந்த எதிர்பார்ப்ᾗடன் எம்ைம இந்தச் சைபக்கு ெகாண்ᾌவந்தார்கேளா, அவ்ெவதிர்பார்ப்பிைன நிைறேவற்ᾠவதற்கு நாங்கள் ᾙற்ᾠᾙᾨதாகப் எங்கᾦைடய இந்தப் பாராᾦமன்றப் பிரதிநிதித்ᾐவத்ைதப் பயன்பᾌத்திக்ெகாள்ேவாம் என்பதைன நான் இந்தச் சைபயிேல மீண்ᾌம் வᾢᾜᾠத்திக் கூறிக்ெகாள்ள விᾞம்ᾗகின்ேறன். இன்ᾠ இந்தச் சைபயிேல இறக்குமதி ஏற்ᾠமதிக் கட்ᾌப்பாட்ᾌச் சட்டம், விேசட வியாபாரப் பண்ட அறᾪட்ᾌச் சட்டம் என்பவற்ᾠக்கான ஒᾨங்குவிதிகள் சமர்ப்பிக்கப்பட்ᾊᾞக்கின்றன. இந்த விேசட வியாபாரப் பண்ட அறᾪட்ᾌச்சட்ட ஒᾨங்குவிதிகளிேல பல்ேவᾠ ெபாᾞட்கᾦக்குமான வாி அறᾪᾌகள் பற்றிய பிேரரைணகள் குறிப்பிடப்பட்ᾌள்ளன. ெகளரவ பிரதித் தவிசாளர் அவர்கேள, ᾒவெரᾢயா மாவட்டமானᾐ ெபᾞம்பாᾤம் ேதாட்டத் ெதாழிலாளர்கைளப் ெபᾞவாாியாகக்ெகாண்ட ஒᾞ மாவட்டமாகும். அேதேபால், அம்மாவட்ட மக்கள் ெபᾞம்பாᾤம் விவசாயத் ᾐைறையேய நம்பி வாழ்கின்றவர்கள். இன்ᾠ ேதாட்டத் ெதாழிலாளர்கைள எᾌத்ᾐக்ெகாண்டால், அவர்கள் தமக்குத் ேதைவயான சகல உணᾫப் ெபாᾞட்கைளᾜம் இறக்குமதியிᾕடாகேவ ெபற்ᾠக்ெகாண்ᾌ இᾞக்கின்றார்கள். எனேவ, இறக்குமதிப் பண்டங்கள் மீதான வாிகைள விதிக்கும்ெபாᾨᾐ, மைலயக மக்களின் வᾠைமயான வாழ்க்ைக நிைலையக் கᾞத்திற்ெகாண்ᾌ, சில ெபாᾞட்கᾦக்கான வாிச்சᾤைககைள வழங்குமாᾠ இதற்குப் ெபாᾠப்பான அைமச்சர் அவர்களிடம் இச்சந்தர்ப்பத்திேல நான் விநயமாகக் ேகட்ᾌக்ெகாள்கின்ேறன். ேமᾤம், ெபாலனᾠைவ, ெமானராகைல ேபான்ற மாவட்டங்களில் வாழ்கின்ற ெபᾞம்பான்ைம இனத்ைதச் ேசர்ந்த விவசாயிகᾦக்குச் சᾤைக அᾊப்பைடயில் அல்லᾐ மானிய அᾊப்பைடயில் உரவைககள் வழங்கப்பᾌகின்றன. ஆனால், ᾒவெரᾢயா மாவட்டத்திேல வாழ்கின்ற விவசாயிகᾦக்கு எந்தெவாᾞ சந்தர்ப்பத்திᾤம் இவ்வாறான திட்டத்திᾕடாக மானியங்கேளா அல்லᾐ சᾤைககேளா வழங்கப்படவில்ைல. எனேவ, ᾒவெரᾢயா மாவட்டத்தில் உள்ள விவசாயிகᾦம் இந்த நாட்ᾊன் விவசாயிகள் என்பதைனக் கᾞத்திற்ெகாண்ᾌ, அவர்கᾦக்கும் எதிர்வᾞம் காலங்களில் உரமானியம், விைத மானியம் மற்ᾠம் விவசாயத்திற்குத் ேதைவப்பᾌம் அைனத்ᾐ ெபாᾞட்கᾦக்குமான மானியங்கைள வழங்குவதற்கு நீங்கள் ᾙன்ᾔாிைம அளிக்க ேவண்ᾌெமன்ᾠ ேகட்ᾌக் ெகாள்கின்ேறன். அத்ᾐடன், சில குறிப்பிட்ட காலங்களில்தான் விவசாய உற்பத்திகள் அங்கு அᾠவைட ெசய்யப்பᾌகின்றன. எந்தப்
+
+ெபாᾞட்கள் எந்தக் காலப்பகுதியில் அᾠவைட ெசய்யப்பᾌகின்றேதா அந்தக் காலப்பகுதிகளிேல அப்ெபாᾞட்கைள இறக்குமதி ெசய்வைத அரசாங்கம் தைடெசய்தால் - உதாரணமாக, உᾞைளக்கிழங்கு ேபான்ற ெபாᾞட்கைள - நிச்சயமாக அᾐ இந்த விவசாயிகளின் உற்பத்திக்குக் ைகெகாᾌக்கின்ற ஒᾞ வழிᾙைறயாக இᾞக்குெமன நான் நிைனக்கின்ேறன். பாராᾦமன்றம் என்பᾐ ெபாᾐமக்கைளப் பிரதிநிதித்ᾐவம் ெசய்கின்ற ஓாிடம். இந்தப் பாராᾦமன்றத்திேல எதிர்வᾞம் காலங்களில் அரசியலைமப்பில் பல சீர்திᾞத்தங்கைளᾜம் பல்ேவᾠ ᾗதிய சட்டᾚலங்கைளᾜம் நாங்கள் எதிர்ேநாக்க இᾞக்கின்ேறாம். அந்த ேவைளகளில் மைலயக மக்கள் சார்பிேல பல்ேவᾠ அரசியல் உாிைமகள் சம்பந்தமாக எங்கᾦக்கு ஆதரவாகப் ேபசுவதற்கு இங்கு வந்திᾞக்கின்ற இைளய பாராᾦமன்ற உᾠப்பினர்கள் எங்கᾦக்குக் ைகெகாᾌத்ᾐ எங்கᾦைடய மக்களின் உாிைமகைளப் ெபற்ᾠத் தᾞவார்கெளன்ᾠ நாங்கள் நிைனக்கின்ேறாம். இந்த நாட்ᾊேல ஏறத்தாழ 16 இலட்சம் மைலயக மக்கள் ᾒவெரᾢயா, பᾐைள ேபான்ற மாவட்டங்களில் ெசறிவாகᾫம் இரத்தினᾗாி, ேககாைல, கண்ᾊ ேபான்ற மாவட்டங்களில் பரவலாகᾫம் வாழ்கின்றார்கள். எனேவ, ஒட்ᾌெமாத்த அᾊப்பைடயில் இந்த 16 இலட்சம் மக்கைளᾜம் பிரதிநிதித்ᾐவம் ெசய்கின்றவைகயில் இந்தச் சைபயில் ெசயற்பட ேவண்ᾊய ெபாᾠப்ᾗ எமக்கு இᾞக்கின்றெதன்பைத நான் விநயமாக ெசால்ᾢக்ெகாள்ள விᾞம்ᾗகின்ேறன். ேமᾤம், இன்ᾠ விவாதத்ᾐக்கு எᾌத்ᾐக்ெகாள்ளப்பட்ᾌள்ள சட்டங்கᾦக்கான ஒᾨங்குவிதிகளிேல மைலயகத் ேதாட்டத் ெதாழிலாளர்கᾦக்கு நன்ைம பயக்கக்கூᾊயவிதத்தில் பல்ேவᾠ சᾤைககைளᾜம் உள்ளடக்கியவைகயிலான திᾞத்தங்கைள ேமற்ெகாள்ளேவண்ᾌம் என சம்பந்தப்பட்ட அைமச்சர் அவர்களிடம் ேகட்ᾌக்ெகாள்கின்ேறன். அᾐமட்ᾌமன்றி, ெவளிநாᾌகளிᾢᾞந்ᾐ ெபாᾞட்கைள இறக்குமதி ெசய்கின்றெபாᾨᾐ மிகᾫம் அத்தியாவசியமான ெபாᾞட்கᾦக்கு வாிச்சᾤைக வழங்கப்பட ேவண்ᾌம். குறிப்பாக, ᾒவெரᾢயா மாவட்டத்திᾤள்ள விவசாயிகைளப் பாதிக்கக்கூᾊய, அதாவᾐ அவர்கᾦைடய நாளாந்த வாழ்க்ைகையப் பாதிக்கக்கூᾊய வைகயிலான சரத்ᾐக்கள் ஏதாவᾐ இந்தச் சட்டᾚலங்களில் குறிப்பிடப்பட்ᾊᾞந்தால் அம்மக்கᾦக்கு நிவாரணம் வழங்கக்கூᾊய விதத்தில் சம்பந்தப்பட்ட அைமச்சர் அவர்கள் அதில் திᾞத்தங்கைள ேமற்ெகாள்வார்களாயின் நாங்கள் மிகᾫம் கடைமப்பாᾌைடயவர்களாக இᾞப்ேபாம். எனேவ, நாங்கள் மைலயக மக்களின் உண்ைமயான பிரதிநிகள் என்ற வைகயிேல இந்தப் பாராᾦமன்றப் பிரதிநிதித்ᾐவத்திᾕடாக மைலயகத்தில் வாழ்கின்ற மக்கᾦைடய உாிைமகᾦக்காக என்ᾠம் குரல் ெகாᾌப்ேபாம் என மீண்ᾌம் வᾢᾜᾠத்திக்கூறி, விைடெபᾠகின்ேறன். வணக்கம்.
+
+[අ. භා. 2.13] ගරු සුජීව ෙසේනසිංහ මහතා (மாண்ᾗமிகு சுஜீவ ேசனசிங்க) (The Hon. Sujeewa Senasinghe) මූලාසනාරූඪ ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, මීට දින ෙදකකට ෙපර මාෙග් මංගල කථාව කරලා, නැවත වතාවක් ෙම් ෙයෝජනා සම්බන්ධෙයන් මට කථා කිරීමට අවස්ථාව ලබා දීම ගැන මා ඔබතුමාටත්, ගරු කථානායකතුමාටත්, විපක්ෂෙය් පධාන සංවිධායකතුමාටත් ස්තුතිවන්ත වනවා. අද ෙම් ආණ්ඩුව ආනයන හා අපනයන (පාලන) පනත යටෙත් නිෙයෝග තුනක් ඉදිරිපත් කර තිෙබනවා. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ඒ සම්බන්ධෙයන් අදහස් දැක්වීෙම්දී කාරණා තුනකට අපෙග් විෙශේෂ අවධානය ෙයොමු වනවා.
+
+පළමුවන කාරණාව, අද රෙට් කියාත්මක වන සාමානɕ නීතිය අනුව ඕනෑම පුද්ගලෙයකුට යකඩ සහ යකඩ ෙනොවන ෙලෝහ, සුන්බුන් වර්ග; යකඩ අපදවɕ අපනයනය කිරීෙම් හැකියාව ලැබිලා තිෙබනවා. ෙමහිදී ආණ්ඩුව විසින් ෙපන්නුම් කරලා ෙදනවා, ෙම් යකඩ අපදවɕ අෙප් රෙට් නිෂ්පාදන සඳහා, අෙප් රෙට් කර්මාන්ත සඳහා භාවිත කිරීෙම් දී යම් කිසි අඩු පාඩුවක් ෙම් අවස්ථාෙව්දී රෙට් ඇති වී තිෙබන නිසා, යම් කිසි licence එකක් මත, එෙහම නැත්නම් බලපතයක් මත ඒවා අපනයනය විධිමත් කිරීමට ෙම් ආකාරෙයන් නිෙයෝග ඉදිරිපත් කර තිෙබන බව.
+
+පාර්ලිෙම්න්තුව 355 356
+
+ඒ වාෙග්ම ෙදවන ෙයෝජනාව වශෙයන් රසායනික අවි සම්මුති පනත - Chemical Weapons Convention Act - එක යටෙත් තහනම් කළ රසායනික දවɕ 38ක් ෙම් රටට ආනයනය කිරීම සඳහා ෙම් පාර්ලිෙම්න්තුෙවන් අවසරය පතනවා. ඒ වාෙග්ම තුන්වන ෙයෝජනාව, පිට රටින් ලංකාවට ආනයනය කරන දත් බුරුසු සඳහා එස්එල්එස් සහතිකයක් ලබා දීම සම්බන්ධෙයන් ඉදිරිපත් කළ ෙයෝජනාවයි. මා සිතන්ෙන් එය අපි එච්චර කථා කරන්නට අවශɕ ෙයෝජනාවක් ෙනොෙවයි. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, පළමු ෙයෝජනා ෙදක සම්බන්ධෙයන් අදහස් දක්වන විට විෙශේෂෙයන්ම විපක්ෂය වශෙයන් අපට, ආණ්ඩු පක්ෂෙයන් ඉදිරිපත් කරන ෙයෝජනාවලට ෙබොෙහෝ ෙව්ලාවට විරුද්ධ වන්නට සිදු වුණත්, ආණ්ඩුෙවන් යම් කිසි ෙහොඳ ෙයෝජනාවක් ඉදිරිපත් කරන අවස්ථාවක ඒ සඳහා විපක්ෂෙය් සිටියත් තරුණ මන්තීවරු වශෙයන් අප ඊට සහෙයෝගය දීමක් අනිවාර්යෙයන්ම ෙකෙරන්නට ඕනෑ. හැබැයි ෙමහිදී මතු වන පශ්නය ෙම්කයි. ෙම් යකඩ අපදවɕ පිට රට යැවීම සම්බන්ධෙයන් ෙම් ෙගෙනන්නට බලාෙපොෙරොත්තු වන පාලනය ෙකොයි ආකාරෙයන් සිදු ෙව්විද, ඒ සඳහා බලපත ලබා ෙදන එක ෙකොයි ආකාරෙයන් සිදු ෙව්විද, ආණ්ඩුවට සහෙයෝගය දුන් -ඡන්දයට සහෙයෝගය දුන්- පිරිසකට ෙම් බලපත ලබා ෙදයිද කියන එකයි. මම සිතන්ෙන් ෙමහි විනිවිදභාවය ෙකොයි ආකාරයට සිදු ෙව්විද කියන එක අප සියලු ෙදනාෙග් අවධානයට ලක් වන්නට ඕනෑ. ගරු ෆීලික්ස් ෙපෙර්රා අමාතɕතුමා එතුමාෙග් කථාෙව්දී බටහිර රටවල් ආර්ථික වශෙයන් ඇද වැෙටන ෙකොට ශී ලංකාව ෙම් ආකාරෙයන් ඇද ෙනොවැටී යන්ෙන් ෙකොෙහොමද කියන පශ්නය මතු කළා. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙම්කට ෙහොඳම උදාහරණය ෙම්කයි. ආසියාෙව් තිෙබන ඉන්දියාව, චීනය වාෙග් අප ආසන්නෙය්ම තිෙබන රටවල් දියුණු වන විධිය බැලුවාම, බටහිර රටවල ඇති වුණු ඒ ආර්ථික පරිහානිය ආසියාෙව් රටවල ඇති ෙනොවුෙණ් ඇයි? අෙප් රටවල; ආසියාෙව් රටවල පවුල් ෙබොෙහෝ ෙව්ලාවට ණය කමයක් මත පදනම් වන්ෙන් නැහැ. ෙබොෙහෝ ෙව්ලාවට ආසියාෙව් රටවල ෙපොඩි නිවසක් මිලදී ගත්තා වුණත් ඒ ගන්ෙන් තමන්ෙග් ධනෙයන්; තමන්ෙග් තිෙබන මුදලින්; තමන්ෙග් බැංකුෙව් තිෙබන මුදල්වලින්. හැබැයි බටහිර රටවල තිෙබන්ෙන් ඊට වඩා ෙවනස් කමයක්. ධනපතියන් වුණත්, ඒ වාෙග්ම සාමානɕ ජනතාව වුණත් තමන්ෙග් එදිෙනදා කාර්ය භාරය සිදු කරන්ෙන්, තමන්ෙග් වාහන, ෙගවල් ආදී සියලු ෙද්වල් ගන්ෙන් ණය කමයක් පදනම් වූ ආර්ථික කමයක් මතයි. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ආසියාෙව් කටයුතු ෙකෙරන්ෙන් ඒ විධියට ෙනොෙවයි. ඒ නිසා ඒ පශ්නය ආසියාවට බලපෑෙව් නැහැ. එෙහම බලපෑවා නම් චීනයට සියයට 12.8ක ආර්ථික වර්ධන ෙව්ගයක්, ඉන්දියාවට සියයට 8.8ක ආර්ථික වර්ධන ෙව්ගයක් ෙම් වන විට පවත්වා ෙගන යන්න අවස්ථාවක් ලැෙබන්ෙන් නැහැ. ඒ තත්ත්වය අෙප් ලංකාවට සමාන කරලා බැලුෙවොත්, ලංකාව දියුණු වන්ෙන් නැත්ෙත් ඇයි, ලංකාෙව් ආර්ථිකය කඩා ෙගන වැෙටන්ෙන් ඇයි කියලා අහන පශ්නය සාධාරණයි. ආණ්ඩු පක්ෂෙය් ෙව්වා, විපක්ෂෙය් ෙව්වා අපි සියලු ෙදනාම දන්නවා අද ලංකාෙව් ආර්ථික වර්ධන ෙව්ගය සියයට 3.5ට බැහැලා තිෙබන බව. යුද්ධය අවසන් කරලා, යුද්ධය ජයගහණය කරලා අෙප් රටට ස්වර්ණමය යුගයක් උදා කළත්, ඒ උදා කරපු ස්වර්ණමය යුගෙයන් පෙයෝජන ගන්න බැරිව අද අෙප් රට ළතැෙවනවා.
+
+ෙම් යකඩ අපදවɕවලින් ඉන්දියාව, චීනය වැනි රටවල් තමන්ෙග් කර්මාන්ත ඇති කරලා තිෙබනවා. එෙහම නම් අෙප් කර්මාන්ත සඳහා යම් කිසි අඩු පාඩුවක් තිෙබනවා නම් ෙම් අපදවɕ රඳවා තබා ෙගන අෙප් කර්මාන්ත සඳහා ෙයොදා ගන්න පුළුවන් නම්, අෙප් ස්වයං ශක්තිෙයන් ඒ කර්මාන්ත දියුණු කරලා, ඒවායින් අවශɕ පෙයෝජන රටට ලබා ෙදන්න පුළුවන්. හැබැයි
+
+එෙහම කිසිම ෙයෝජනාවක් ෙම් වන ෙතක් ආණ්ඩු පක්ෂෙයන් ඉදිරිපත් කරලා නැහැ. ඉතින් ෙම් ෙයෝජනාවල විනිවිදභාවය සම්බන්ධෙයන් අපට පශ්නයක් තිෙබනවා. හැබැයි රෙට් නිෂ්පාදනය සඳහා ෙම් අපදවɕ ෙයොදා ගන්නවා නම්, එයින් කර්මාන්ත ඇති වනවා නම් ඉන්දියාෙව්, චීනෙය් වාෙග් අපටත් ආර්ථිකය දියුණු කිරීෙම් හැකියාව ලබා ගන්න පුළුවන්. මම දැක්කා එක මන්තීවරෙයක් කියනවා ඒවා පතිචකීකරණය - recycle - කරලා ෙයොදා ගන්න පුළුවන් කියලා. හැබැයි එවැනි සැලැස්මක් අද වන ෙතක් ආණ්ඩුව විසින් ඉදිරිපත් කරලා නැහැ.
+
+ඒ එක්කම නීතිඥවරයකු වශෙයන් රසායනික දවɕ සම්බන්ධෙයන් මට පශ්නයක් තිෙබනවා. අපි ඒ සම්බන්ධෙයන් ෙලෝකය සමඟ සම්මුතියකට අත්සන් කරලා තිෙබනවා නම් ඒ සම්මුතියට අනුව ෙම් අණ පනත් ෙකොයි ආකාරෙයන් සාදා ගන්නට ඕනෑද කියන එක ගැනත් අපි වග කීෙමන් කටයුතු කරන්න ඕනෑ. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ඊෙය් හදිසි නීතිය දීර්ඝ කිරීම සම්බන්ධෙයන් අපි විවාද කරද්දී ආණ්ඩු පක්ෂෙයන් කිව්ෙව් ෙම් රෙට් තිෙබන තස්තවාදී යුද්ධය තවම අවසන් නැහැ කියලායි. එෙහම අවසන් නැත්නම්, අළු යට තවම ගින්දර තිෙබනවා නම් ෙම් රසායනික දවɕවලින් රසායනික අවි නිෂ්පාදනය කරන්න පුළුවන් හැකියාව අනිවාර්යෙයන්ම තස්තවාදීන්ට තිෙබනවා. අවසන් ෙනොවුණ යුද්ධයක් තිෙබනවා කියලා ඊෙය් කියලා, දැන් රෙට් සාමය ඇති ෙවලා තිෙබන නිසා ෙම් රසායනික දවɕ රටට ෙග්න්න ඕනෑ, ඒ සුරක්ෂිතභාවය ඇති කර තිෙබනවා කියන ෙපොෙරොන්දුව අද ෙම් ආණ්ඩුෙවන් අපට ෙදන්ෙන් ෙකොෙහොමද? ඊෙය් කියපු ආකාරයට ෙම් රෙට් තස්තවාදීන් තවම ඉන්නවා නම්, වැළලූ බිම් ෙබෝම්බ සිය ගණන් ෙගොඩ ගන්න බැරිව තිෙබනවා නම්, ඒ වාෙග්ම හැංගිලා සිටින තස්තවාදීන් තවමත් ෙම් රෙට් තස්තවාදය පතුරනවා නම්, ඒවා වළක්වන්න හදිසි නීතිය අවශɕ නම්, ෙම් රසායනික දවɕ ෙගන ඒම සම්බන්ධෙයනුත් තවමත් අවදානම තිෙබනවා කියන එක ආණ්ඩු පක්ෂය මතක තියා ගන්න ඕනෑ. ඡන්ද 146ක් ෙහෝ 144ක් ෙහෝ තිබුණාය කියලා පිරිසිදු ෙච්තනාෙවන් කියා ෙනොකර ඉන්න බැහැ. නීති සම්පාදනය කරන ෙකොට ආණ්ඩුෙව්ත් වග කීමක් තිෙබනවා ඒ පිරිසිදු ෙච්තනාව රටට ඒ ආකාරෙයන්ම ෙදන්න. බහුතර බලයක් තිබුණ පළියට ෙම් රටට වින කරන නීතියක් සම්පාදනය ෙනොකළ යුතුයි.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, කෘෂිකර්මය, ඒ වාෙග්ම අෙනකුත් සංවර්ධන කියාවලි සඳහා රසායනික දවɕ අතɕවශɕ නම් ඒ සඳහා ෙවනම කියාවලියක් තිෙබන්න ඕනෑ. ෙම් රසායනික දවɕ 38 ෙමොනවාද කියන එක සම්බන්ධෙයන් ෙමතැන සිටින එක මන්තීවරයකුටවත් වැඩි දැනුමක් තිෙබනවා කියා මම හිතන්ෙන් නැහැ. ෙම් රසායනික දවɕ 38හි සංයුතිය ෙවනස් ෙවන්න පුළුවන්. ඒවා එකතු කළාම ෙවනත් ෙද්වල් හැෙදන්න පුළුවන්. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, රසායනික ෙබෝම්බ සම්බන්ධ දැනුමක් තස්තවාදීන්ට තිබුණා, ඔවුන් සතුව රසායනික අවි තිබුණා කියලා ආරංචි මාර්ගවලින් දැන ගන්න ලැබුණා. එෙහම නම් ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ආණ්ඩු පක්ෂය මීට වඩා වග කීෙමන් කියා කරන්න ඕනෑ. යුද්ධය, තස්තවාදය තවමත් රෙට් පවතිනවා කියලා අපිත් පිළිගන්නවා නම්, -අපි පිළිගන්ෙන් නැහැ, තස්තවාදය අද රෙට් පවතිනවා කියලා- ෙම් ඉදිරිපත් කළ ෙයෝජනා සම්මත කර ගන්න යම් කිසි ආකාරයක සහෙයෝගයක් ෙදන්න තිබුණා. මානව අයිතිවාසිකම් අහිමි කරන්න හදිසි නීති ෙරගුලාසි ෙම් රෙට් නැවතත් කියාත්මක කරවන්න ඊෙය් දිනෙය්දී තීන්දු කළා නම්, ඒ නීතියම, ඒ පදනමම, රසායනික දවɕ ෙම් රටට ෙගන්වීෙම්දීත් බලපාන බවට ආණ්ඩු පක්ෂය මතක තියා ගන්න ඕනෑ.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ගරු ජී.එල්. පීරිස් මැතිතුමා සංවර්ධනය ගැන අද උ ෙද් කථා කළා. ගරු ඇමතිතුමා අෙප් සංචාරක වɕාපාරය ගැන කිව්වා. තස්තවාදය අවසන් ෙවලා අවුරුද්දක් ගත වුණත් අෙප් සංචාරක වɕාපාරය තුළින් සංචාරකයන් ලක්ෂ හයකට, හයහමාරකට වැඩි පමාණයක් රටට ෙගන්වා ගන්න බැරි තත්ත්වයක් ඇති ෙවලා තිෙබනවා. අද අෙප් ලංකාෙව්දී සංචාරකයන් වියදම් කරන්ෙන් ෙඩොලර් 68ක් වාෙග් සුළු පමාණයක්. ලංකාව ආසියාෙව් ආශ්චර්යය කිරීමට
+
+[ගරු සුජීව ෙසේනසිංහ මහතා]
+
+2010 මැයි 06 357 358
+
+බලාෙපොෙරොත්තු වනවා නම් ආණ්ඩුව මීට වඩා සැලසුම් සහගතව කටයුතු කළ යුතුයි; ජනතාවට මීට වඩා වගකීම් ඉටු කිරීමට කටයුතු කළ යුතුයි. සංචාරක වɕාපාරය තුළින් මිලියනයකට වැඩි -ලක්ෂ 12ක, ලක්ෂ 13ක- සංචාරකයන් පිරිසක් ෙම් රටට ෙගන්වා ගැනීෙම් හැකියාව ෙම් ආණ්ඩුවට තිෙබනවා. හැබැයි ෙම් ආණ්ඩුවට ෙනොහැකි ෙවලා තිෙබනවා, ඒ සංචාරකයන් පමාණය ෙම් රටට ෙගන්වා ගන්න. ෙබොෙහෝ ෙවලාවට ෙම් ආණ්ඩු පක්ෂ ය අදහස් පකාශ කරන ආකාරය පරස්පරයි. එක මන්තීවරෙයක් පකාශ කරනවා, GSP සහනය ලබා ගන්න සියලු කටයුතු ෙයොදනවා කියලා. තවත් මන්තීවරෙයක් කියනවා, GSP සහනය ෙනොමැතිව ෙකොන්ද ෙකළින් තියා ෙගන අෙප් රෙට් දියුණුව ඇති කරන්න හැකියාව තිෙබනවා කියලා. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙමන්න ෙම්ක තමයි ආණ්ඩු පක්ෂෙය් තිෙබන අඩු පාඩුව. විෙද්ශ රටවලින්, බටහිර රටවලින් ණය ගන්න ෙකොට ෙහොඳයි; ණය ගන්න පුළුවන් නම් ෙහොඳයි. ණය ගන්න බැරි නම් ඒ සඳහාත් උත්තරයක් අෙප් ආණ්ඩුවට තිෙබනවා. ෙම් රට දියුණු කරනවා නම්, ෙම් රෙට් යටිතල පහසුකම් දියුණු කරන්න අනිවාර්යෙයන්ම ෙඩොලර් බිලියන 10ක් වාෙග් පමාණයක් අවශɕයි. ඒ තුළින් සංචාරක වɕාපාරය, ධීවර කර්මාන්තය, අධɕාපනය යන ෙම් සියලු ෙද් දියුණු කළ හැකියි. ඒ සඳහා අවශɕ භූමිය, ශම බලකාය, සාක්ෂර හැකියාව ෙම් රෙට් තිෙබනවා. හැබැයි ෙම් ආණ්ඩු පක්ෂය විසින් අනිවාර්යෙයන්ම ෙත්රුම් ගන්න ඕනෑ, ෙම් මුදල් පමාණය ලබා ගන්න ඒ අවශɕ මානව හිමිකම් රකින්න ඕනෑ බව; ඒ අවශɕ කරන පසු බිම රෙට් හදන්න ඕනෑ බව. ඒ සඳහා ෙම් ආණ්ඩු පක්ෂයට වුවමනාවක් තිෙබනවාද කියන එක අද අපට පශ්නයක් ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙම් අවුරුද්දට අය වැය ෙල්ඛනයක් ඉදිරිපත් කර ගන්න බැරි තත්ත්වයක් ෙම් රෙට් උදා ෙවලා තිෙබනවා. ෙම් ඉදිරිපත් කරලා තිෙබන "Pre-Election Budgetary Position Report" කියන ෙපොෙත් සඳහන් කර ඇති කරුණු මම දැක්කා. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ෙම් ෙපොෙත් සඳහන් ෙවලා තිෙබනවා, ෙම් ආණ්ඩුව විසින්ම විෙව්චනයට ලක් කරන ඇෙමරිකාව, එංගලන්තය සහ පංශය වැනි රටවල්වලින් විශාල මුදල් පමාණයක් ගන්න බලාෙපොෙරොත්තුෙවන් ඇස්තෙම්න්තු කරලා තිෙබනවා කියලා. විෙශේෂෙයන්ම වාසුෙද්ව නානායක්කාර මැතිතුමා මම ගරු කරන මන්තීවරෙයක්. එතුමා කිව්වා, එක්සත් ජාතික පක්ෂෙය් පතිපත්තිවල බටහිර ගැතිභාවයක් තිෙබන නිසා අපත් එක්ක එකතු ෙවන්න එතුමාට අවශɕතාවක් තිබුෙණ් නැහැ, ඒ නිසායි මහින්ද රාජපක්ෂ ජනාධිපතිතුමාට ඒ සහෙයෝගය ලබා ෙදන්ෙන් කියලා. ගරු වාසුෙද්ව නානායක්කාර මන්තීතුමාෙගන් මා අහන්න කැමැතියි, එක්සත් ජාතික පක්ෂෙය්යි, මහින්ද රාජපක්ෂ මැතිතුමාෙග් ආණ්ඩුෙව්යි විෙද්ශ පතිපත්තිය සම්බන්ධෙයන් තිෙබන ෙවනස්කම් ෙමොනවාද කියලා. එය හරියාකාරව දක්වන්න පුළුවන් නම් එතුමා ගන්න ඒ ස්ථාවරය සම්බන්ධෙයන් අෙප් ෙගෞරවයක් තිෙබනවා. විකමබාහු කරුණාරත්න මැතිතුමා, වාසුෙද්ව නානායක්කාර මැතිතුමා වැනි උදවිය සමාජවාදය ගැන අදහස් දක්වලා ෙම් රෙට් ජනතාව ෙවනුෙවන් විශාල කාර්ය භාරයක් කරපු උදවිය නිසා අපි එතුමන්ලාව අගය කරනවා. ඇත්තටම එතුමා වාෙග් පුද්ගලයකුට මීට වඩා විෙව්චනාත්මකව, ධනාත්මකව, නිර්මාණාත්මකව ආණ්ඩු පක්ෂය ෙදස බලන්න පුළුවන් නම් විපක්ෂයක් ෙලස අපටත් ඒ මඟින් විශාල ශක්තියක් ලැෙබනවා. ඒ වාෙග්ම ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, විපක්ෂයක් වශෙයන් අදහස් පකාශ කරන හැම ෙවලාවකම අපි ආණ්ඩු පක්ෂයට කියා සිටිනවා, රෙට් දියුණුව සඳහා ධනාත්මකව, පිරිසිදු ෙච්තනාෙවන් ඔබතුමන්ලා ඉදිරිපත් කරන ඕනෑම ෙයෝජනාවක් සඳහා අෙප් සහෙයෝගය ෙදන්න කැමැතියි කියන එක. හැබැයි ඒ සහෙයෝගය ලැෙබන්ෙන් රෙට් ජනතාවෙග් සුබ සිද්ධිය සඳහා පමණක් වන බවත්, එෙහම නැතිව මන්තීවරයකුෙග් ෙහෝ ඇමතිවරයකුෙග් සුඛ විහරණය සඳහා ෙහෝ එතුමන්ලාෙග් ෙවනත් ෙද්ශපාලන පැවැත්මක් සඳහා ෙහෝ ෙනොවන බවත් ෙම් අවස්ථාෙව්දී විපක්ෂෙය් මන්තීවරයකු වශෙයන් මා පකාශ කරන්න කැමැතියි.
+
+දවස් ෙදක තුනක් ඇතුළත මට මෙග් ෙදවැනි කථාවත් පාර්ලිෙම්න්තුව තුළ කරන්න අවස්ථාව ලබා දීම සම්බන්ධෙයන් නැවත වරක් විපක්ෂෙය් ගරු පධාන සංවිධායකතුමාටත්, අෙප් පක්ෂයටත් ස්තුතිවන්ත ෙවමින් මෙග් වචන ස්වල්පය අවසන් කරනවා. ෙබොෙහොම ස්තුතියි.
+
+[අ. භා. 2.27] ගරු සජින් ද වාස් ගුණවර්ධන මහතා (மாண்ᾗமிகு சஜின் த வாஸ் குணவர்தன) (The Hon. Sajin De Vass Gunawardena) ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, මන්තීවරයකු වශෙයන් මා ෙම් උත්තරීතර පාර්ලිෙම්න්තු සභා ගර්භය තුළදී කරන මංගල කථාෙව්දී, පසු ගිය දා පැවැති මහ මැතිවරණයට තරග කිරීමට මට නාම ෙයෝජනා ලබා දුන් ශී ලංකා නිදහස් පක්ෂයටත්, එහි නායකයා වන අතිගරු මහින්ද රාජපක්ෂ ජනාධිපතිතුමාටත් මාෙග් පණාමය පළමුෙවන්ම පුද කරනවා. ෙදවනුව, ගාල්ල දිස්තික්කෙය් ජනතාව නිෙයෝජනය කරන දූතයකු වශෙයන් අම්බලන්ෙගොඩ ආසනය ෙවනුෙවන් මට ෙම් පාර්ලිෙම්න්තුවට පැමිණීමට වරම් ලබා දුන් ජනතාවටත් මාෙග් පණාමය පුද කරනවා. ෙමහි විෙශේෂත්වයක් තිෙබනවා ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි. ඊෙය් දින ගරු වාසුෙද්ව නානායක්කාර මන්තීතුමා පැවසූ විධියට රත්නපුර දිස්තික්කෙය් කලවාන ආසනය වාෙග්ම ෙම් උත්තරීතර පාර්ලිෙම්න්තුෙව් අම්බලන්ෙගොඩ ආසනය නිෙයෝජනය වන්ෙන්ත් වසර 33කට පසුවයි. ඒ නිසා ඒ අවස්ථාව ලබා දුන්නු ජනතාවට යළිත් වරක් මෙග් පණාමය පුද කරනවා.
+
+පසු ගිය දවස් ෙදක තුන තුළ ආණ්ඩු පක්ෂෙයනුත්, විපක්ෂෙයනුත් ෙනොෙයක්, ෙනොෙයක් මතිමතාන්තර ඉදිරිපත් කරනවා අපි සියලු ෙදනාම දැක්කා. නමුත් විපක්ෂෙය් ඉන්න බහුතර මන්තීවරුන්ට එක ෙදයක් අමතක ෙවලා තිෙබනවා. අතිගරු ජනාධිපති මහින්ද රාජපක්ෂ මැතිතුමාෙග් රජයට ෙම් ජනතා වරම ලැබුෙණ් එක් වරක් ෙනොෙවයි. පළාත් සභා මැතිවරණවලින් ආරම්භ ෙවලා ජනාධිපතිවරණෙයන්, මහ මැතිවරණෙයන් ලැබුණු ජනතා වරමක් ෙම් රජයට තිෙබනවා. මැතිවරණෙයන් මැතිවරණයට අෙප් ඡන්ද සංඛɕාව වැඩි කර දීලා තිෙබනවා. විපක්ෂය විසින් ෙම් ජනතා වරම අවතක්ෙසේරුවට ලක් කරන ස්වභාවයක් අපට ෙපෙනන්න තිෙබනවා. රජය ෙමොන ෙදයක් කරන්න පටන් ගත්තත් විෙව්චනය පමණයි විපක්ෂයකින් එන්ෙන්. අපි ෙපොඩ්ඩක් මෑත ඉතිහාසය දිහා බලමු. අවුරුදු 30ක යුද්ධයක් ෙම් රෙට් පැවතුණා. භීෂණකාරි ෙල් පිපාසෙයන් හැසිරුණු තස්තවාදයක් ෙම් රෙට් තිබුණා. ඒ යුද්ධය අද නිමා ෙවලා තිෙබනවා. අතිගරු ජනාධිපතිතුමාෙග් නායකත්වෙයන්, ආරක්ෂක ෙල්කම් ෙගෝඨාභය රාජපක්ෂ මහත්මයාෙග් නායකත්වෙයන් අද වන විට මුළුමනින්ම ඒ තස්තවාදය ෙම් රෙටන් තුරන් කරලා තිෙබනවා. තස්තවාදය තුරන් කළාට, තස්තවාදෙය් තිරය පිටුපස තිබුණු ඒ කුමන්තණය තවමත් පවතිනවා.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ගරු සුජීව ෙසේනසිංහ මන්තීතුමා එතුමාෙග් කථාෙව්දී ඉතාම සතුටුදායක ෙදයක් පකාශ කළා. ආණ්ඩුවට සහෙයෝගය පළ කරනවා කියන්ෙන් නැතුව එතුමා අෙප් පතිපත්තිවලට සහෙයෝගය පළ කළා. ඒ සම්බන්ධෙයන් එතුමාට අපි ස්තුතිවන්ත වනවා. කුමන්තණය තවම එෙහමම තිෙබනවා. ෙද්ශීයවත්, විෙද්ශයන් තුළත් ෙනොෙයක්, ෙනොෙයක් අන්දමින් ඊට අනුබල ෙදන වැඩසටහන තවම කියාත්මක වනවා. ඒ නිසා තමයි අපට යම් යම් විධිවිධාන, යම් යම් ෙරගුලාසි පවත්වා ෙගන ඉදිරියට යන්න සිදු වන්ෙන්. මා හිතන්ෙන් නැහැ ෙම් රෙට් ජනතාව කවුරුත් කැමැති ෙව්විය කියා යළිත් වරක් තස්තවාදය ෙම් රෙට් හිස ඔසවනවාට. කල්පනා කර බලන්න, ගත වූ වසර පහක කාල පරිච්ෙඡ්දය තුළ අෙප් රට, අෙප් ෙම් මාතෘ භූමිය ෙමොන ගමන් මඟකද ගිෙය් කියලා. ආර්ථික වශෙයන් ගත්තත්, සමාජයීය වශෙයන් ගත්තත්, ෙද්ශපාලන වශෙයන් ගත්තත් අප ඉදිරියට ගිහින් තිෙබනවා. යුද්ධයක් පැවැති අතරතුර විශාල වියදමක් දරන්න තිබුණු කාල පරිච්ෙඡ්දයක් තුළ පවා අෙප් රජය විසින් දැවැන්ත සංවර්ධනයක් ෙම් රටට ඇති කර දී
+
+පාර්ලිෙම්න්තුව 359 360
+
+තිෙබනවා. සමස්ත ආර්ථිකයට බලපාන සංවර්ධනයක් ඇති කර තිෙබනවා. වරායවල්, ගුවන් ෙතොටු ෙපොළවල්, විදුලි බලාගාර, වාරි මාර්ග වැනි දැවැන්ත සංවර්ධන වɕාපෘති කියාත්මක කරන අතරතුර අපි ගමටත් ගිහින් තිෙබනවා. ගම් නියම් ගම් සංවර්ධනය කර තිෙබනවා. යටිතල පහසුකම් ශක්තිමත් කර තිෙබනවා. ෙමන්න ෙම් සමතුලිතභාවය තුළ ඇති වන්නා වූ සංවර්ධනයක් තමයි අතිගරු ජනාධිපතිතුමාෙග් නායකත්වය යටෙත් අප කියාත්මක කර තිෙබන්ෙන්. අන්න ඒ නිසා තමයි ෙමවැනි විශාල ජනතා වරමක් අෙප් රජයට ලැබිලා තිෙබන්ෙන්. එක පැත්තකින් අතිගරු ජනාධිපතිතුමා බලයට පැමිණි අවස්ථාෙව් ෙම් රටට ෙගෞරවාන්විත සාමයක් ෙගෙනනවා කියා ෙපොෙරොන්දුවක් දුන්නා; තස්තවාදය මුළුමනින්ම නැති කරනවා කියා ෙපොෙරොන්දුවක් දුන්නා. අද ඒ ෙපොෙරොන්දු ෙදකම එතුමා ඉෂ්ට කර ෙපන්වා තිෙබනවා. ෙම් ජන වරම තමයි විෙශේෂෙයන්ම විපක්ෂෙය් ගරු මන්තීතුමන්ලාට වැදගත් වන්ෙන්. ෙම් ජන වරම අවතක්ෙසේරු කරලා කථා කරන්න එපා. ඒක ෙම් රෙට් ඉන්න සියලුම ජනතාවට තමුන්නාන්ෙසේලා කරන නිගහයක්.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, අෙප් රෙට් ආර්ථිකය ගැන දැන් කථා වුණා. ෙගෝලීය ආර්ථිකෙය් කඩා වැටීමක් තිබුණා; තවමත් තිෙබනවා. ඇෙමරිකාෙව්, යුෙරෝපෙය් ෙකෝපි ෙකෝප්පයක් ගන්න මුදල් නැති වුණු කාලයක් ආවා. ඇෙමරිකාෙව් ජනතාව ෙගවල් කුලී ෙගවා ගන්න බැරිව වාහනවල නිදා ගන්නා කාලයක් ආවා. නමුත් අෙප් රටට, අපට එෙහම පශ්නයක් තිබුෙණ් නැහැ. ඇයි, මනා ආර්ථික කළමනාකරණයක් තිබුණු නිසයි. ඔව්, අපට නීති ෙරගුලාසි ෙගෙනන්න සිදු වුණා. අෙප් මඩිස්සෙල් ටිකක් තද කර ගන්න සිදු වුණා. නමුත් එවැනි විනයානුකූල, මනා ආර්ථික පරිපාලනයක් තිබුණු නිසා තමයි එක පැත්තකින් අප ෙබ්රුෙණ්. අෙනක් පැත්ෙතන් අපි ෙද්ශීය නිෂ්පාදනය වැඩි කළා. රජයට ෙත්රුම් ගියා, "ෙම් ආර්ථිකෙය් විෙද්ශ විනිමය එළියට යන එක අපි අඩු කරන්න ඕනෑ. නිෂ්පාදනය වැඩි කරන්න ඕනෑ. උද්ධමනෙය් පාලනයක් ෙගෙනන්න ඕනෑ" කියා. ඒ අවස්ථාෙව් පැවැති ෙගෝලීය ආර්ථික පශ්නය හමුෙව් ගත්තු තීරණ නිසා තමයි අද ශක්තිමත්ව ෙම් ආර්ථිකය ඉදිරියට යන්ෙන්. අද අෙප් ඉතිහාසෙය් පළමුවැනි වතාවට විෙද්ශ විනිමය සංචිත රුපියල් බිලියන 7,000ක් ඉක්ම වන තත්ත්වයට පැමිණ තිෙබනවා. ඉතින් ෙම් තත්ත්වය උදා කර ගන්න පුළුවන් වන්ෙන් මනා ආර්ථික කළමනාකරණයක් යටෙත්යි.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, එක්සත් ජාතික පක්ෂෙය් ගරු හර්ෂ ද සිල්වා මන්තීතුමා මීට ෙපර කථා කළා. එතුමා මෙග් ෙල් ඥාතිෙයක්. නමුත් එතුමාෙග් අදහස්වලට මම එකඟ ෙවන්ෙන් නැහැ. එතුමා ෙම් සභා ගර්භයට පැවසුවා, උද්ධමනය අද සියයට 6ට බැහැලා තිෙබනවා කියලා; යම් කාල වකවානුවක් තුළ උද්ධමනය සියයට 27කට වැඩි ෙවලා තිබුණාය කියලා. ඔව්, ඒක හ රි. ඉතින් මනා ආර්ථික කළමනාකරණයක් තුළ තමයි අර මම ඉස්සර ෙවලා කිව්ව තත්ත්වෙයන් බැහැර ෙවලා සියයට 6ක උද්ධමන ෙව්ගයකට අද අපිට ෙම් රට තියන්න පුළුවන් ෙවලා තිෙබන්ෙන්. මා හිතන්ෙන් ඉදිරියට යන ආර්ථිකයකට යම් කිසි පමාණයකින් උද්ධමනයත් අවශɕ ෙවනවා. මා හිතන්ෙන් ඒ ගැන ෙත්රුම් ගන්න ආර්ථික විෙශේෂඥෙයක් ෙවන්න ඕනෑ නැහැ. තව එකක් එතුමා පැවසුවා. එතුමා ෙදන්න හැදුව පණිවුඩය තමයි, ශී ලංකාෙව් ආර්ථිකය ණය උගුලක පැටලිලා ඉන්නවා කියන එක. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, අෙප් රෙට් ඉතිහාසෙය් කවදාවත් ශී ලංකා රජයක් -අපි පක්ෂ, විපක්ෂ ෙභ්දයකින් ෙතොරව විනාඩියකට කථා කරමු- ණය ෙගවීම පැහැර හැරලා නැහැ. විෙශේෂෙයන්ම අතිගරු ජනාධිපතිතුමා ජනාධිපති වුණාට පස්ෙසත් වසර පහකට ආසන්න කාලය තුළ මනා කළමනාකාරිත්වයක් යටෙත්යි ඒ කටයුතු කෙළේ. ණය නිකම් ෙදන පළියට ගන්ෙන් නැහැ. ජාතɕන්තර මූලɕ අරමුදෙල් නිෙයෝජිතෙයෝ ආවා. ඉස්සර ෙවලාම අතිගරු ජනාධිපතිතුමා කිව්ෙව් නැහැ, "අපිට අවශɕ නැහැ" කියලා. ණය ගන්න අවශɕයි. රටක් සංවර්ධනය කරන ෙකොට, ගම් සංවර්ධනය ක රන ෙකොට, යටිතල පහසුකම් අලුත් කරන ෙකොට අපට ණය
+
+ගන්න අවශɕයි. නමුත් ඒ ණය ඒ ෙදන්නා වූ සමාගම්වල, ඒ ආයතනවල ෙකොන්ෙද්සිවලට අපි යටත් වන්ෙන් නැහැ. අන්න ඒක තමයි ෙමතැන තිෙබන පධාන ෙවනස. ඒ ණය ගන්ෙන් අවශɕතාව අනුවයි.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, අෙප් ඉදිරි ගමන සුබයි. අද ෙම් රෙට් ඉතිහාසෙය් කවදාවත් තිබුෙණ් නැති ස්ථාවරත්වයක් ඇති ෙවලා තිෙබනවා. ෙගෞරවාන්විත සාමයක් ඇති ෙවලා තිෙබනවා; ෙද්ශපාලන ස්ථාවරත්වයක් ඇවිල්ලා තිෙබනවා; ආර්ථික ස්ථාවරත්වයක් තිෙබනවා. ඒ නිසා තමයි අද දිෙනන් දින ෙකොටස් ෙවෙළඳ ෙපොළ වාර්තා තබමින් ඉදිරියට යන්ෙන්; ඒ නිසා තමයි ආෙයෝජකයන් අද දහස් ගණනින් ෙම් රටට එන්ෙන්. එතෙකොට ෙම් මනා ආර්ථික කළමනාකරණයක් තුළ ෙම් සියලුම පතිලාභ නුදුරු අනාගතෙය් අෙප් රෙට් ජනතාවට භුක්ති විඳීෙම් හැකියාව ලබා දීලා තිෙබනවා.
+
+ගරු සුනිල් හඳුන්ෙනත්ති මන්තීතුමා දවල් එතුමාෙග් කථාෙව්දී පැවසුවා, ඇමතිකමක් නැතිව මන්තීවරයකුට සංවර්ධනයට දායකත්වය ෙදන්න බැහැ කියලා. එතුමාම කියන ෙද් එතුමාම කපා ගන්නවා. ඇයි අපට බැරි? අන්න ඒක තමයි ෙවනස. අතිගරු මහින්ද රාජපක්ෂ ජනාධිපතිතුමාෙග් රජෙය් ෙවනස අන්න ඒකයි. එක්සත් ජාතික පක්ෂෙය් ෙහෝ ජනතා විමුක්ති ෙපරමුෙණ් මන්තීවරුන්ට බැරිව ඇති තමන්ට ඡන්දය දුන්න ඒ නිෙයෝජිතයන්ට වැඩ කරන්න. නමුත් අපට පුළුවන්. අපට ඒ ශක්තිය තිෙබනවා; අපට ඒ නායකත්වයක් ඉන්නවා; අපට ඒ දායකත්වයක් දීලා තිෙබනවා. ෙමන්න ෙම් කාරණය නිසා තමයි අෙප් රෙට් බහුතරයක් ෙම් රජය ෙතෝරලා පත් කරලා තිෙබන්ෙන්. ගරු නාමල් රාජපක්ෂ මන්තීතුමා ෙපෙර්දා පාර්ලිෙම්න්තු ෙව් කථා කරන ෙකොට, "තාරුණɕයට ෙහටක්" ගැන සඳහන් කරමින් තාරුණɕයට ෙදන්න ඕනෑ තැන ගැන, තාරුණɕයට ෙදන්න ඕනෑ අවස්ථාව ගැන පකාශයක් කළා. මම හිතන්ෙන් අන්න එතැන තමයි අ ෙප් අනාගතයක් තිෙබන්ෙන්. ඉහත කී පරිදි අතිගරු ජනාධිපතිතුමාෙග් සංකල්පය අනුව දැවැන්ත යටිතල පහසුකම් සංවර්ධනයක්, මහා පරිමාණෙයන් ජාතික ආර්ථිකයට බලපාන විධිෙය් -සමස්ත ආර්ථිකයට බලපාන විධිෙය්- වɕාපෘති නිම කර ෙගන යන අතරතුර දැන් අපි ඉදිරියට සූදානම් ෙවලා ඉන්ෙන් ගාමීය ආර්ථික පවර්ධනයක් ඇති කරන්නයි. ඒ ගාමීය ආර්ථික පවර්ධනයක් තුළින් තමයි අෙප් තිෙබන ෙම් මූලික පශ්න ටික විසඳා ගන්න පුළුවන් වන්ෙන්. අන්න එතැනට තමයි අපි තාරුණɕෙය් ශක්තිය ෙයොදවන්න ඕනෑ. එතැනට තමයි, ඒ තාරුණɕෙය් ෙකොටස්කරුවන් අවශɕ වන්ෙන්. ඒ ගාමීය ආර්ථික පවර්ධනෙය් ෙකොටස්කරුවකු වනවා පමණක් ෙනොෙවයි, තාරුණɕෙය් ශක්තියත් ෙම් ආර්ථිකෙය් ෙකොටස්කරුවකු කරන්න තමයි "මහින්ද චින්තන ඉදිරි දැක්ම" අතිගරු ජනාධිපතිතුමා අපට ලබා දීලා තිෙබන්ෙන්.
+
+මා මිත ගරු හර්ෂ ද සිල්වා මන්තීතුමා එතුමාෙග් කථාෙව්දී ෙම් ආර්ථික සංවර්ධන ෙව්ගය වැඩි කරන්ෙන් ෙකොෙහොමද කියන පශ්නය ඇහුවා. මම කනගාටු වනවා එතුමා දැන් ෙම් සභා ගර්භෙය් නැති එක ගැන. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ඒක කරන්න, ඒක ඉෙගන ගන්න ආර්ථික විෙශේෂඥෙයක් වන්න ඕනෑ නැහැ. වචන තුෙනන්- ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) ටීවී එකට එන්න ඕනෑ වන්ෙනත් නැහැ. ගරු සජින් ද වාස් ගුණවර්ධන මහතා (மாண்ᾗமிகு சஜின் த வாஸ் குணவர்தன) (The Hon. Sajin De Vass Gunawardena) ටීවී එකට එන්නත් ඕනෑ නැහැ. පත්තරයටත් එන්න ඕනෑ නැහැ. ගරු මන්තීතුමනි, වචන තුනකින් මම කියන්නම්, ෙම්ක කරන හැටි. ඒකට මම උදව්වකුත් ෙදන්නම්. කියවන්න, "මහින්ද
+
+[ගරු සජින් ද වාස් ගුණවර්ධන මහතා]
+
+2010 මැයි 06 361 362
+
+චින්තන" පතිපත්ති පකාශනය. අන්න එතැන තමයි ආර්ථික සංවර්ධන ෙව්ගය වැඩි කරන්ෙන් ෙකොෙහොමද කියලා අප කියලා තිෙබන්ෙන්. එය ෙම් රෙට් ජනතාව පිළිෙගනයි තිෙබන්ෙන්. මා මිත ගරු සුජීව ෙසේනසිංහ මන්තීතුමා හැම තිස්ෙසේම මා දැකලා තිෙබනවා, පසු ගිය මැතිවරණ කාල පරිච්ෙඡ්දය තුළත්- නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees)
+
+Hon. Member, you have got one more minute. ගරු සජින් ද වාස් ගුණවර්ධන මහතා (மாண்ᾗமிகு சஜின் த வாஸ் குணவர்தன) (The Hon. Sajin De Vass Gunawardena)
+
+Give me three more minutes, please. නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees)
+
+I can give you only two more minutes. ගරු සජින් ද වාස් ගුණවර්ධන මහතා (மாண்ᾗமிகு சஜின் த வாஸ் குணவர்தன) (The Hon. Sajin De Vass Gunawardena)
+
+Thank you, Hon. Deputy Chairman of Committees. ගරු සුජීව ෙසේනසිංහ මන්තීතුමා මා දැක්කා මැතිවරණ කාල පරිච්ෙඡ්දය තුළදීත්, දැනුත් කිව්වා ෙම් රජෙය් විෙද්ශ පතිපත්තිය ගැන. ගරු මන්තීතුමනි, අෙප් විෙද්ශ පතිපත්තිය ගැන මා ෙහොඳට කියන්නම්. අපට තිෙබන්ෙන් ණය ගැති නැති, යටත් විජිත නැති-
+
+ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) ෙහලිෙකොප්ටරෙයන් යන එකක්. ගරු සජින් ද වාස් ගුණවර්ධන මහතා (மாண்ᾗமிகு சஜின் த வாஸ் குணவர்தன) (The Hon. Sajin De Vass Gunawardena) ෙහලිෙකොප්ටරෙයන් යන එක විෙද්ශ පතිපත්තියක් ෙනොෙවයි ෙන්. එන්න මම ෙගනි යන්නම්. එන්න. ෙමතැනින් යමු. අපි උඩින් ෙගනි යන්නම්. උඩින් යන ෙකොට ෙවනස ෙත්රුම් ගන්න පුළුවන්. විෙද්ශ පතිපත්තියක්, අෙප් තිෙබනවා. අතිගරු ජනාධිපතිතුමාෙග් විෙද්ශ පතිපත්තිය අද පිළිෙගන තිෙබනවා. එතුමාට G-15 එෙක් සභාපතිකම ෙනොෙබෝ දිනකින් ලැෙබනවා. අපට අවශɕ වන්ෙන් ෙබදුම්වාදයට ඉඩ ෙදන, කුමන්තණකාරින්ට ඉඩ ෙදන, ආර්ථිකය පස්සට ෙගනි යන විෙද්ශ පතිපත්තියක් ෙනොෙවයි. ෙමොකක්ද ඇත්තටම ෙම් GSP කියන්ෙන්? සරලව GSP කියන්ෙන් ෙමොකක්ද? GSP කියන්ෙන් ෙමයයි. යුෙරෝපෙය් ඒ ආර්ථික විසින් එක්තරා වරපසාදයක් දීලා තිෙබනවා, දියුණු වන රටවල්වලට. ඒ, තමන්ෙග් ෙවෙළඳ ෙපොළට අඩු වියදමකින් බඩු ෙගනත් දාන්න. ඒක සරලවයි ෙම් කියන්ෙන්. ඒ, තමුන්නාන්ෙසේටත් ෙත්රුම් ගන්න පුළුවන් විධියටයි. එතෙකොට ඒ ආර්ථිකය කඩා වැටිලා තිෙබන ෙකොට, ඒ ආර්ථිකෙය් ඉන්න ජනතාවට ෙකෝපි ෙකෝප්පයක් ෙබොන්න සල්ලි නැති ෙකොට අෙප් රටවලට උදවු කරනවාද? අෙප් බඩු ටික එතැන විකුණන්න ඉඩ ෙදනවාද? අපි කරනවාද, ඒක? ඉතින් ෙම් GSP එක ගන්න අපි අෙප් මුළු රටම පාවා ෙදන්න ඕනෑ, අෙප් මුළු ජනතාවම පාවා ෙදන්න ඕනෑ, ඒකද තමුන්නාන්ෙසේලා කියන්ෙන්? ඒකද අෙප් පතිපත්තිය? නැහැ. අපට තිෙබනවා ෙකොන්ද ෙකළින් තියා ෙගන පතිපත්තිගරුකව ෙම් රට එක මාර්ගයක ෙගන යන විෙද්ශ පතිපත්තියක්.
+
+ගරු මන්තීවරෙයක් (மாண்ᾗமிகு உᾠப்பினர் ஒᾞவர்) (An Hon. Member) ෙනොබැඳුණු. ගරු සජින් ද වාස් ගුණවර්ධන මහතා (மாண்ᾗமிகு சஜின் த வாஸ் குணவர்தன) (The Hon. Sajin De Vass Gunawardena) ෙනොෙබදුණු පතිපත්තියක්. එෙහමයි ගරු මන්තීතුමනි. ඒ පතිපත්තිය තමයි අප ඉදිරියට ෙගන යන්ෙන්.
+
+මට තව එක කාරණයක් කියන්න තිෙබනවා, මා කථාව අවසාන කරන්න ඉස්ෙසල්ලා. මා ෙම් පාර්ලිෙම්න්තු සභා ගර්භෙය් සිටිෙය් නැති වුණාට, හයවන පාර්ලිෙම්න්තුව තුළ මෙග් නම අඩු ගණෙන් මාසයකට තුන් පාරක්වත් ෙම් සභා ගර්භෙය් කියවිලා තිෙබනවා. ගරු අනුර කුමාර දිසානායක මන්තීතුමා, ගරු රවි කරුණානායක මන්තීතුමා -ෙම් සියලු ෙදනාම- වරපසාදවලට යටත් ෙවලා මට මඩ ගැහුවා; ෙචෝදනා එල්ල කළා. අෙප් ගරු රන්ජන් රාමනායන මන්තීතුමාත් රූපවාහිනිෙය්, හැම තැනදීම මා ගැන ෙචෝදනා එල්ල කළා. [බාධා කිරීමක්] නැහැ. වරදක් ෙනොෙවයි කියන්ෙන්. නැහැ. ඔබතුමාෙග් කාලෙය්දී කියන්න. ෙචෝදනා එල්ල කළා. මඩ පහාර එල්ල කළා. නමුත් අද ෛදවය විසින් මාව ෙම් සභා ගර්භය තුළට එවලා තිෙබනවා. ඒ නිසා මම ඒ සියලු මන්තීවරුන්ට කියන්ෙන් ඕනෑම අවස්ථාවක, ඕනෑම තැනක ඒ අභිෙයෝගවලට මුහුණ ෙදන්න මම කැමැතියි කියායි. උත්තර මාෙග් ළඟ තිෙබනවා. මෙගන් අහන්න, මම කියන්නම්. ෙබොෙහොම ස්තුතියි. [බාධා කිරීමක්]
+
+[අ. භා. 2.45] ගරු අනුර පියදර්ශන යාපා මහතා (පරිසර අමාතɕතුමා) (மாண்ᾗமிகு அᾒர பிாியதர்ஷன யாப்பா - சுற்றாடல் அைமச்சர்)
+
+(The Hon. Anura Priyadharshana Yapa - Minister of Environment)
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, පස්වැනි වතාවටත් ෙම් නව පාර්ලිෙම්න්තුවට මා ෙතෝරා පත් කර ගැනීම පිළිබඳව පථමෙයන්ම මම අෙප් දිස්තික්කෙය් ජනතාවට ස්තුතිවන්ත ෙවමින් ෙම් විවාදයට සම්බන්ධ ෙවන්න කැමැතියි.
+
+විෙශේෂෙයන්ම ඉතාම වැදගත් ෙරගුලාසි කිහිපයක් අද ෙමම ගරු සභාවට ඉදිරිපත් කිරීමට අෙප් රජය කියා කරලා තිෙබනවා. අපි දන්නවා එක්තරා කාලයක අෙප් රෙට් අබලි ෙලෝහ වර්ග අපනයන කිරීම පිළිබඳ කිසිම ආකාරයක ෛනතික වග කීමක් තිබුෙණ් නැහැ කියා. ඕනෑම ෙකනකුට ඒ අබලි දවɕ අරෙගන යන්න පුළුවන්කම තිබුණා. ඒ නිසා විෙශේෂෙයන් ලංකාෙව් තිෙබන යකඩ කර්මාන්තශාලාවලට එම අබලි දවɕ ලබා ගැනීෙම්දී ෙලොකු හිඟයක් තිබුණා. ෙමොකද, ලංකාව තුළ ලබා ගන්න පුළුවන් මිලට වඩා වැඩි මිලකට ෙම්වා ලබා ෙගන ෙම්වා පිට රට පැටවීෙම් වɕාපාරයක් තිබුණා. ඒ, පිත්තල, ඒ වාෙග්ම අෙනකුත් ෙලෝහ දවɕ සියල්ලක්ම. ඒ නිසා එක්තරා කාලයක ඒවා පිට කිරීම පිළිබඳව ආණ්ඩුව එක්තරා අමාතɕාංශයකට වගකීම පවරලා තිබුණා. ඒ, ඒවා ලංකාෙව් අයට ෙදන්න කියලා. ඒ ෙකෙසේ ෙවතත් මම හිතනවා යම් කිසි ෙරගුලාසියකට, එෙහම නැත්නම් කමෙව්දයකට ෙමය යටත් වීම හරහා එම අබලි දවɕ සම්බන්ධෙයන් වන වැඩ පිළිෙවළ යටෙත් ලංකාෙව් නිෂ්පාදකයන්ට වඩා ෙහොඳ වාතාවරණයක් ඇති ෙවනවා කියලා.
+
+ෙදවැනි වැඩ පිළිෙවළ තමයි ගැසට් පතෙය් පළ වී තිෙබන රසායන දවɕ වර්ග 38 ලංකාවට ෙගන ඒමටත්, ඕනෑම තැනක අෙලවි කරන්නත් ෙමෙතක් කල් පුළුවන්කම තිබීම. එම කරුණු හරියට ෙනොදැන සමහර මන්තීතුමන්ලා ඔවුන්ෙග් කථාවල දී සඳහන් කළා ඒවා ෙගන්වන්න අවසර තිබුෙණ් නැහැ කියලා. නමුත් ඇත්තටම අවසර දීලා තිබුණා. ඒ මඟින් තව දුරටත් සිදු වන ෙදයක් තමයි, ෙරගුලාසි ගත ෙවලා ආනයන අපනයන පාලන
+
+පාර්ලිෙම්න්තුව 363 364
+
+බලපත ය ටෙත් ලබා ගැනීෙම්දී අෙනකුත් පුපුරණ දවɕ සම්බන්ධෙයන් වන ෙරගුලාසි වශෙයන්ම ෙමය වඩා ෙහොඳින් ජනතාවට ලබා ගැනීමට පුළුවන් වීම ෙමන්ම ඒ පිළිබඳව පාලනයකුත් ඇති වීම. විෙශේෂෙයන්ම එක්තරා වකවානුවක ආර්ථික විදɕාෙව් ධනවාදය හුඟක් දුරට විශ්වාස කරන අයවලුන්ෙග් ෙලොකු මතයක් තිබුණා සියලු ෙදයම ෙරගුලාසිවලින් ඉවත් ෙවන්න ඕනෑ කියලා. ආනයන අපනයන පමණක් ෙනොෙවයි, මුළු ආර්ථිකයම ෙරගුලාසිවලින් ඉවත් ෙවන්න ඕනෑ කියලා විශාල මතයක් තිබුණා. ඒ මත ෙය් අවසන් පතිඵලය වුෙණ් ෙලෝක ධනවාදෙය් ඉහළම ෙවෙළඳ ෙපොළ තිබුණු ඇෙමරිකාව ආර්ථිකමය වශෙයන් කඩා ෙගන වැටීමයි. ඇෙමරිකානු ආර්ථිකය කඩා ෙගන වැටීම, අවුරුදු කිහිපයක් ගත වුවත් තවමත් එය සම්පූර්ණෙයන්ම ෙවනස් ෙවලා නැහැ. ඒ නිසා අද ඒක යුෙරෝපා සංගමෙය් ගීසිය වාෙග් රටවල් ඇද වැටීමට පවා බලපා තිෙබනවා. ෙරගුලාසි රහිත නිර්බාධිත ආර්ථික පිළිෙවත විසින් මුළු ධනපති ෙලෝකයම උඩු යටිකුරු කරන්න සූදානම් ෙවලා තිෙබනවා.
+
+නමුත් අපි පිළිගන්න ඕනෑ ශී ලංකාෙව් තත්ත්වය ඊට වඩා ෙවනස් බව. අපි දිගින් දිගටම ෙම් රට මූලɕ පාලනයකට යටත් කර තිබුණා. ඒ වාෙග්ම අ ෙප් රෙට් බැංකු බරපතළ ෙලස පාලනයකට යටත් කරලා තිබුණා. එෙසේ පාලනයකට යටත් කිරීම නිසා සිදු වුණු ෙදයක් තමයි පැහැදිලි ෙලසම ෙලෝක ආර්ථික අවපාතය හමුෙව් අෙප් මූලɕ තත්ත්වය පවත්වාෙගන යාමටත්, ඒ වාෙග්ම බැංකු කමය කඩා ෙනොවැටී තබා ගැනීමටත් අපිට ඉඩ පස්ථාව ලැබීම. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, ඔබතුමා දන්නවා බැංකු කමය කඩා වැටීම තමයි ආර්ථිකය කඩා වැටීමට බලපාන පළමු ආරම්භය කියලා. ඒ සමඟ ඇති වන විශාල පශ්නවලට උත්තර ෙදන්න කිසිෙවකුට පුළුවන්කමක් නැහැ. බැංකුව තමයි සියලු ෙදනාෙග් තැන්පතුත්, ඒ වාෙග්ම තමන්ෙග් තැන්පතු හරහා ලැෙබන ෙපොලියත් ලබා ගන්න පුළුවන් තැන. ඒ නිසා අෙප් රෙට් ඉතාමත්ම ෙහොඳ ආර්ථික වැඩ පිළිෙවළක් අරෙගන ගියාය කියලා මම හිතනවා.
+
+මට මතකයි මීට කලින් එක කථික මන්තීවරෙයක් කියනවා, එතුමාට මතකයි කියලා 1977න් පසු යුගය. 1977න් පසු යුගය අපිටත් මතකයි. 1977න් පසු යුගය ලංකාවට විවෘත ආර්ථිකය නිර්මාණය කළාය, ඒ හරහා විශාල වශෙයන් ආර්ථිකෙය් පසාරණයක් ඇති වුණාය, ඒ ඇති වුණු පසාරණය ෙම් රෙට් ආර්ථිකයට යහපත් මට්ටමින් බලපෑවාය කියලා එක්සත් ජාතික පක්ෂෙය් ෙබොෙහෝ ෙදෙනකුෙග් මතයක් තිෙබනවා. මම ඒක එෙලසම පිළිගන්නට සූදානම් ෙකෙනක් ෙනොෙවයි. මට මතක හැටියට 1977ට ෙපර වකවානුෙව්දී මුළු දකුණු ආසියාෙව්ම ඉතාම ඉහළ මට්ටමට වාහන එකලස් කිරීෙම් කර්මාන්තය තිබුෙණ් ලංකාෙව්යි. එවකට එක්සත් ජාතික පක්ෂෙය් පධාන ආර්ථික උපෙද්ශකෙයක්ව හිටපු, ඒ වාෙග්ම එක්සත් ජාතික පක්ෂයට ෙබොෙහොම උදවු කරපු උපාලි විෙජ්වර්ධන මැතිතුමා තමයි ඒක ආරම්භ කෙළේ. එවකට මට මතකයි, ඉහළම තාක්ෂණෙයන් යුතු වාහන එකලස් කිරීෙම් කර්මාන්තයක් ලංකාෙව් තිබුණා. අඩු ගණෙන් ඒ කාෙල් ඉන්දියාෙව්වත් එවැනි තත්ත්වයක් තිබුෙණ් නැහැ. උපාලි ෆියට්, මැස්ඩා වාෙග් වාහන තමයි එහි සකස් කෙළේ. නමුත් ඒෙකන් පස්ෙසේ ජපානෙය් පාවිච්චි කරන ලද වාහන ආනයනයට ෙපලඹිලා අෙප් රෙට් මුළු වාහන කර්මාන්තයම සම්පූර්ණෙයන් ඇද ෙගන වැටුණා. ඒ කාෙල් අඩක් පාවිච්චි කරපු ටයර් ලංකාවට ඇවිල්ලා ලංකාෙව් අපට තිබුණු ටයර් කම්හල බංෙකොෙලොත් වුණා මට මතකයි. ඒ වාෙග්ම අපට ෙබ්ල් සූට් ආවා. ඒවා මරදාෙන් පාෙර් ෙවළඳාම් කළා. මට මතකයි, ඒ කාෙල් අපට ඉතාම ෙහොඳ වීදුරු කර්මාන්තයක් තිබුණා. මැෙල්සියාව වාෙග් රටවල්වලින් ආපු බාල වීදුරු හැම තැනම තිබිලා ඒ වීදුරු කර්මාන්තය අඩ පණ වුණා. මුළු ලංකාෙව්ම ෙද්ශීය කර්මාන්ත සහමුලින්ම අඩ පණ කිරීමට ෙම් ෙගෝලීය ආර්ථිකකරණෙය් වැරදිම උපාය මාර්ගයක් ෙතෝරා ගත් ෙජ්.ආර්. ජයවර්ධන මහත්තයාෙග් ෙම් ආර්ථික කියාවලිය ෙහේතු වුණා කියලායි මම විශ්වාස කරන්ෙන්. ඒෙකන් අදහස් කරන්ෙන් නැහැ, මම විවෘත
+
+ආර්ථිකය ෙහොඳ නැතැයි කියනවාය කියලා. නමුත් ඒ ෙවනුවට ඉන්දියාව ආරම්භ කරපු පතිපත්තිය දිහා බලන්න. ඔවුන් විවෘත ආර්ථික කමයක් නිර්මාණය කර ගත්ෙත් ඉතාම ෙහමින්. ඒ වාෙග්ම ඔවුන් ෙද්ශීය ආර්ථිකය ආරක්ෂා කරමින් ෙද්ශීය ආර්ථිකයට අවශɕ කරන සියලුම ඉඩ පස්තා, මූලɕ පහසුකම් ලබා දුන්නා. ඒ නිසා සිදු වුණු ෙදයක් තමයි, ඉන්දියාව ෙලෝකෙය් දැවැන්ත කාර්මීකරණයකින් යුක්ත රටක් බවට පත් වීම.
+
+ශී ලංකාෙව් ෙමවැනි වැඩ පිළිෙවළවල් රාශියක් තිබුණා. මම විශ්වාස කරනවා, අතිගරු ජනාධිපතිතුමාෙග් මහින්ද චින්තනය යටෙත් නැවත සැරයක් අෙප් රෙට් ෙද්ශීය ආර්ථිකය පිළිබඳව අලුත් දැක්මකින් අපට බලන්න පුළුවන් වුණාය කියලා. එදා ෙපොෙහොර සහනාධාරය අපි ලබා ෙදන ෙකොට විරුද්ධ පැත්ෙත් ඉඳලා ෙබොෙහෝ ෙදෙනක් ෙම් පිළිබඳව කථා කළා මට මතකයි. නමුත් ගම්වල මන්තීවරු හැටියට අපි දන්නවා, අද වන ෙකොට ලංකාෙව් වී නිෂ්පාදනෙයන් සියයට අනූ පහකට ආසන්න පමාණයක් ෙහෝ සියයට සියයක්ම පාෙහේ අද අප නිෂ්පාදනය කරනවාය කියලා, ෙමම ෙපොෙහොර සහනාධාර කමයට පින් සිදු වන්නට. එය පසුව ෙත් සහ අනිකුත් ෙබෝගවලටත් වɕාප්ත කළා . විෙශේෂෙයන් ෙම් රෙට් සිටින විශාල පිරිසක් වන ෙගොවියාෙග් මූලික ආදායම් මට්ටම වැඩි කිරීමට ඒ කටයුතු නිසා පුළුවන් වුණා. ඒ නිසා අපි පතිපත්තියක් හැටියට අදහන්ෙන් ෙරගුලාසිමය සහ රජය විසින් මැදිහත් වන ආර්ථික කමයක් ෙගන යන්නයි. ඒක ඇතුෙළේ විවෘත ආර්ථික කමයක ලක්ෂණ තිෙබනවා. ඒ වුණත් අපි සම්බාධක ෙයොදලා තිෙබනවා. එෙහම නැත්නම් අපි අවශɕ කරන ෛනතික කියාමාර්ග අරෙගන තිෙබනවා, ෙකොයි යම්ම අවස්ථාවකවත් අෙප් ආර්ථිකය බිඳ ෙනොවැෙටන්නට. ඒ නිසා තමයි අෙප් ඉතුරුම් ෙඩොලර් බිලියන හයක් දක්වා ඉහළ ගිහිල්ලා තිෙබන්ෙන්. ආර්ථික විදɕා වචනවලින් ගත්ෙතොත් අපට ඊ ළඟට ලැෙබන්නට තිෙබන IMF එෙක් ආධාර මුදල, එෙහම නැත්නම් ඒ ෙගවුම් ෙශේෂ තුලනය සඳහා ඕනෑ කරන SDR පමාණය අවශɕද කියන එකත් සමහර ෙව්ලාවට සාකච්ඡා කරන තරමටම අෙප් තත්ත්වය ඉහළ ගිහිල්ලා තිෙබනවා. ෙලෝකෙය් ෙවනත් රටවල් එක්ක සසඳන ෙකොට, ඒ කියන්ෙන් ආර්ථික අවපාතයට ලක් වුණු, ඒ වාෙග්ම බඩු මිල විශාල ෙලස ඉහළ පහළ ගිය වකවානුවක, ෙතල් මිල බරපතළ ෙලස ඉහළ ගිය වකවානුවක, ඒ රටවල් මුහුණ දුන්නු අවස්ථා අර ෙගන බලන ෙකොට, 2008 අවු රුද්ෙද්ත්, 2009 අවුරුද්ෙද්ත් අෙප් රෙට් තස්තවාදයට එෙරහිව බරපතළ හමුදාමය වැඩ පිළිෙවළකුත්, මානුෂික වැඩ පිළිෙවළකුත් තිෙබද්දී සම්පූර්ණෙයන්ම ෙලෝක ආර්ථික පවණතාවන්ට ඉතාම ෙහොඳින් මුහුණ ෙදන්නට අපට පුළුවන් වුණු බව ෙපෙනනවා. ඒ නිසා මම විශ්වාස කරනවා, අතිගරු ජනාධිපතිතුමාෙග් ආණ්ඩුෙව් ඒ මැදහත්, ඒ වාෙග්ම පළල් ආර්ථික වැඩ පිළිෙවළ ඒ සියල්ලටම මුහුණ ෙදන්නට විශාල වශෙයන් යහපතක් වුණු බව.
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees)
+
+Hon. Minister, you have one more minute.
+
+ගරු අනුර පියදර්ශන යාපා මහතා (மாண்ᾗமிகு அᾒர பிாியதர்ஷன யாப்பா) (The Hon. Anura Priyadharshana Yapa) ෙබොෙහෝ විට එක්සත් ජාතික පක්ෂ කථිකයන් තර්ක කරන්න උත්සාහ කෙළේ අෙප් ආර්ථික වැඩ පිළිෙවළ අසාර්ථකයි කියලා කියන්නයි. දැන් මම ඔවුන්ට කියන්න කැමැතියි, අපි ඉතාම ෙහොඳ ආර්ථික මට්ටමක ඉන්නවා ය කියා. ඒ ආර්ථික මට්ටම වැඩි කර ගනිමින් ඒක රෙට් ආර්ථිකයට සම්බන්ධ කරන විශාල වɕාපෘති අපි ආරම්භ කරලා තිෙබනවා. ඒවාෙය් පතිඵල එන්නට ගත වන්ෙන් ෙබොෙහොම ටික කාලයයි. ෙනොෙරොච්ෙචෝෙල් විදුලි බලාගාරය ඉතා ඉක්මනින් ආරම්භ වනවා. ඒක එක්සත් ජාතික පක්ෂය අත හැර දමා තිබුණු වɕාපෘතියක්. දැදුරු ඔය වɕාපෘතිෙය් වැඩ සියයට හැත්තෑවක් ඉවරයි. එයින් වියළි කලාපෙය්; වයඹ පළාෙත් විශාල පිරිසකට ෙසත සැලෙසනවා. ඉහළ ෙකොත්මෙල්
+
+[ගරු අනුර පියදර්ශන යාපා මහතා]
+
+2010 මැයි 06 365 366
+
+විදුලි බලාගාරෙය් වැඩ අවසන්. එතැනින් ෙමගෙවොට් 150ක විදුලිය ධාරිතාවක් අපට එනවා. හම්බ න්ෙතොට වරාෙය් වැඩ අප අවසන් කළාම හම්බන්ෙතොට වරාය හා ආශිත නැව්වලට ෙසේවා සැපයීම් - bunkering- ආදිය අපට විශාල වශෙයන් කරන්නට පුළුවන් වනවා. ෙකොළඹ වරාය තිෙබන පමාණයට වඩා පස් ගුණයක් වැඩි කිරීෙමන් ෙකොළඹ වරාෙය් බහලුම් අපනයනය, පති අපනයනය සම්පූර්ණෙයන්ම පාලනය කර දකුණු ඉන්දියාෙව් පති අපනයනය පිළිබඳ අෙප් තත්ත්වය මුළුමනින්ම හදා ගන්නට අපට පුළුවන් වනවා. ඉදිරිෙය්දී අෙප් ෙතල් පිරිපහදුෙව් ධාරිතාව වැඩි කිරීෙමන් ලංකාවට අවශɕ කරන පිරිපහදු කළ ෙතල් ලබා ගන්නට පුළුවන් වනවා. ෙම් විධියට අවශɕ කරන මූලික සියලු ෙදයම -මහා මාර්ග හා අධිෙව්ගී මාර්ග ඇතුළුව- අප අවසන් කර තිෙබනවා. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, මට මීට වඩා දීර්ඝව කථා කරන්නට කාල ෙව්ලාව තිෙබනවාය කියා මා හිතන්ෙන් නැහැ. එවැනි ෙසෞමɕ, දුර දක්නා ආර්ථික පතිපත්තියකින් අෙප් ආර්ථිකය ෙමෙහයවා ෙම් රට ඉහළම තත්ත්වයකට ෙගන එන බව මතක් කරමින්, ඔබතුමාට ස්තුතිවන්ත ෙවමින් මෙග් වචන ස්වල්පය අවසන් කරනවා.
+
+[අ. භා. 2.57] ගරු අල්හාජ් ඒ.එච්.එම්. අස්වර් මහතා (மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர்) (The Hon. (Alhaj) A.H.M. Azwer)
+
+Bismillahir Rahmanir Raheem. Mr. Deputy Chairman of Committees, after an absence of six years, I am very happy to be able to enter this Chamber and enjoy the lights of it. I like this place and would continue to love this place, particularly with a lot of fair Members who have also entered this august Assembly representing their respective electorates.
+
+Sir, I speak in this Parliament at a time when people are afraid to see the light at the end of the tunnel at Sirikotha, the headquarters of the party which I served for 49 odd years, in which if I remained for a few months - the Hon. S.B. Dissanayake knows it well - I would have been given a gold medal for 50 years of uninterrupted services. That was not to be, very unfortunate for them, but not for me. It is in this context, Sir, that I rise in this House to pay my eternal tribute to His Excellency Mahinda Rajapaksa for spotting me somewhere, may be because of my talent, my ability or may be because he realized the importance for it, and nominated me to this House.
+
+As a Muslim, I believe, Sir, all the blessings are showered on us by our Creator, Allahu ta'ala. I would like to quote Surat An-Nahl, Ayat 18:
+
+"FA-INTHA UDDOO NIHMATHALLAHI LA THUHZUHA - INNALLAHA LA GHA FOORUR RAHEEM"
+
+“If ye would count up The favours of Allah, Never would ye be able To number them: for Allah Is Oft-Forgiving, Most Merciful.”
+
+So, I have come here once again to help steer this country towards development, as the President had envisaged. During the election campaign, I always carried these two books - "මහින්ද චින්තන, අලුත් ශී ලංකාවක්"
+
+- "மஹிந்த சிந்தைன ெதாைலேநாக்கு, ᾗதியேதார் இலங்ைக,
+
+வளமான எதிர்காலம்" - which is my political guidance and philosophy. In the first "Mahinda Chintana", what did the President promise to the people of this country? ෙබදුම් වාදය අත් හැරීම. කළා ද, නැද්ද? අවි හරණය. කළා ද, නැද්ද? පජාතන්තවාදයට පිවිසීම. ඉෂ්ට කළා ද, නැද්ද?
+
+දැන් ඉතින් අවසන් විසඳුම කරා යන්නට තමයි ජනාධිපතිතුමා ජන වරමක් ඉල්ලුෙව්. ඒ වරම ජනාධිපතිතුමාට ෙම් රෙට් හැටලක්ෂයක් ජනතාව දී අවසානයි, ෙම් ෙගොල්ලන් ෙමොන ෙදබිඩි ගැහැව්වත්. කෑරලා වාෙග් උෙද් පාන්දර ඇවිත් සභාෙව් කථා කර, සභාෙව් වැඩ කටයුතු කඩාකප්පල් කරන පිරිසක් වශෙයන් තමයි අද ෙම් විරුද්ධ පාර්ශ්වෙය් සමහර අය කටයුතු කරන්ෙන්. ෙහොඳ ළමයිනුත් ඇවිත් ඉන්නවා. සමහර අය ඉස්ෙසල්ලා අනිසි ෙද්වල් කළ අය. ඒ ෙගොල්ලන් ෙජ්වීපී ෙවන්නත් පුළුවන්. ඒ ෙගොල්ලන් ෙම් වැඩ කරන්ෙන් ඒ නිසා තමයි.
+
+ෙද වන අදියර; අර ඇෙමරිකන් මැගසින් එකක කිව්වා වාෙග් අෙප් ජනාධිපතිතුමා hat-trick එකක් ගැහැව්වා. ඒ කියන්ෙන් political field එෙක් hat-trick එකක්. ආචාර්ය ෙජ්.ආර්.පී. සූරියප්ෙපරුම මන්තීතුමා කථා කරන ෙකොට ඒවා විස්තර ඇතිව කියා ෙද්වි. ජනාධිපතිතුමා කිව්වා, “ ඔක්ෙකොම පළාත් සභා මට ෙදන්න”ය කියා. දුන්නා. එතුමා කිව්වා, “මහ මැතිවරණය මට ජයගහණය කර ෙදන්න”ය කියා. මහ මැතිවරණයට ඉස්ෙසල්ලා ජනාධිපතිවරණෙය්දී වැඩි ඡන්ද දහ අටලක්ෂයක් ලැබුණා. හැටලක්ෂයක් ජනතාවෙගන් ඡන්ද ලැබුණා. ජනාධිපති ධුරය දුන්නා. ඊට පස්ෙසේ කිව්වා, "මට ශක්තිමත් ආණ්ඩුවක් ඕනෑ. ෙම් රට හදන්න ඕනෑ. ෙම් රටට තීන්දු ගන්න ඕනෑ. ෙම් රට සංවර්ධනය කරන්නට ඕනෑ. ඒ සඳහා මට වරමක් ෙදන්න"යි කියා. තුෙනන් ෙදකකට ආසන්න වරමක් දුන්නා ද නැද්ද, ගරු කථානායකතුමනි?
+
+එම නිසා ෙම් අවස්ථාෙව්දී අෙප් රෙට් මහ ජනතාවට අෙප් පණාමය පුදන්නට කැමැතියි. කාටවත් බැහැ, ෙම් යන පාර නවත් වන්නට. එදා මහියංගන තනි අලිෙයක් හිටියා. අද ඒ අලියා ව ෙළේ වැටිලා. ගිහින් බලන්න මහියංගනෙය් තනි අලියාට ෙමොකද ෙවලා තිෙබන්ෙන් කියා. කපනවා, කපනවා, ටිෙපක්ස් කරනවා. ඉවරයක් නැහැ, තමුන්නාන්ෙසේලාෙග් නායකයා කපලා, කපලා. පුරුදු ෙද්වල් ෙන් ෙම්වා. අන්තිමට කාටද කැපුෙව්? කාවද ටිෙපක්ස් කෙළේ? මහාමානɕ ඩී.එස්. ෙසේනානායක මැතිතුමාෙග් -ජාතිෙය් පියාෙග්- මුණුබුරා වන රුක්මන් ෙසේනානායක මහතාවත් ටිෙපක්ස් කළා. අප ආවාට පස්ෙසේ තමයි එක්සත් ජාතික පක්ෂෙය් ෙම්ක වන්ෙන්. ඒකයි එදා මා උඩු නුවර ෙව්දිකාෙව්දී කිව්ෙව්. අප ආවාට පස්ෙසේ; ෙම් පක්ෂයට ජනතාව කියන්ෙන් United National Party ෙනොෙවයි, "United Tippex Party" කියලායි. එෙහමයි හඳුන් වන්ෙන්.
+
+ඒ අතරතුර මා කියන්නට ඕනෑ. අන්න අනාගත "Leader" සභාවට එනවා වාෙග් ෙප්නවා. ගරු සජිත් ෙපේමදාස මන්තීතුමා, දෑත් දිගු කර තමුන්නාන්ෙසේව අප පිළිගන්නවා. ඒ වාෙග්ම එතුමාත් සමඟ අර ෙගන එන්න, අෙප් රංජිත් මද්දුම බණ්ඩාර මන්තීතුමාත්, ඉම්තියාස් බාකීර් මාකාර් මහතාත්.
+
+එක අතකින්, ඇත්ත වශෙයන්ම ෙහොඳ පාර්ලිෙම්න්තුවක් ෙම්ක. අපට දුර ගමනක් යන්නට පුළුවන් පාර්ලිෙම්න්තුවක් ෙම්ක. උදවු කරන්න. ෙම් පාර්ලිෙම්න්තුෙව් කවුද ඉන්ෙන්? කවුද නිෙයෝජනය කෙළේ? කාදර් මහත්මයාත් ආවා ෙන්ද? ෙහොඳ ෙවලාවට තමුන්නාන්ෙසේ මට ඒක මතක් කෙළේ. කාදර් හජ්ජියාර් මහතා ෙමොන තරම් කැක්කුමකින් ෙම් පක්ෂය ෙවනුෙවන් -එක්සත් ජාතික පක්ෂය ෙවනුෙවන්- ෙසේවය කළා ද කියා මා
+
+5 — PL 004841 - (2010/05)
+
+පාර්ලිෙම්න්තුව 367 368
+
+දන්නවා. ඉන්න මා ඒවා කියන්නම්. එතුමාට දැන් ෙමොකද ෙවලා තිෙබන්ෙන්? මුස්ලිම් සංවිධායක ධුරය දුන්නා තියා ගන්න. අවුරුදු හයකට පස්ෙසේ; මා කිව්වාට පස්ෙසේ තමයි එතුමා කියන්ෙන්, ''තියා ගන්න 'ස ලාම්' මම ගිහින් එන්නම්.'' කියලා. ඒකයි අද ෙවලා තිෙබන්ෙන්. ෙම් බලන්න. ෙම් පාර්ලිෙම්න්තුෙව් මහාචාර්යවරු ඉන්නවා. ෙම් පාර්ලිෙම්න්තුෙව් ඉන්නවා, විවිධ අය; විවිධ ක්ෙෂේතවල දක්ෂකම් ෙපන් වන අය; බුද්ධිමත් අය. පුරා විදɕා චකවර්තී ගරු ෙම්ධානන්ද හිමිපාෙණෝ ෙමහි ඉන්නවා. මාධɕ ෙලෝකෙය් චකවර්තී ගරු ෙජ්.ආර්.පී. සූරියප්ෙපරුම මහතාට ජාතිය ෙවනුෙවන් ෙගෞරවය හිමි වී ෙම් සභාවට අද ආවා. සිඟිති බබාෙග් චරිතය පබා රඟපාන්න සූදානම් වන විට අෙප් සිනමා ෙලොෙව් අග රැජින ගරු මාලනී ෙෆොන්ෙසේකා මහත්මිය ෙසෙනෙහබර මවකෙග් චරිතයක් රඟපාන්න ඇවිල්ලා ඉන්නවා. ෙලෝක රූප සුන්දරී -හැබැයි විවාහක- ගරු ෙරෝසි ෙසේනානායක මැතිනියත් ඇවිල්ලා ඉන්නවා. අපි ඔවුන්ව පිළිගන්නවා. විපක්ෂය පැත්ෙත් ඉන්නවා-
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees)
+
+Hon. Azwer, you have only one more minute.
+
+ගරු අල්හාජ් ඒ.එච්.එම්. අස්වර් මහතා (மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர்) (The Hon. (Alhaj) A.H.M. Azwer) එච්චරද?
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees) එච්චරයි.
+
+ගරු අල්හාජ් ඒ.එච්.එම්. අස්වර් මහතා (மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர்) (The Hon. (Alhaj) A.H.M. Azwer) තවම පටන් ගත්ෙතත් නැහැ ෙන්. ෙම් සභාෙව් විපක්ෂය පැත්ෙත් සිටින ගරු රන්ජන් රාමනායක මහතා "වන් ෙෂොට්" එකක් ෙදන ෙකොට, "සික්ස්සර් ෙෂොට්" එකක් ෙදන්න ගරු සනත් ජයසූරිය මැතිතුමා ෙම් සභාවට පැමිණ තිෙබනවායි කියන එක මම අද තහවුරු කරනවා.
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, සුපුරුදු විධියට ෙපොඩි කවි මල් දමකින් ෙම් සභාෙව් නව මන්තීවරු පිළිගැනීමට මා කැමැතියි.
+
+පැරකුම් යුගයක් යළි බිහි ෙව්වා ! 1. මාගම්පුර මැදමුලනින් හමනා මඳ සුළඟත් සැපතකි සිත් නිවනා ජනපතිඳුන්ෙග් ෙමෙහවර අගනා ෙනො අඩුව හැමටම සැලෙසේ නිතිනා 2. එකමුතු වී ෙනොබැඳී කිසි පිලකට අපි පියවර ගමු රට දැෙය දියුණට ජනපතිඳුන් ෙදන ඔවදන් ගරුෙකොට අපි ෙවෙහෙසමු නිති රට ෙගොඩ නැඟුමට 3. අසමඟිකම අප ළඟ පවතින කල් දියුණුව වැනෙසනු නියතය හැමකල් සමඟිව අපි එකමුතුව සිටින කල් සුදනන් අප හට ඔසවති ෙකොඩි වැල්
+
+4. ගිලිහුණු සමඟිය යළි ෙගොඩ නැඟුණා පරවුණු සාමෙය මල් යළි පිපුණා පිබිදුණු රට දියුණුව ෙවත ඇදුනා රැකගමු සිරිලක එකමුතු ෙවමිනා 5. මහින්ද මැතිසඳු ගනිමින් ෙපරමුණ චමල් මැතිඳුට දී මැති සෙබ මුල්තැන ෙගෝඨාභය, නාමල් ද බැසිල් යන හැම හා ෙසොෙහොයුරු දමින් ෙවලීෙගන ෙම් ෙසොෙහොයුරු සමාගම රටට ආදර්ශයක්; රටට ශාන්තියක්; it is a blessing for the nation. ෙම් රට දියුණුව කරා ෙගන යන්ෙන් ෙම් ෙසොෙහොයුරු සමාගමයි. ෙම් ෙසොෙහොයුරු සමාගම ෙම් රට දියුණුව කරා ෙගන යන්ෙන් ෙම් මහින්ද චින්තන අඩි පාෙර් යැයි කියමින් තමුන්නාන්ෙසේලාට ස්තුති කරමින් මම සමුගන්නවා.
+
+[අ. භා. 3.05] ගරු ෙරෝහණ දිසානායක මහතා (පවාහන නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு ேராஹண திசாநாயக்க - ேபாக்குவரத்ᾐ பிரதி அைமச்சர்)
+
+(The Hon. Rohana Dissanayake - Deputy Minister of Transport)
+
+ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, විෙශේෂෙයන් අද යකඩ, ෙලෝහ අපනයනය කිරීම සම්බන්ධෙයන්, රසායනික දවɕ සම්බන්ධෙයන්, ඒ වාෙග්ම දත් බුරුසු සම්බන්ධෙයන් ආනයන අපනයන මූලɕ ෙරගුලාසි, නිෙයෝග ෙම් පාර්ලිෙම්න්තුවට ඉදිරිපත් කර තිෙබන ෙව්ලාෙව්දී, මාතෙල් දිස්තික්කය නිෙයෝජනය කරමින් ෙදවන වතාවටත් මාතෙල් දිස්තික්කෙය් මන්තීවරෙයක් වශෙයන් ෙම් සභාවට ඇවිල්ලා වචනයක් කථා කරන්න මට අවස්ථාව ලබා දීම පිළිබඳව මා ඔබතුමාට ෙබෙහවින්ම ස්තුතිවන්ත වනවා. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, අපෙග් ආදරණීය මාතෘ භූමියට ස්වර්ණමය යුගයක් උදා කරමින් වැදු මවටද, උපන් ෙද්ශයටද ණය ෙගවා අවසන් කළ අෙප් සදාදරණීය නායක අතිගරු ජනාධිපතිතුමන්ෙග් අචල, තිරසාර අධිෂ්ඨානයත්, කළමනාකරණ ෙකෞශලɕයත්, ෙද්ශ ෙපේමිත්වයත් තුළින් සුවපත් වූ ශී ලංකා වර්තමානය ආශ්චර්යවත් ෙහටක් බවට පරිවර්තනය කරනු පිණිස ෙම් ස්වර්ණමය යුගෙය් ෙම් උත්තරීතර සභාව මාතෙල් ජනතාව හා සමස්ත රෙට් ජනතාව ෙවනුෙවන් නිෙයෝජනය කිරීමට මට අවස්ථාව ලැබී තිෙබනවා. ඒ අවස්ථාව ලබා දුන් අතිගරු ජනාධිපතිතුමාටත්, මාතෙල් ජනතාවටත් මෙග් ස්තුතිය ෙම් ෙමොෙහොෙත් පුද කරන්නට මා සූදානම්. ගරු නිෙයෝජɕ කාරක සභාපතිතුමනි, අෙප් මුතුන් මිත්තන්ෙග් රුධිරෙයන් ෙපෝෂිත, ඔවුන්ෙග් හුස්ෙමන් සිසිල් වූ ෙම් රත්තරන් භූමිය තස්තවාදෙයන් මුදා ෙගන, ජනතාවට බිෙයන් හා සැකෙයන් ෙතොරව -
+
+නිෙයෝජɕ කාරක සභාපතිතුමා (குᾨக்களின் பிரதித் தவிசாளர் அவர்கள்) (Mr. Deputy Chairman of Committees)
+
+Will an Hon. Member propose the Hon. (Alhaj) A.H.M. Azwer to take the Chair?
+
+ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris)
+
+I propose that the Hon. (Alhaj) A.H.M. Azwer do now take the Chair.
+
+පශ්නය විමසන ලදින්, සභා සම්මත විය. வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. Question put, and agreed to.
+
+[ගරු අල්හාජ් ඒ.එච්.එම්. අස්වර් මහතා]
+
+2010 මැයි 06 369 370
+
+අනතුරුව නිෙයෝජɕ කාරක සභාපතිතුමා මූලාසනෙයන් ඉවත් වූෙයන්, ගරු අල්හාජ් ඒ. එච්. එම්. අස්වර් මහතා මුලාසනාරූඪ විය.
+
+அதன்பிறகு, குᾨக்களின் பிரதித் தவிசாளர் அவர்கள் அக்கிராசனத்தினின்ᾠ அகலேவ, மாண்ᾗமிகு (அல்ஹாஜ்) ஏ.எச்.எம். அஸ்வர் அவர்கள் தைலைம வகித்தார்கள்.
+
+Whereupon MR. DEPUTY CHAIRMAN OF COMMITTEES left the Chair, and THE HON. (ALHAJ) A.H.M. AZWER took the Chair.
+
+ගරු ෙරෝහණ දිසානායක මහතා (மாண்ᾗமிகு ேராஹண திஸாநாயக்க) (The Hon. Rohana Dissanayake) මූලාසනාරූඪ ගරු මන්තීතුමනි, කවි මල්දමක් පාර්ලිෙම්න්තුවට ලබා දීලා ඊට ෙමොෙහොතකට පසුව මූලාසනයට පැමිණ සිටින ඔබතුමා හමුෙව් වචනයක් කථා කිරීමට මට අවස්ථාව ලැබීම ගැන මා සතුටු වනවා. විෙශේෂෙයන්ම මා කියා ෙගන ආපු විධියට ජනතාවට බිෙයන් හා සැකෙයන් ෙතොරව ජීවත් වීමට වරම් දුන් අෙප් ආදරණීය නායකතුමන්ෙග් මහින්ද චින්තන පතිපත්තිය ඔස්ෙසේ යමින් තිරසාර සංවර්ධනයක් ෙවනුෙවන්, කඳුළු නැති ෙහටක් ෙවනුෙවන්, ණය නැති ජාතියක් ෙගොඩ නැඟීම ෙවනුෙවන්, අපට ඊ ළඟ යුද්ධය ආරම්භ කරන්නට සිදු ෙවලා තිෙබනවා. ඒ යුද්ධය කියන්ෙන් සංවර්ධන යුද්ධයයි මූලාසනාරූඪ ගරු මන්තීතුමනි. ඒ සංවර්ධන අභිෙයෝගය අද ආරම්භ කරන්නට සිදු ෙවලා තිෙබනවා.
+
+මූලාසනාරූඪ ගරු මන්තීතුමනි, ලතින් දාර්ශනිකයකු ෙමෙසේ දක්වා තිෙබනවා:
+
+"Omnem crede diem tibi diluxisse supremum" "අද දවස ඔබට ලැබුණු අවසන් දවස කියලා හිෙත් තියා ෙගන වහා වැඩ පටන් ගන්න." කියන එකයි ඒ කියන්ෙන්.
+
+අතිගරු ජනාධිපතිතුමාෙග් නායකත්වය යටෙත් එක්සත් ජනතා නිදහස් සන්ධානෙයන් තරුණ මන්තීවරුන් විශාල පිරිසක් අද ෙම් ගරු සභාව නිෙයෝජනය කරනවා. උගතුන්, බුද්ධිමතුන්, වියතුන්, වෘත්තීයෙව්දීන් විශාල පිරිසක් ෙම් උත්තරීතර පාර්ලිෙම්න්තුවට ෙගනැල්ලා ෙම් රෙට් අනාගත දිශානතිය ෙවනස් කරන්න ෙබොෙහොම වුවමනාෙවන් වැඩ කරන ෙවලාවක තමයි ෙම් හත්වන පාර්ලිෙම්න්තුෙව්දී අපට ෙම් වාෙග් කථා කරන්න අවස්ථාව ලැබිලා තිෙබන්ෙන්. ඒක අෙප් භාගɕයක් හැටියට මා කල්පනා කරනවා.
+
+මූලාසනාරූඪ ගරු මන්තීතුමනි, ''සංවර්ධනය නම් වූ කද ෙගන යන කත්කරුවා වන්ෙන් ෙද්ශ ෙපේමයයි.'' යනුෙවන් කියමනක් තිෙබනවා. එබැවින් ජනතාව සුවපත් කිරීෙම් ෙයෝධ කාර්යය උෙදසා ෙද්ශ ෙපේමෙයන් හා ෙද්ශාභිමානෙයන් යුතුව ෙම් ෙද්ශයට නායකත්වය ෙදන අතිගරු ජනාධිපතිතුමන්ෙග් පරිණත හා දූරදර්ශී මඟ ෙපන්වීම යටෙත් ෙම් ෙද්ශය ෙහට ආසියාෙව් ආශ්චර්යවත් ෙද්ශය බවට පත් කිරීම එතරම් දුෂ්කර ෙනොවනු ඇති බව අපට පකාශ කරන්නට පුළුවන්. ෙම් පාර්ලිෙම්න්තුව දිහා බැලුවාම, ෙම් පාර්ලිෙම්න්තුෙව් සංයුතිය දිහා බැලුවාම, වැඩ කිරීමට තිෙබන වුවමනාව දිහා බැලුවාම, ඒ දුෂ්කර කාර්යය ජය ගැනීමට අපට පුළුවන් කියන විශ්වාසය ෙවන කවර දාටත් වඩා අපට තිෙබන බව ෙම් අවස්ථාෙව් මතක් කරන්න ඕනෑ.
+
+මූලාසනාරූඪ ගරු මන්තීතුමනි, විෙද්ශීය ණය බරින් හා දැනට පවතින දරිදතාෙවන් මිදී රටට බත සපයන ෙගොවියා හා සකලවිධ අවෙශේෂ බර උසුලන ශමිකයා සතුටට පත්ව අපට ආශීර්වාද කරන දවස ඈතක ෙනොවන බව ෙමහිදී මා සඳහන් කළ යුතුයි. අෙප් ආර්ථික සංවර්ධන අමාතɕ ගරු බැසිල් රාජපක්ෂ මැතිතුමා ඇතුළු නිෙයෝජɕ අමාතɕතුමන්ලා, ඒ වාෙග්ම සමස්ත අමාතɕ මණ්ඩලය සහ රජය ෙම් ආර්ථික සටන, ඒ අභිෙයෝගය ජය ගන්න ෙහට දවෙසේ කටයුතු කරනවාය කියන එකත් ෙම් ෙවලාෙව් මා මතක් කරන්න ඕනෑ.
+
+මූලාසනාරූඪ ගරු මන්තීතුමනි, "ද ෙල් මිසරාබ්ෙල්" නව කථාෙව් දී වික්ටර් මාරි හɖෙගෝ කියනවා, "The best altar in the world is the consoled heart of the poor". "ෙලෝකෙය් උත්තරීතරම පූජාසනය වනාහී සනසන ලද දුප්පතාෙග් හදවතයි." දුප්පතාෙග් හදවත සැනසුවාට පසුව ඒක ෙලෝකෙය් උත්තරීතරම පූජාසනය වන බව "ද ෙල් මිසරාබ්ෙල්" කියන නව කථාෙව් මාරි හɖෙගෝ පකාශ කර තිෙබනවා, මූලාසනාරූඪ ගරු මන්තීතුමනි.
+
+Sir, it is our bounden duty to work in unity and with integrity to attain sustainable development and through that to console the people who are suffering from poverty. ඒ අනුව අතිගරු ජනාධිපතිතුමාෙග් නායකත්වය යටෙත් ජනතා හඬ ෙදෝංකාර ෙදන භූමිය බවට ෙම් ගරු සභාව පත් ෙකොට, දුප්පතුන්ෙග් සැනසීම ළඟා කර ෙදන්නටත්, ෙම් රෙට් ජනතාවෙග් සැනසීම ළඟා කර ෙදන්නටත්, මහින්ද චින්තනෙය් ඉදිරි දැක්ම අර්ථ ගන්වන්නටත් ජාති, කුල, ආගම් හා පක්ෂ ෙභ්දෙයන් ෙතොරව අපි ඔක්ෙකොම එකට එකතු ෙවලා කටයුතු කරමුය කියන ෙයෝජනාව ෙම් ෙවලාෙව් ෙම් ගරු සභාවට ඉදිරිපත් කරනවා.
+
+මූලාසනාරූඪ ගරු මන්තීතුමනි, සිංහල, ෙදමළ, මුස්ලිම්, බර්ගර්, මැෙල් ආදී සියලුම ශී ලාංකීය ජනයා ඒක රාශි ෙකොට, ෙද්ශීය හා විෙද්ශීය සියලු ෙදෝහී බලෙව්ගයන්ෙගන් අපෙග් ෙද්ශය ආරක්ෂා කර ගනු පිණිස සෙහෝදරත්වෙයන් අත් වැල් බැඳ ගත යුතු බව අපි ෙම් ෙවලාෙව් පකාශ කරන්න ඕනෑ. ෙදමළ කියමනක් තිෙබනවා, "ஒன்ᾠ பட்டால் உண்ᾌ வாழ்ᾫ" කියලා. ඒ කියන්ෙන්, "එක් වී එකට නැඟී සිටිමු. ෙවන් වුෙණොත් වැනෙසනවා." කියන එක. එබැවින් ශී ලංකා ෙද්ශෙය් ෙපොදු ජනතාවෙග් නාමෙයන්, රෙට් සංවර්ධනෙය් නාමෙයන්, අනාගත දරු පරපුෙර් නාමෙයන් ෙම් ගරු සභාෙව් සියලු ෙදනාම -පක්ෂ, විපක්ෂ අප සියලු ෙදනාම- එකම ධජයක් යටෙත් එකට එකතු ෙවලා, ෙම් ෙසොඳුරු රට ෙගොඩ නඟන්නට එක් ෙවමුයි කියලා හත්වන පාර්ලිෙම්න්තුෙව් මෙග් පළමු වන කථාෙව්දී මා පකාශ කරනවා. මූලාසනාරූඪ ගරු මන්තීතුමනි, සම්මා සම්බුදු රජාණන් වහන්ෙසේ ෙද්ශනා කරනවා, "ජනං රංෙජ්තීති රාජා" කියලා. සම්මා සම්බුදු රජාණන් වහන්ෙසේෙග් ධර්මයට අනුව ජනතාව සනසන්ෙන් කවෙරක්ද, ෙහෙතම රෙජක් කියලා සඳහන් කරනවා. අවුරුදු 33ක් තිස්ෙසේ ෙම් රෙට් කාලකණ්ණි ම්ෙල්ච්ඡ තස්තවාදයක් තිබුණා. තස්තවාදය කියන වචනය නිසා අකැමැත්ෙතන් වුණත් ආකූල, වɕාකූල, අවිනිශ්චිත ජීවිත ගත කරපු ජනතාවක්, අපි. පසු ගිය අවුරුද්ෙද් මැයි මාසෙය් 18 වන දා යුද්ධය නතර කරලා සාමය උදා කළා. අෙප් සජින් ද වාස් ගුණවර්ධන මැතිතුමා කිව්ව විධියට ෙම් රෙට් සමස්ත ජනතාවෙග් පළමු වන වුවමනාව ෙම් රෙට් සාමය ඇති කරලා, නිදහස ඇති කිරීමයි. ජනාධිපතිතුමා ඒ සඳහා කටයුතු කරලා තිෙබනවා. සමස්ත රට වැසියන් පමණක් ෙනොෙවයි, ෙලෝ වැසියන් පවා සාමය කියන වචනයට ෙබොෙහොම කැමැති ෙවලා තිබුණා. සාමය යටෙත් ෙම් රෙට් ඇති වුණු සමෘද්ධිය තුළ, අතිගරු ජනාධිපතිතුමා අකැමැති වුණත් එතුමා රෙජක් වශෙයන් තමයි මා සලකන්ෙන්.
+
+මූලාසනාරූඪ ගරු මන්තීතුමනි, "Go wherever you are sent to. Do what is in the said society. Bloom where you are planted." "ඔබව යවන්ෙන් ෙකොතැනටද, එතැනට යන්න. එතැනට අවශɕ ෙද් කරන්න. ඔබව ෙයද වූ තැන පිපී සුවඳවත් වන්න" කියා කථාවක් තිෙබනවා. අතිගරු ජනාධිපතිතුමා විසින් අප පක්ෂෙය් පාර්ලිෙම්න්තු මන්තීවරුන්, ඒ වාෙග්ම ෙම් රටට විශාල ෙසේවාවක් කළ වියත් ඇමතිවරුන් සමඟ එකට එකතු ෙවලා -විෙශේෂෙයන් තරුණ මන්තීවරුන් එක්ක- ෙම් රට ඉදිරියට ෙගන යන්න-
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ඔබතුමාට නියමිත කාල ෙව්ලාව අවසානයි. ගරු ඇමතිතුමාට පිළිතුරු කථාව කරන්න ඕනෑ.
+
+පාර්ලිෙම්න්තුව 371 372
+
+ගරු ෙරෝහණ දිසානායක මහතා (மாண்ᾗமிகு ேராஹண திஸாநாயக்க) (The Hon. Rohana Dissanayake) මූලාසනාරූඪ ගරු මන්තීතුමනි, ෙම් රෙට් ඒක පුද්ගල ආදායම ගැන අද කථා කළා. මා හිතන හැටියට ෙඩොලර් 2,200ක ඒක පුද්ගල ආදායමක් ලබන ජනතාවක් අද අප රෙට් ජීවත් වන්ෙන්. මහින්ද චින්තනෙය් ඉදිරි දැක්ම තුළ ඒක පුද්ගල ආදායම ෙඩොලර් 4,000ක්, ෙඩොලර් 5,000ක් වන යුගයක් ඇති ෙව්වි.
+
+ඉන්දියාෙව් හිටපු ජනාධිපති ආචාර්ය අබ්දුල් කලාම් මැතිතුමාෙග් "India 2020" කියන ෙපොෙත් 2020 අවුරුද්ෙද් ඉන්දියාව ගැන කල්පනා කරන ෙකොට, අපි කල්පනා කරනවා 2015 අවුරුද්ද වන විට අතිගරු ජනාධිපති මහින්ද රාජපක්ෂ මැතිතුමා යටෙත් ෙම් රට ආසියාෙව් ආශ්චර්යය බවට පත් කරන්න. මහා මාර්ගවලින්, ෙසෞඛɕෙයන්, අධɕාපනෙයන් දියුණු වූ, සියලුම ජනතාවට ෙහොඳින් ජීවත් විය හැකි යුගයක් ඇති කරන්න අපි සියලු ෙදනාම එකතු ෙවලා කටයුතු කරමුය කියන ඉල්ලීම කරමින්, විෙශේෂෙයන් අද මට ෙම් අවස්ථාව ලබා දීම පිළිබඳව ස්තුතිය පකාශ කරමින් මා නිහඬ වනවා. ස්තුතියි.
+
+[අ. භා. 3.18] ගරු රංජිත් සියඹලාපිටිය මහතා (ආර්ථික සංවර්ධන නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு ரஞ்சித் சியம்பலாபிᾊய - ெபாᾞளாதார அபிவிᾞத்தி பிரதி அைமசர்)
+
+(The Hon. Ranjith Siyambalapitiya - Deputy Minister of Economic Development)
+
+මූලාසනාරූඪ ගරු මන්තීතුමනි, පළමුෙවන්ම මා සන්ෙතෝෂ වනවා, ෙම් නව පාර්ලිෙම්න්තුෙව් පළමුෙවන්ම ඉදිරිපත් කළ ආනයන හා අපනයන (පාලන) පනත යටෙත් එන නිෙයෝග සම්බන්ධ විවාදෙය්දී ඔබතුමා මූලාසනෙය් සිටියදී පිළිතුරු කථාව කරන්න ලැබීම ගැන.
+
+ඒ වාෙග්ම කෑගල්ල දිස්තික්කෙයන් 1,45,915ක් වැනි වාර්තාගත මනාප පමාණයක් -පතිශතයක් හැටියට සියයට 65ක්- ලබා දීලා, හතරවන වතාවටත් ෙම් උත්තරීතර පාර්ලිෙම්න්තුවට මාව පත් කර එවන්න කටයුතු කළ, කෑගල්ල දිස්තික් ජනතාවට මාෙග් සුවි ෙශේෂී ස්තුතිය පළ කළ යුතුයි කියලා මා හිතනවා. ඒ වාෙග්ම ආසියාෙව් ආශ්චර්යය නිර්මාණය කිරීම සඳහා කටයුතු කරන අතිගරු ජනාධිපතිතුමා ඒ වැඩ පිළිෙවෙළේ සුවිෙශේෂ අමාතɕාංශයක් වන ආර්ථික සංවර්ධන අමාතɕාංශෙය් නිෙයෝජɕ අමාතɕ ධුරය මට ලබා දීම පිළිබඳවත් මා ස්තුතිවන්ත වනවා. ඒ වාෙග්ම, ඔබතුමා කී ආකාරයට අද ෙම් ගරු සභාව ෙබොෙහොම ෙසෞන්දර්යාත්මක සභාවක්, කලාත්මක සභාවක්, ආශ්චර්යවත් සභාවක්ය කියන එක අපට ෙපෙනනවා. අපි සමස්ත ජනතාවට ස්තුතිවන්ත විය යුතුයි ෙම් සභාව ෙම් ආකාරයට වර්ණවත් කිරීම පිළිබඳව. ඒ වාෙග්ම නවක මන්තීවරුන්ෙග් කතා අපි අහ ෙගන සිටියා. අපට ෙබොෙහෝ බලාෙපොෙරොත්තු තියා ගන්න පුළුවන් මූලාසනාරූඪ ගරු මන්තීතුමනි, ෙහොඳ ගමනක් යන්න ඒ තරුණ මන්තීවරුන්ෙග් ශක්තිය ෙම් රටට ලැෙබ්විය කියා.
+
+අද ඉදිරිපත් ෙවලා තිෙබන්ෙන් ආනයනය හා අපනයන (පාලන) පනත යටෙත් වූ නිෙයෝග කිහිපයක්. ඉතාම සරලව කිව්ෙවොත් ෙම්ක ෙම් රෙට් ෙද්ශීය විෙද්ශීය ෙවළඳාම වඩාත් කමවත් කිරීමට, රටට ගැළෙපන පරිදි නමɕශීලී බවට පත් කිරීම පිළිබඳව වූ නීති මාලාවක්. සරල නීති කිහිපයක් ඉදිරිපත් කරලා, කියාත්මක කරලා ඒ ගැසට් එක අවශɕ දින වකවානුවලදී පාර්ලිෙම්න්තුවට ඉදිරිපත් කරලා සම්මත කර ගැනීමක් තමයි අද ෙම් ෙකෙරන්ෙන්. ෙමෙතක් ඉවක් බවක් නැතුව ෙම් රටින් පිට කළ අබලි ෙලෝහ දවɕ ගැන මින් පසුව ෙසොයා බැලීමක් කරලා ෙම් රටට අවශɕ ටික රඳවා ෙගන අනවශɕ ෙදය පිටත් කිරීමට කටයුතු කරමුය කියන නීතියක් ෙම්ෙකන් පනවා තිෙබනවා. ඒක ෙම් සභාවට ෙයොමු කරලා අපි සම්මත කර ගන්නවා. ඒ වාෙග්ම රසායනික අවි පනත යටෙත් අන්තරායකාරී වූ සමහර රසායනික
+
+දවɕ ෙම් රෙට් යහපත සඳහා අවශɕ ෙවලා තිෙබනවා. පාලනයක් ඇතුව, බලපතයක් ඇතුව අවශɕතාව අනුව ඒවා ෙම් රටට ෙගන්වන්නට අවසර ෙදනවාය කියන එක ෙමහි සඳහන් වනවා. ෙම්ක මහා භයානක ෙදයක්ය කියා එක මන්තීතුෙමක් කියනවා මා අසා ෙගන සිටියා. නැහැ. අප ෙම් රටට තුවක්කු, පිස්ෙතෝල පවා ෙගන්වනවා. ඒවා පාලනයක් ඇතුවයි ෙගන්වන්ෙන්. ඒ, අවශɕතාව ෙයෙදන විධියට. ඒ වාෙග් ෙයෝජනාවක් ෙම් පාර්ලිෙම්න්තුෙව්දී සම්මත කර ගැනීම තමයි ෙම් තුළින් සිද්ධ වන්ෙන්. හැම ෙදයක් දිහාම භයානක විධියට බැලීෙම් අවශɕතාවක් නැහැ. ඒ වාෙග්ම ෙද්ශීයව නිෂ්පාදනය ෙකෙරන දත් බුරුසු සඳහා පමිති කාර්යාංශෙය් පමිතියක් තිෙබනවා. අපි කියනවා, පිට රටින් ෙගන්වන ඒවාටත් ඒ පමිතිය ලබා ෙදන්නය කියා. ඉතාම සරල කාරණා කිහිපයක් නිෙයෝග හැටියට පාර්ලිෙම්න්තුවට ඉදිරිපත් කරලා, කියාත්මක කරලා අවශɕ කාල ෙව්ලාෙව්දී සම්මත කර ගැනීමක් තමයි අද සිදු වන්ෙන් මූලාසනාරූඪ ගරු මන්තීතුමනි. ඒ වාෙග්ම මට විනාඩි 20ක් තිබුණා. ඔබතුමා මට ෙදන්න සූදනම් ෙකොච්චර ෙවලාවක්ද?
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) විනාඩි 17යි. ගරු රංජිත් සියඹලාපිටිය මහතා (மாண்ᾗமிகு ரஞ்சித் சியம்பலாப்பிட்ᾊய) (The Hon. Ranjith Siyambalapitiya) ෙම් සභාෙව් නිතර නිතර කියැ ෙවන, ඒ වාෙග්ම මාධɕවලිනුත් කියැ ෙවන කාරණයක් තමයි, අය වැය ඉදිරිපත් කිරීෙම් පමාදයක් වනවාය කියන කාරණය. ඒ ගැන ෙබොෙහෝ ෙද්වල් කියන්න උත්සාහ ගන්නවා මා දැක්කා. අපි අතුරු සම්මත ගිණුමක් ෙගනාවා. ඒ ගැන කරුණු පැහැදිලි කළා, අතුරු සම්මත ගිණුමක් ෙගනාෙව් ඇයි කියා. ෙම්ක පාර්ලිෙම්න්තුෙව් පථම වතාවට ෙවච්ච සිද්ධියක් ෙනොෙවයි. රෙට් අවශɕතාව මත කිහිප වතාවක් අතුරු සම්මත ගිණුම් ෙගනල්ලා තිෙබනවා. නීතිය ඒ සඳහා අවකාශ දී තිෙබන්ෙන් එහි අවශɕතාවක් තිෙබන නිසායි. එෙහම නැත්නම් අතුරු සම්මත ගිණුමක් කියන එකක් අවශɕ වන්ෙන් නැහැ ෙන්. පාර්ලිෙම්න්තුවට, පාර්ලිෙම්න්තුෙව් මූලɕ පාලනයට, රටට, ජාතියට, ජාතිෙය් අවශɕතාව සඳහා මුදල් ෙවන් කර ගැනීම අවශɕයි. දැන් ඒ කාරණය නිමා ෙවලා තිෙබනවා.
+
+ඒ වාෙග්ම අතිගරු ජනාධිපතිතුමාට ආණ්ඩුකම වɕවස්ථාෙවන් -ෙම් රෙට් උත්තරීතර නීතිෙයන්- ලබා දී තිෙබන බලතල අනුව මාස තුනක් ෙම් රටට අවශɕ රාජɕ මුදල් ෙමෙහය වීම සඳහා අවසර ලබා ගන්න පුළුවන්. ආණ්ඩුකම වɕවස්ථාෙව් 150 (3) වɕවස්ථාව යටෙත් ෙමෙසේ සඳහන් වනවා:
+
+''යම්කිසි වර්ෂයක විසර්ජන පනත් ෙකටුම්පත නීතිය බවට පත්වීමට ෙපර ජනාධිපතිවරයා විසින් පාර්ලිෙම්න්තුව විසුරුවා හරිනු ලැබූ අවස්ථාවක පාර්ලිෙම්න්තුව විසින් රජෙය් ෙසේවාවන් සඳහා මුදල් ෙවන් කර ෙනොමැත්ෙත් නම් අභිනව පාර්ලිෙම්න්තුව රැස්වීමට නියමිත දින සිට මාස තුනක් ඉකුත් වන ෙතක් රජෙය් ෙසේවාවන් සඳහා යම්කිසි මුදලක් අවශɕ ෙවතැයි ජනාධිපතිවරයා සලකයි නම් ඒ මුදල ඒකාබද්ධ අරමුදෙලන් නිකුත් කිරීමටත් වැය කිරීමටත් නියම කිරීමට ජනාධිපතිවරයාට බලය ඇත්ෙත් ය.''
+
+ෙම්ක එක්සත් ජාතික පක්ෂය 1978 දී ෙගනාපු ආණ්ඩුකම වɕවස්ථාව. ඇයි ෙම් වගන්තිය දමා තිෙබන්ෙන්? නිකම් හිතු මනාෙපට දමපු වගන්තියක්ද? නැහැ, මූලාසනාරූඪ ගරු මන්තීතුමනි. ඒක, ෙම් රෙට් ෙම් වාෙග් අවශɕතාවන් පැන නැඟුණාම රාජɕ මූලɕ පාලනය සඳහා දමපු ඉතා වැදගත් වගන්තියක්. අපට ඒක පෙයෝජනයට ගන්න අවශɕ ෙවලා තිෙබනවා. පසුගිය 21 වැනි දා පාර්ලිෙම්න්තුව රැස් වුණා. අය වැය ෙල්ඛනයක් ඉදිරිපත් කරන්න නම් අවම වශෙයන් සති හයක්වත් ගත වනවා. එහි තිෙබන සාමානɕ කියා පටිපාටිය ක්ෂණිකව කියාත්මක කළත් පාර්ලිෙම්න්තුව රැස් ෙවච්ච දවෙසේ ඉඳලා සති හයක් ගත වනවා. ඒ සම්බන්ධ තවත් කාරණා තිෙබනවා. 55ක් තිබුණු අමාතɕාංශ සංඛɕාව අද 40ක් කරලා සුවිෙශේෂී ඉදිරි
+
+2010 මැයි 06 373 374
+
+ගමනක් යන්න -ආසියාෙව් ආශ්චර්යය නිර්මාණය කරන්න- අපි සූදානමින් ඉන්නවා. එෙහම නම් අමාතɕාංශයක කියාකාරිත්වය සඳහා ලබා ෙදන පධානතම ඉන්ධනය කුමක්ද? අපි ෙම් පාර්ලිෙම්න්තුෙව් සම්මත කරන මූලɕ පතිපාදනයි. එෙහම නම් අපි ඒ අමාතɕාංශ සමඟ සාකච්ඡා කරන්න අවශɕයි. අමාතɕාංශ ෙල්කම්වරයා සහ ඔහුෙග් කණ්ඩායම් සමඟ, ඇමතිවරයා සමඟ, නව ඇමතිවරයාෙග් දර්ශනය සමඟ භාණ්ඩාගාරය සාකච්ඡා කරන්න අවශɕයි. අපි සාමානɕෙයන් ඉදිරි වර්ෂය සඳහා අය වැය පිළිෙයළ කරන්න සාකච්ඡා ආරම්භ කරන්ෙන් අදාළ වර්ෂෙය් මාර්තු මාසෙය් ඉඳලායි. එෙහම නම් අඩු ගණෙන් අපි සති ෙදකක් තුනක්, මාසයක් ෙම්ක සාකච්ඡා කරලායි ෙම් කියන ආශ්චර්යවත් ගමන යන්න සූදානම් විය යුත්ෙත්. ඒ නිසා ඒ නිසි පිළිෙවළට අය වැය ෙල්ඛන ඉදිරිපත් කිරීම සඳහා ෙම් රෙට් තිෙබන පධානතම නීතියට අනුව අපි සාධාරණ කාලයක් ලබා ෙගන තිෙබනවා. ෙම් ගැන කථා කරනවා. ෙම් ගැන විවිධ ෙද්වල් කියන්න උත්සාහ කරනවා. නමුත් ඉතාම පැහැදිලිව ෙම් රෙට් අවශɕතාව සඳහා ෙම් මාස තුනට අවශɕ මුදල් පතිපාදන රෙට් පධානතම නීතියට අනුකූලව, ජනාධිපතිතුමාෙග් අනුමැතිය පරිදි ෙම් පාර්ලිෙම්න්තුවට ඉදිරිපත් කර ෙවන් කර ගන්නවා. ඉන් පසු ජුනි මාසෙය් පමණ 2010 වර්ෂය සඳහා අය වැය ෙල්ඛනය ෙගෙනන්න බලාෙපොෙරොත්තු වනවා. ඒ අය වැය ෙල්ඛනෙයනුත් අපි ෙම් කළ වියදම් සියල්ල නැවතත් ෙම් සභාවට ඉදිරිපත් කරනවා. අතුරු සම්මත ගිණුමකින් ෙහෝ ෙම් අවස්ථාෙව් අපි කිසි ෙසේත්ම අපි ෙගනා කමෙව්දය ෙවනස් කරන්ෙන් නැහැ. අපි අලුත් ආදායම් ෙයෝජනා ෙනොෙගෙනන එක පමණයි ෙමතැනදී වන ෙවනස. ෙවනත් කිසිම ෙදයක් නැහැ. ඉන් පසු අපි 2011 වර්ෂය සඳහා ෙම් වර්ෂෙය් ෙනොවැම්බර් මාසෙය් නැවත නිසි පරිදි අය වැය ෙල්ඛනයක් ෙගෙනනවා. ඒ නිසා ෙම් සියල්ලම දිහා ෙද්ශපාලන ඇසින් බලා කථා කරන්න එපා කියන ඉල්ලීම මම ඉතාමත් ෙගෞරවෙයන් ෙම් සභාෙව් විෙශේෂෙයන් විපක්ෂෙය් දැනුවත්, ඒ වාෙග්ම පරිණත මන්තීවරුන්ෙගන් ඉල්ලා සිටිනවා. ඒ වාෙග්ම ෙම් සභාෙව් අද උෙද් ඉඳලා ඇසුණු සමහර කථා ගැන කල්පනා කර බැලුවාම සමහර නවක මන්තීවරුන් සමහර විට බිය වන්නත් පුළුවන්. ෙම් ආර්ථිකය කඩා වැටිලා; අපට යන්න ගමනක් නැහැ; එෙහම තමයි හැම දාමත් විපක්ෂය ෙම් සභාෙව් කථා කෙළේ. මූලාසනාරූඪ ගරු මන්තීතුමනි, ෙකොයිම ෙදයක්වත් ෙහොඳයි කියා කථා කරනවා මම ෙම් සභාෙව් දැක්ෙක් නැහැ. අවුරුදු 30ක් තිස්ෙසේ පැවතුණු තස්තවාදය පරාජය කළ දවසට පසුවදා රැස් වුණු ෙම් පාර්ලිෙම්න්තුෙව්දීවත් විපක්ෂය කියන්න සූදානම් වුෙණ් නැහැ, ජාතිය දිනුවාය කියන සාඩම්බර වගන්තිය. එය පකාශ කරන්න තරම් ෙහොඳ පපුවක්, විවෘත හදවතක් ෙම් සභාෙව් විපක්ෂෙය් මන්තීවරුන්ට තිෙබනවා මම දැක්ෙක් නැහැ. අදත් එෙහමයි. අපි ආර්ථිකය ගැන කථා කරන හැම දවසකම විපක්ෂය කථා කරන්න සූදානම් වන්ෙන් අයහපත් ෙද්වල් ගැන; අසුබ ෙද්වල් ගැන; කඩා වැටුණු ආර්ථිකයක් ගැන. ෙකොෙහේද ෙම්ක ෙවලා තිෙබන්ෙන්? මූලාසනාරූඪ ගරු මන්තීතුමනි, අපි පසු කෙළේ ආර්ථිකයක ඉතාමත් අසීරු යුගයයි; ෙලෝක ආර්ථික අවපාතයයි. අවුරුදු 100කට පස්ෙසේ ඇති වන ආර්ථික පීඩනයකට අපි මුහුණ දුන්නා. අපි යුද්ධයක අවසාන භාගයට මුහුණ දුන්නා. අපි ෙතල් මි ෙලන් දැවුණා. ඒ වාෙග්ම ෙම් වɕවස්ථාව තුළ තිබුණු අස්ථාවර ෙද්ශපාලනෙයන් අපි පීඩාවට පත් වුණා. ෙම් සියල්ල මැද්ෙද් මහ බැංකු වාර්තාව ඉතා පැහැදිලිව කියනවා, අෙප් ආර්ථික වර්ධනය 2009 දී සියයට 3.5ක් අපි පවත්වා ගත්තා කියා. අපි හැම දාම කථා කරන මහා දියුණු රටවල් ගත්ෙතොත් -ෙම්ක හැන්සාඩ්ගත* කරන්න මම ඔබතුමාෙගන් අවසර ඉල්ලනවා.- ඇෙමරිකා එක්සත් ජනපදය ඍණ 2.4යි. යුෙරෝපය ෙපොදුෙව් ඍණ 4.3යි. එක්සත් රාජධානිය ඍණ 4.9යි. ජපානය ඍණ 5.2යි. කැනඩාව ඍණ 2.6යි. ඒ, 2009 දී අත් කර ෙගන තිෙබන ආර්ථික වර්ධනය. අපි ෙම් සියලු බලෙව්ගයන් එක්ක ඍණ 3.5ක ආර්ථික වර්ධනයක් අත් කර ෙගන තිෙබනවා. එෙහම නම් සියලු අභිෙයෝග පරාජය කරමින් ආශ්චර්යවත් ශී ලංකාව නිර්මාණය කරන්න අපි සූදානම්. ෙම් ජාතිය නැගිටින්න සූදානම් ෙවලාව.
+
+අන්න ඒ ෙවලාෙව් තමන්ෙග් තිෙබන ෙද්ශපාලන මත පමණක්ම යැෙපන්ෙන් නැතිව ෙපොදුෙව් බලා ෙම් ජාතිය නැඟිටුවීෙම් සුවිෙශේෂ මහින්ද චින්තනය ආරක්ෂා කරන්න කටයුතු කරන්නය කියන ආරාධනාව නවක මන්තීවරුන්ට කරමින් ඔබතුමාට ස්තුතිවන්ත ෙවමින් මම නිහඬ වනවා.
+
+පශ්නය විමසන ලදින්, සභා සම්මත විය. வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. Question put, and agreed to.
+
+II ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) ගරු කථානායකතුමනි, අගාමාතɕතුමා සහ බුද්ධ ශාසන හා ආගමික කටයුතු අමාතɕතුමා ෙවනුෙවන් මා පහත සඳහන් ෙයෝජනාව ඉදිරිපත් කරනවා:
+
+"ආණ්ඩුකම වɕවස්ථාෙව් 44(2) වැනි වɕවස්ථාව සහ 1969 අංක 1 දරන ආනයන හා අපනයන (පාලන) පනෙත්14 වැනි වගන්තිය සහ 4 වැනි වගන්තිෙය් (3) වැනි උප වගන්තිය සමග කියවිය යුතු, එම පනෙත් 20 වැනි වගන්තිය යටෙත් ජනාධිපතිතුමා විසින් සාදන ලදුව, 2009 ෙනො වැම්බර් මස 09 වැනි දිනැති, අංක 1627/2 දරන අති විෙශේෂ ගැසට් පතෙය් පළ කරනු ලැබ, 2010.05.04 වැනි දින ඉදිරිපත් කරන ලද නිෙයෝග අනුමත කළ යුතු ය."
+
+පශ්නය විමසන ලදින්, සභා සම්මත විය. வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. Question put, and agreed to.
+
+III ගරු මහාචාර්ය ජී. එල්. පීරිස් මහතා (மாண்ᾗமிகு ேபராசிாியர் ஜீ.எல். பீாிஸ்) (The Hon. (Prof.) G.L. Peiris) ගරු කථානායකතුමනි, අගාමාතɕතුමා සහ බුද්ධ ශාසන හා ආගමික කටයුතු අමාතɕතුමා ෙවනුෙවන් මා පහත සඳහන් ෙයෝජනාව ඉදිරිපත් කරනවා:
+
+"ආණ්ඩුකම වɕවස්ථාෙව් 44(2) වැනි වɕවස්ථාව සහ 1969 අංක 1 දරන ආනයන හා අපනයන (පාලන) පනෙත් 4 වැනි වගන්තිෙය් (3) වැනි උප වගන්තිය සහ 14 වැනි වගන්තිය සමග කියවිය යුතු, එම පනෙත් 20 වැනි වගන්තිය යටෙත් ජනාධිපතිතුමා විසින් සාදන ලදුව, 2009 ෙනො වැම්බර් මස 09 වැනි දිනැති, අංක 1627/3 දරන අති විෙශේෂ ගැසට් පතෙය් පළ කරනු ලැබ, 2010.05.04 වැනි දින ඉදිරිපත් කරන ලද නිෙයෝග අනුමත කළ යුතු ය."
+
+පශ්නය විමසන ලදින්, සභා සම්මත විය. வினா விᾌக்கப்பட்ᾌ ஏற்ᾠக்ெகாள்ளப்பட்டᾐ. Question put, and agreed to.
+
+කල්තැබීම
+
+ஒத்திைவப்ᾗ ADJOURNMENT ගරු නිමල් සිරිපාල ද සිල්වා මහතා (மாண்ᾗமிகு நிமல் சிறிபால த சில்வா) (The Hon. Nimal Siripala de Silva) මූලාසනාරූඪ ගරු මන්තීතුමනි, "පාර්ලිෙම්න්තුව දැන් කල් තැබිය යුතුය"යි මා ෙයෝජනා කරනවා.
+
+පශ්නය සභාභිමුඛ කරන ලදී. வினா எᾌத்தியம்பப்ெபற்றᾐ. Question proposed. මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) කල් තැබීෙම් ෙයෝජනාව ගරු රවි කරුණානායක මහතා.
+
+* ලියවිල්ල ඉදිරිපත් ෙනොකරන ලදී. ஆவணம் சமர்ப்பிக்கப்படவில்ைல. Document not tendered. 6 — PL 004841 - (2010/05)
+
+පාර්ලිෙම්න්තුව 375 376
+
+ජාතɕන්තර මුලɕ අරමුදෙල් ණය
+
+පහසුකම අත් හිටුවීම சர்வேதச நாணய நிதியக் கடன் வசதி
+
+இைடநிᾠத்தம் SUSPENSION OF IMF LOAN FACILITY ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) මූලාසනාරූඪ ගරු මන්තීතුමනි, හත්වන පාර්ලිෙම්න්තුෙව් පළමු වන සභාව කල් තැබීෙම් ෙයෝජනාව ෙගෙනන්න මට අවසර දීම සම්බන්ධෙයන් ඔබතුමාට ස්තුතිවන්ත වනවා. මම ෙම් අවස්ථාෙව්දී එම කල් තැබීෙම් ෙයෝජනාව ඉදිරිපත් කර තිෙබන්ෙන් ඇත්තවශෙයන්ම ගිය පාර්ලිෙම්න්තුෙව් තිබුණ වැඩ කටයුත්තක් සම්බන්ධෙයන් අපි ෙනොෙයක් ආකාරෙයන් පශ්න අහලා ඒකට හරියාකාර උත්තරයක් ලැබිලා නැති නිසායි. නමුත් ඒෙකන් ලැබුණු පතිවිපාකය තමයි අද ෙපෙනන්න තිෙබන්ෙන්. මා ඉදිරිපත් කර තිෙබන ෙයෝජනාව කියවන්නම්.
+
+"The IMF lent to the Government of Sri Lanka 2.6 billion US Dollars and in return, the Government of Sri Lanka agreed to conditions that have been imposed by the IMF on the 16th of June 2009.
+
+The Budget of 2010 was supposed to reflect some of these requirements. However, owing to the Presidential Election, the budget was not submitted and substituted with a Vote on Account.
+
+Now, the IMF has stopped providing the agreed loan facility. The Government has increased the prices of flour, bread, gas, milk powder in the last couple of days.
+
+The IMF is calling upon the Government to carry out reforms and submit the Budget if they are to continue with the lending. Please advice the present status and how can we alleviate the hardships imposed on the people."
+
+මූලාසනාරූඪ ගරු මන්තීතුමනි, ගරු නිෙයෝජɕ ඇමතිතුමාට මෙග් ශුභාශිංසනය පතනවා ඉතාමත් වැදගත් කාර්ය භාරයක් භාර අර ෙගන තිබීම සම්බන්ධව. වාද විවාදවලදී නිතර අපිත් එක්ක ගැෙටන්ෙන් නැතුව අපට අවශɕ වන්ෙන් රෙට් ජාතික ආර්ථිකයක් හදන්න ඕනෑය කියන එකයි මා උෙද් මතක් කෙළේ. මා හිතන්ෙන් ගරු නිෙයෝජɕ ඇමතිතුමා ඒ සියලුම කථා අසන්ෙන් නැතුව ෙවන්න ඇති උත්තර දුන්ෙන් කියලා. අපි අලුත් ආරම්භයක් ඇති ෙනොකෙළොත් ෙමොකද වන්ෙන්? අපි විපක්ෂයක් වශෙයන් කියනවා ෙම් රෙට් ආර්ථිකය දවසින් දවස හීන ෙවලා තිෙබනවාය කියා; පශ්න මතු ෙවලා තිෙබනවා කියා. ඔබතුමන්ලා කියන්ෙන් ඒක ෙබොෙහොම සරුසාරවත්ව තිෙබනවා කියන එකයි. අපි ඊට වඩා ෙවනස්. යම් පශ්නයක් තිෙබනවා නම් ෙකොෙහොමද ඒ පශ්නය තිෙබන්ෙන්? ෙකොෙහොමද අපි ඒකට උත්තර ෙදන්න තිෙබන්ෙන්? විවෘතභාවයක් තිෙබනවා. අපි උෙද් කිව්වා වාෙග් එක්සත් ජාතික පක්ෂයට තිෙබන එකම අභිලාෂය ෙම් අවස්ථාෙව්දී ආණ්ඩුව රකින්න ෙනොෙවයි ජනතාව රකින්න; රට රකින්න. ඒ නිසා අපි අලුත් ෙද්ශපාලනයක් ආරම්භ කරමු. ෛවරක්කාර ෙද්ශපාලනයක් නැතුව විපක්ෂෙයන් කියන ෙද්වල් එදා කළා නම් ජී.එල්. පීරිස් ඇමතිතුමාට අද හිලරි ක්ලින්ටන් ගැන කථා කරන්න අවශɕතාවක් නැහැ. දැන් ඒවායි කතා කරන්ෙන්. නමුත් ඕක එදා කතා කළා නම් වස විස. එදා කිව්ෙව් ඇෙමරිකන් කුමන්තණයක් කියා. අද කියන්ෙන් telegram එකක් ගැහුවායි කියලායි; ෙබොෙහොම ෙහොඳ යාළුෙවෝ වුණාය කියලායි. ෙම්වා තමයි කියන්ෙන්. ලංකාව ෙලෝකයත් එක්ක එක්සත් ෙවලා ඉදිරියට යන්න අවශɕයි.
+
+අද “Daily Mirror” පත්තෙර් ෙමන්න ෙමෙහම සඳහන් වනවා:
+
+“IMF concerned on Lanka’s weak fiscal position.”
+
+අපි ෙනොෙවයි එෙහම කියන්ෙන්. ඔබතුමන්ලා තමයි අවුරුදු 3කට ඉස්ෙසල්ලා ජාතɕන්තර මූලɕ අරමුදලට පයින් ගැහුෙව්. ඊට පස්ෙසේ ඔබතුමන්ලා තමයි ශුද්ධ කරලා පාවඩ දමා ආයිත් ඒ ෙගොල්ලන් අරෙගන ආෙව්. අපි ඒ ගැන කිව්වාම අපිට කිව්වා, "ෙමන්න ඇෙමරිකන් කුමන්තණකාරී වැඩ පිළිෙවළක් ෙගනිච්චා" කියා. අපි කිව්ෙව් වාණිජ ණය ගන්නවාට වැඩිය හරි ෙද් හරි විධියට, -කවුරු කිව්වත් කමක් නැහැ. කියුබාව කිව්වත් කමක් නැහැ. ෙවනිසියුලාෙව් හɖෙගෝ චාෙව්ස් කිව්වත් කමක් නැහැ.- කළ යුතු ෙද් කළ යුතුයි කියායි. අන්තිමට ඔබතුමන්ලා සියලුම ෙද්වල් පැත්තක තියලා පසු ගිය අවුරුද්ෙද් US dollars 2.6 billion ණයක් ලබා ගත්තා. එෙහම ගන්න අවස්ථාෙව්දී අපි ෙම් පාර්ලිෙම්න්තුෙව්දී ෙම් වාෙග් අවස්ථා වක ඉල්ලුෙව් ෙමොකක්ද? ඔබතුමන්ලා ගත්ත තීන්දුව හරි. ෙමොකද ඊට වැඩිය ෙද්වල්වලට වැඩිය ෙම් වාෙග් සියයට බාගෙය් ණය ෙපොලිය තුළින් යන්න අවශɕයි කියලා කියපු අපිට ෙමොනවාද කිව්ෙව්? "නැහැ. කිසි පශ්නයක් නැහැ. අපි ෙකොන්ෙද්සි රහිතව තමයි ණය ගත්ෙත්" කිව්වා. අපි ඒ අවස්ථාෙව්දී ඉදිරිපත් කළා. ෙමොකක්ද? මා හිතන්ෙන් ඔබතුමන්ලාෙග් මුදල් අමාතɕාංශෙයන් ඉදිරිපත් කරලා ඇති අපි එදා කිව්ව එක. ඒ කියපු ෙද්වල්වල ෙකොන්ෙද්සි වගයක් තිබුණා. ඒ ෙකොන්ෙද්සිවල තිබුෙණ් ෙමොකක්ද? ෙම් ෙදන ණය -මාස 22ක කාලයක් තුළ- ෙවනුෙවන් අය වැය හිගය සියයට 6කට අඩු කරන්න ඕනෑ කියන එකයි. ගරු නිෙයෝජɕ ඇමතිතුමනි, ඔබතුමා භාරදූර කටයුත්තක් භාර අරෙගන තිෙබන්ෙන්. ඒ, 2011 ෙපබරවාරි මාසය වන ෙතක්. ගත්ෙත් ජූනි මාසෙය්. මා හිතන විධියට මාස 22ක කාලයක්. ඒ තුළ සියයට 6කට අඩු කරන්න පුළුවන් ෙවයිද, නැද්ද කියන තර්කයට අපි එදා ෙබොෙහොම ඕනෑකමින් උත්තර දුන්නා. 2011 ෙපබරවාරි මාසෙය් ෙනොෙවයි ඔබතුමාට ෙම් අවුරුද්ෙද් තිෙයන අය වැය හිඟය පියවන්න බැහැයි කියා අපි කිව්වා. එෙහම කියන අවස්ථාෙව්දී අපිට හිනා වුණා. අෙප් චරිත ඝාතනය කළා. නමුත් සැබෑ තත්ත්වය ෙම්කයි. ගරු අගමැතිතුමනි, අද සියයට 10.4ක හිඟයකුයි තිෙබන්ෙන්. අපි කිව්ෙව් සියයට 10.42ක හිඟයක් ගැනයි. අපි විපක්ෂෙයන් කිව්වාට වැඩක් නැහැ. මම නැවත කියන්ෙන් අපි ඉන්ෙන් ආණ්ඩුව රකින්න ෙනොෙවයි, ජනතාව රකින්නයි කියායි. අපි කියපු ඒවා කළා නම් ෙමවැනි පශ්නයක් ඇති වන්ෙන් නැහැ. දැනට තියන්ෙන් ජාතɕන්තර කුමන්තණයක්ද නැද්ද කියා මම අහනවා.
+
+අද “Daily Mirror” පත්තෙර් ෙමන්න ෙමෙහම සඳහන් වනවා:
+
+“IMF concerned on Lanka’s weak fiscal position.” ෙම්ක කාලයට උචිතයි. The “Daily Mirror” of Thursday, 6th May, 2010 states, I quote:
+
+“The International Monetary Fund (IMF) on Wednesday said Sri Lanka's weak fiscal position is a concern for medium-term macroeconomic stability and fiscal reforms in the 2010 budget will be key to its $2.6 billion loan.”
+
+අපි ෙනොෙවයි කියන්ෙන් ෙකෝෂි මහතා; ලංකාෙව් representative. බැරි ෙවලාවත් අපි ෙමවැනි ෙදයක් කිව්ෙවොත් අහයි, "කවුද කියන්ෙන් ලංකාෙව් ආර්ථිකය දුර්වලයි?" කියා. නමුත් එෙහම කියන්ෙන් ණය දුන්න එක් ෙකනා. ඒ දුන්න ණයවලට වැඩිය ෙදයක් අද “Financial Times” එෙක් සඳහන් වනවා. සාමානɕෙයන් වාණිජ කටයුතු සම්බන්ධෙයන් ලියන පත්තර නිසයි මම ෙමෙහම කියන්ෙන්.
+
+The heading states: "Reforms key to get reactivate IMF loan” ගරු නිෙයෝජɕ ඇමතිතුමනි, දැන් මා ෙම්ක කියන්ෙන්, ෙම්ෙක් බලපාන කරුණක් තිෙයන නිසායි.
+
+2010 මැයි 06 377 378
+
+Mr. Presiding Member, it goes on to state under that heading, I quote: “What we looking for is the budget and meaningful steps towards reducing the deficit, and also doing it in an economically sensible way, raising revenue in a sustainable way, introducing sensible tax reforms and cutting inefficient expenditures.” ෙමොකක්ද අපි අද උෙද් කිව්ෙව්? ෙමොකක්ද අපි මාස 14කට ඉස්ෙසල්ලා කිව්ෙව්? ඒ කියපු ෙදයින් අද වචනයක් ෙවනස් ෙවලා තිෙයනවාද? කවුරු කිව්වත් එෙහනම් සැබෑ තත්ත්වය ෙමොකක්ද? එයට ආර්ථික විෙශේෂඥෙයක් ෙවන්න ඕනෑ නැහැ. නුවණට හුරු ඕනෑම කියාවක් කරන්න පුළුවන් නම්, ඒ කියන ෙද් කළා නම් ෙමවැනි පශ්නයක් ඇති වන්ෙන් නැහැ. මූලාසනාරූඪ ගරු මන්තීතුමනි, ෙම් අවස්ථාෙව්දී Greece රෙට් තමයි ෙලොකුම පශ්නය ඇති ෙවලා තිෙයන්ෙන්. එෙවෙල් ජාතɕන්තර ෙලෝක බැංකුෙව් plug එක ගලවන්න ඕනෑ කියලා කිව්වාම ෙමොකක්ද කිව්ෙව්? අපි ඒ ගැන විෙව්චනය කරන්න පටන් ගත්තාම එෙවෙල් ෙලොකු පශ්නයක් ඇති වුණා. ෙලෝක බැංකුෙව් plug එක ගලවලා, ආෙයත් ගිහිල්ලා ඒ ෙදෙවනි plug එක ගහන්න පුළුවන් ශක්තිය තිබුණු ඒ ආණ්ඩුෙව් අය අද නිශ්ශබ්දව සිටින්ෙන් ඇයි? අපි ඒ අවස්ථාෙව්දී කිව්වා, HSBC ණය ගන්න එපා කියලා. අද ෙමොනවාද ෙවලා තිෙයන්ෙන්? ෙම් රෙට් ණය බරතාවක් තිෙයනවා. ගිය අවුරුද්ෙද් අය වැය හිඟය සියයට 10.4යි. ඒෙකන් HSBC ණය ෙගවලා. සම්පූර්ණෙයන්ම, ගිය අවුරුද්ෙද් ෙගවලා තිෙයන ණය පමාණය බිලියන 854යි. 622ක් ෙගව්වා කියලා අද පත්තෙර් තිබුණාට, ඒ, ඒ අවුරුද්ෙද් ඇති වූ ණය පමාණය. ඊට ෙපර අවුරුදුවල ෙගවූ ණය පමාණයත් එකතු වුණාම 854යි. ගරු අගමැතිතුමනි, ගිය අවුරුද්ෙද් ෙම් රෙට් ආදායම බිලියන 702යි; නැතෙහොත් රුපියල් ෙකෝටි 70,200යි. දැන් ෙම් ෙදක සම්බන්ධෙයන් බලන්න. තමාෙග් ගිය අවුරුද්ෙද් ණය පමාණයයි, වාරික පමාණයයි, රෙට් ඉපයූ ආදායමට වැඩිය අඩු වුණා බිලියන 100ක්. බිලියන 100ක් අඩු වුණාම ෙකොෙහන්ද ෙම්ක ලබා ගන්ෙන්? වාසුෙද්ව නානායක්කාර මන්තීතුමනි, ඔබතුමා නැවත සුපුරුදු පරිදි ෙම් සම්බන්ධෙයන් අනිවාර්යෙයන්ම පාර්ලිෙම්න්තුෙව් උත්තරයක් ලබා ෙද්වි. ඒ ලබා ෙදන අවස්ථාෙව්දී ෙකොෙහොමද ෙම් ගැන උත්තරයක් ෙදන්ෙන්? අද ගීසිෙය් ණය ෙගවන්න එපා කියලා ශබ්ද කරනවා, සටන් කරනවා. අපි කිව්ෙව් HSBC ණය ෙගවන්න එපා කියලායි. එතෙකොට අපට කිව්වා, ඔන්න ෙම් රෙට් කමන්තණකාරී ස්වරූපයක් ඇති කරනවා කියලා. ඇයි අපි එෙසේ කිව්ෙව්? සියයට 9ට ෙපොලීණය ෙගවන්ෙන් නැතුව, සියයට භාගයක ෙපොලියට ණය ගත්තා නම් කිසි පශ්නයක් නැහැ. සියයට අටහමාරක් සුද්දන්ට ෙගව්වාම පශ්නයක් තිෙයනවා ෙන්. අෙප් පමුඛ බැංකුෙව් කට්ටියටවත් තවම ෙගවලා නැහැ. එවැනි ෙද්වල්වලට ෙමොනවාද ෙවලා තිෙයන්ෙන්? ෙගෝල්ඩන් කී ආයතනය බැලුවාම ෙගවලා තිෙයනවාද? සක්විති වාෙග් ඇති වුණු ඒ පශ්නවලදි ඒ අයට ෙගවලා නැහැ. ඉතින් ෙමවැනි ෙද්වල් නිසා අද රෙට් ආර්ථිකය කඩා වැටුෙණ් නැහැ කියලා කිව්වාම ෙමොන වාෙග් විහිළුවක්ද? ෙගෝල්ඩන් කී ආයතනෙය් ෙකොම්පැනි කීයක් වහලා තිෙයනවාද? 30,000කෙග් රැකී රක්ෂා නැති ෙවලා තිෙයනවා. තැන්පත්කරුවන් තවම අසරණ තත්ත්වයක සිටිනවා. ඒ අයට උත්තරයක් දීලා තිෙයනවාද? නැහැ, උත්තරයක් දීලා නැහැ. ෙම්වා කඩා වැටීමක්. නැත්නම් සංවර්ධනයක් ඇති ෙවලා තිෙයනවාද? ගිය අවුරුද්ෙද් මහ බැංකුෙව් අධිපති කිව්ෙව් සියයට 9ක ආර්ථික වර්ධන ෙව්ගයක් තිෙයනවා කියලා. අද ෙපොඩි පූස් පැටිෙයක් වාෙග් එකතු කරලා කියනවා සියයට 3.5ක් තමයි සංවර්ධනය ෙවලා තිෙයන්ෙන් කියලා. අපි පශ්නයක් කරන්ෙන් නැහැ. යම් විධියක සංවර්ධන ෙව්ගයක් ඇති වී ෙගන තිෙයනවා. නමුත් ඊට වැඩිය ශීඝෙයන් යන්න පුළුවන් අවස්ථාවක් ඇණ හිටලා තිෙයනවා. නමුත් අපට තිෙබන්ෙන් ෙමොකක්ද? ඒ Greece රෙට් ඒ ඇති ෙවලා තිෙයන ඉතාමත් භයානකකාරී තත්ත්වයක් තුළින් අද ෙකොන්ෙද්සි දාලා තිෙයනවා, සියයට 11ක් වියදම අඩු කරන්න ඕනෑ කියලා. ඒක ෙලොකු පශ්නයක්. සියයට 11ක් වියදම අඩු කරනවා කියන එෙකන් හැෙඟන්ෙන් ෙමොකක්ද? ඒ විෙශේෂඥයන් ෙපන්වලා දීලා තිෙයන ආකාරයට ආර්ථිකය ෙලොකු පශ්නයක තිෙබන්ෙන්.
+
+ඇයි ෙමෙහම ෙවලා තිෙයන්ෙන්? සැබෑ තත්ත්වය යටපත් කරලා, වසන් කරලා තිෙයනවා. අන්න එවැනි ගමනක් තමයි ෙම් මහ බැංකුවත් ෙගනි යන්ෙන්. අපි කිව්වා ෙබොෙහොම දරුණු තත්ත්වයක් තමයි එදා තිබුෙණ් කියලා. නමුත් අද ඒක විමර්ශනයට ලක් කෙළොත් අපි එදා කියපු ෙද්ට වචනයක් නෑරම ඒක කියාත්මක ෙවලා තිෙයනවා. ඒ නිසා මා හිතන්ෙන් නිෙයෝජɕ මුදල් ඇමතිතුමනි, ඔබතුමාට ෙම් වාෙග් ෙනොෙයක් ආකාර ෙය්, කල් තැබීෙම් ෙයෝජනාවලට උත්තර ෙදන්න ෙව්වි කියලායි. නමුත් පටන් ගන්න ටිකක් අමාරු නම්, කියන්න අපට. අපි ෙමතැන ඉන්න විපක්ෂෙය් මන්තීවරු. අපි කිව්ෙව් ෙමොකක්ද? කිසි ෙසේත්ම අපට පමාණාත්මකව නැති වුණාට ගුණාත්මක මන්තී පිරිසක් ෙමතැන සිටින බවයි. අපි පටන් ගන්නවා, අලුතින්. අපි ෙමතැන ඉන්ෙන් සැබෑ විපක්ෂෙය් ඉන්න ෙනොෙවයි. අපි ෙමතැන ඉන්ෙන් ඔබතුමාලා කරන වැරදි ෙපන්වලා ෙදන්න. ජනතාවට ඇඟට දැෙනන ෙද් අපි එදා කිව්වාට ඒක ඇඟට දැනිලා නැහැ ෙවන්න පුළුවන්. නමුත් අද ෙමොනවාද තිෙයන ඡන්ද පතිඵල? ඡන්ද පතිඵලවල අද තිෙයන්ෙන් කිරි පිටි මිල රුපියල් 30කින් වැඩි ෙවලා කියන එකයි. අද පාන් පිටි මිල රුපියල් තුනකින් වැඩි ෙවලා තිෙයනවා. පාන් රාත්තල රුපියලකින් වැඩි ෙවලා තිෙබනවා. අද ෙරෝහල්වල ඖෂධ ගණනාවක්ම නැහැ. ෙම්වායි ෙම් ආශ්චර්යයක් කරන රටක තිෙබන ෙද්වල්. අහිංසක අම්මලා තමන්ෙග් දරුවන් කළු ගඟට විසි කරන යුගයක් තමයි තිෙබන්ෙන්. ෙම්වා අපි සතුෙටන් කියන්ෙන් නැහැ. ඒ කාලෙය් කිව්වා, “සයනයිඩ් කෑවා”යි කියලා. දැන් කියනවා, "ඕවා වැඩක් නැත" කියා. නමුත් අෙප් රෙට් ආර්ථිකයත් එක්ක ෙසල්ලම් කරන්න එපා. ජාතɕන්තර මූලɕ අරමුදෙලන් අපි ණය ගන්න ෙකොට අපට හිනා වුණා. අපි කිව්වා, "නැහැ, ගිහින් ඒෙකන් ගන්න. ෙමොකද, HSBC එෙකන් ගන්නවාට වැඩිය ෙහොඳයි" කියලා. ඒක කරලා තිෙබනවා. නමුත් ඇයි එෙහම නම් ෙම් අය වැය ඉදිරිපත් කරලා නැත්ෙත්? එතුමන්ලා කියනවා, "මුදල් ෙදන්ෙන් අය වැයක් ෙග්නවා නම්" කියලා. ගිය අඟහරුවාදා අය වැයක් ගැන අපි පශ්න කෙළේ ෙබොෙහොම පිරිසිදු ෙච්තනාෙවන්. අපි කිව්ෙව්, "අය වැයක් ඉදිරිපත් කෙළේ නැත්නම් ෙමවැනි ණය පමාණයක් ලැෙබන්ෙන් නැහැ" කියලායි. ඒ ණය පමාණය ලැබුෙණ් නැති වුණාම ඒක ලබා ගන්න පුළුවන් ෙවනින් මාර්ග - substitutes - ෙකොෙහන්ද ඇති වන්ෙන්? ආෙයත් HSBC එකට යනවාද? ආෙයත් ICICI බැංකුවට යනවාද? ඒ නිසා තමයි අපි ඉතාමත් ඕනෑකමින් ඔබ සියලු ෙදනාෙගන්ම ඇහුෙව්. ගරු දිෙන්ෂ් ගුණවර්ධන ඇමතිතුමනි, ෙම් අවස්ථාෙව්දී අපි නැවත අහන්ෙන් අය වැයක් ෙගෙනන්ෙන් කවදාද කියලායි. ෙමොකද, ඔබතුමන්ලාට ණය ෙදන අය කියන්ෙන් ඔබතුමන්ලා අය වැයක් ෙගනාවට පසුව, එය විමර්ශනයට ලක් කරලා තුන්වන ෙකොටස - තුන්වන tranche එක- ෙදනවා කියලායි. එතෙකොට දැන් ෙඩොලර් බිලියන 2.6ක් තමන්ලාෙග් බැංකුෙව් ෙහෝ ජාතɕන්තර සංචිතවල ෙහෝ නැත. ඉතින් ෙම්වා ෙගෙනන්න තිෙබනවා. එක පැත්තකින් අෙප් විෙද්ශ සම්පත් ටික නිර්මාණය කරන්න තිෙබනවා. ෙමතැන නිකම් ණයක් අරන් "ඒක තමයි මෙග් සංචිතය" කියන එක වැරදියි. ෙම්ක නිකම්, තමන් ළඟ සල්ලි නැහැ කියලා අල්ලපු ෙගදරින් රුපියල් සීයක් ෙහොරකම් කර ෙගන, "මෙග් සංචිතය රුපියල් සීයකින් වැඩි ෙවලා තිෙබනවා" කියනවා වාෙගයි. ඒක හරි යන්ෙන් නැත. විෙද්ශ විමර්ශනයට ලක් ෙවලා තිෙබන අවස්ථාවක පශ්නයක් තිෙබනවා කියලා ෙහළිදරවු කිරීෙමන් මම හිතන්ෙන් විපක්ෂෙය් අපටත් උදවු කරන්න පුළුවන් කියලායි. ඒ වාෙග් අවස්ථාවල, අපට කරුණු කියන්න පුළුවන්. GSP එක ගැන ගිය අවුරුද්ෙද් ඉඳලා අපි කී ගමනක් කිව්වාද? ෙරෝහිත ෙබෝෙගොල්ලාගම ඇමතිතුමාට, ජී.එල්. පීරිස් ඇමතිතුමාට අපි කිව්වා, "ෙම් අවස්ථාෙව්දී පශ්නයක් තිෙබනවා, කරුණාකරලා අෙප් තරුණ තරුණියන් ලක්ෂ හතරකෙග් රැකී රක්ෂා නැති ෙනොවන විධියට අපි එකට වැඩ කරමු"යි කියා. එදා රනිල් විකමසිංහ මහතා එෙහම කිව්ෙව් ඒ සම්බන්ධෙයනුයි. අපි දුර්වල නා යකෙයෝ ෙනොෙවයි. අපි ඒ අවස්ථාව ඔබතුමන්ලාට දුන්ෙන් යම් විධියකින් ෙකොන්ෙද්සි රහිතව ෙවන්න පුළුවන්; ෙකොන්ෙද්සි සහිතව ෙවන්න පුළුවන්.
+
+පාර්ලිෙම්න්තුව 379 380
+
+[ගරු රවි කරුණානායක මහතා]
+
+මැතිවරණය වන ෙතක් තිස්සනායගම්ෙග් පශ්නය ඇද ෙගන ගියා. අහිංසක මනුෂɕයා අවුරුදු එකහමාරක් හිරෙගදර සිටියා. ෙමොන පාප කර්මයකටද? ඒ කියන්ෙන්, රෙට් ෙද්ශපාලනීකරණය නිසා ඒ පශ්නය ඇති වුණා. තිස්සනායගම් මාස දහ අටක් හිෙර් දමා ෙගන ඉඳලා ඊට පස්ෙසේ "කමක් නැහැ, පව්! ෙමයා ෙමොකුත් කෙළේ නැහැ" කියලා අත අරින එක හරිද? දැන් බලන්න, ගරු අගමැතිතුමා ෙම් පාර්ලිෙම්න්තුෙව් අගමැතිතුමා වශෙයන් මංගල කථාව කරන අවස්ථාෙව්දී කිව්වා, "එන සුමාෙන් අපි යුද ජයගහණය සමරනවා"යි කියලා. අනිවාර්යෙයන්ම ඒක කරන්න අවශɕයි. කවුද ඒක කෙළේ? සරත් ෙෆොන්ෙසේකා. අද එතුමා ෙකොෙහේද ඉන්ෙන්? අද හිර භාරෙය් ඉන්ෙන්. අපි කියනවා, තිස්සනායගම් නිදහස් කළා වාෙග් කරුණාකරලා 20 වන දා එතුමාවත් සම්පූර්ණෙයන් නිදහස් කරලා දමන්න කියලා. අගමැතිතුමා ෙකළින් කථා කරන පුද්ගලෙයක් බව මම දන්නවා. ෙමොනවාද කරන්න පුළුවන් වන්ෙන්? ෙමච්චර කල් තියලා ෙමොනවත් පශ්නයක්වත් නැහැයි කියලා ඔප්පු කරලා තිෙබනවා. එෙහම නම් 20 වන දා යුද ජයගහණය ෙවනුෙවන්, ජයගහණය කරවපු මනුෂɕයා වශෙයන් -එය මුළු රටම දන්නවා- සරත් ෙෆොන්ෙසේකාව නිදහස් කරන්න කියන ඉල්ලීම මම ෙම් අවස්ථාෙව්දී ෙම් විවාදය තුළිනුත් ඉල්ලනවා. තිස්සනායගම්ව නිදහස් කරන්න පුළුවන් නම් ඇයි සරත් ෙෆොන්ෙසේකා නිදහස් කරන්න බැරි? මම ෙම් අවස්ථාෙව්දී අහන්ෙන් රෙට් ආර්ථිකය දියුණු කරන්න පුළුවන් ෙකොෙහොමද කියලායි. දැන් යුෙරෝපෙයන් ෙකොන්ෙද්සි දාලා නැද්ද? ඇයි හදිසි නීතිය ලිහිල් කරන්න බලන්ෙන්? අපි කිව්වාම සුද්දන්ට, කුමන්තණයක් කරනවාලු. ඔබතුමන්ලා කළාම ෙමොකක්ද කරන්ෙන්? කුමන්තණෙය් ගීස් ගාලා පශ්නය ලිස්සලා දානවාද? නැහැ අගමැතිතුමනි, ෙමෙහම තමයි. ජාතɕන්තර ෙලෝකයට අද ගහලා, ඒ ෙගොල්ලන්ට පශ්න ඇති කරලා, ෙම් ලංකාව ෙලෝකයට එක්සත් කරන්න බැහැ. ලංකාව ෙලෝකයට එක්සත් කරන්න අවශɕයි. ෙම් ආණ්ඩුව හයවන පාර්ලිෙම්න්තුව තුළ කළ එකම වැරැද්ද තමයි ෙලෝකය තිෙබන්ෙන් ලංකාව ඇතුෙළේ කියලා හිතපු එක. ෙම්ක තමයි තිබුණු වැරැද්ද. මූලාසනාරූඪ ගරු මන්තීතුමනි, ඔබතුමා ෙපොඩි හිනාවක් දානවා. ඔබතුමාෙග් ඒ කාලෙය් තිබුණු දක්ෂතා පාවිච්චි කරලා තමයි අපිත් ඉෙගන ෙගන ෙම් වාෙග් කථා කරන්ෙන්. ඒ පාර්ලිෙම්න්තුෙව් ඒ අවස්ථාවල කරපු එකම ෙද් තමයි ෙලෝකය ලංකාව ඉස්සරහ දණ ගහන්න ඕනෑ කියලා හිතපු එක. අද ජී.එල්. පීරිස් ෙවනින් කථාවක් කියනවා. දැන් ෙරෝහිත ෙබෝෙගොල්ලාගමට බණිනවා. අපි එදා කිව්වා, ෙම්වා වැරදියි, ගිහිල්ලා ෙමෙහම කථා කරන්න කියලා. අපි වැරැද්දක් ෙනොෙවයි කෙළේ. අපි ඔබතුමන්ලාට උදවු කරන්න උත්සාහ කෙළේ. හැබැයි ඒක ඔන්න රූපවාහිනිෙය් දාලා ෙපන්නුවා. "ෙමන්න ෙම් ෙගොල්ෙලෝ සුද්දන් ඉස්සරහ ගිහින් දණ ගහන් ඉන්නවා" කියලා. දැන් දණ ගහන්ෙන් කවුද? දණ ගහන්ෙන් නැති පුද්ගලෙයෝ ගිහින් දණ ගහනවා. ෙම් අවස්ථාෙව්දී අපි ඉතාමත් ඕනෑකමින් අහන්ෙන් ෙම්කයි. ෙම් ජාතɕන්තර මූලɕ අරමුදල ණය ෙදන්න අවශɕයි. ඒ අය ණය ෙදන්ෙන් ෙකොන්ෙද්සි සහිතව. ෙම් ෙකොන්ෙද්සි ෙමොනවාද කියන එක අපි දැන ගන්න අවශɕයි. ෙමොකද, ගරු නිෙයෝජɕ අමාතɕතුමනි, ඔබතුමාට ෙපර හිටපු නිෙයෝජɕ ඇමතිතුමා කිව්වා, කිසිම ෙකොන්ෙද්සියක් නැහැයි කියලා. මම දන්නවා, ඒ කිව්ව ෙවලාෙව් ඉඳලාම ඒ කිව්ෙව් අසතɕයක් කියන එක. ෙකොන්ෙද්සි නැතිව කවුද ණය ෙදන්ෙන්? ෙදනවා නම් දමලා තිෙබන ෙකොන්ෙද්සි ෙමොනවාද? ඒෙකන් අෙප් රෙට් අභිවෘද්ධියට වැඩ ෙකෙරනවා නම් පශ්නයක් නැහැ. -[බාධා කිරීමක්] ඔව්, මම දන්නවා. මම දන්නා නිසායි ඔබතුමාෙගන් අහන්ෙන් ෙමොකක්ද කියලා. ෙමොකද අපි කිව්වාම, අන්තර්ජාලය කිව්වාම, "නැහැ, නැහැ. ඒ වාෙග් නැහැ, ඒවා ෙවනින් ෙද්වල්, ඒවා අපට අදාළ නැහැ"යි කියලා ඔබට ෙපර සිටි නිෙයෝජɕ ඇමතිතුමා කිව්වා. ඔබතුමාෙග් අවංකභාවය නිසා අපට ඒ ගැන
+
+වැඩිය පශ්න කරන්නට බැහැ. එය සෑම ෙව්ලාෙව්ම පාවිච්චි කරන්නට එපා. යම් විධියකින් වැරැද්ද ෙමොකක්ද කියලා අපි ෙපන්වන්නට අවශɕයි. නමුත් අන්තර්ජාලෙය් ෙමොනවාද තිෙබන්ෙන්? ෙම් අවස්ථාව වන විට යූඑස් ෙඩොලර් බිලියන 40 ලබා ගන්නට ගීසිෙය් සියයට 11කින් වියදම් අඩු කරන්නට ඕනෑ ෙවලා තිෙබනවා. ඒ වාෙග්ම දැන් අෙප් රෙට් කිරි පිටි මිල වැඩි කරලා තිෙබන්ෙන් ඇයි? ආදායම අඩු නිසා ෙනොෙව්ද? ඊට පස්ෙසේ පාන් මිල, පිටි මිල, ගෑස් මිල සහ ඖෂධ මිල ඔක්ෙකෝම වැඩි කරලා තිෙබනවා. ෙම් වැඩි කරලා තිෙබන්ෙන් අය වැය හිඟය පියවන්නද?
+
+ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) ගරු මන්තීතුමා, බදු ද, එෙහම නැත්නම් මිල මට්ටම්වල වැඩි වීමද? Is it due to fluctuation of prices or taxes?
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) මූලාසනාරූඪ ගරු මන්තීතුමනි, ගරු වාසුෙද්ව නානායක්කාර මන්තීතුමා අහන පශ්නයට උත්තර ෙදන්නට පුළුවන් වන්ෙන් බදු ඇති කිරීෙමන් කියලායි. පිටි මිල සංෙශෝධනය කරලා තිෙබන්ෙන් බදු පමාණයක් දැමීෙමන්. නැත්නම් නිකරුෙණ් රුපියල් තුනක්-
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) Order, please! Hon. Member, you have already taken 16 minutes.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+Sir, we have 30 minutes. We will share it equally. The Hon. John Amaratunga will speak for - [Interruption.]
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member)
+
+You have given five minutes to the Hon. Sunil Handunnetti also.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) Sir, I like that. You are also doing a timekeeper’s job from the Chair. That is nice to see.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member)
+
+I cannot help it.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+We have half an hour and we will have that allotted equally.
+
+2010 මැයි 06 381 382
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member)
+
+Hon. Member, the clock never stays; it ticks.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+I know that. But, since we have put you there, we can get a little discount for that, you know.
+
+ගරු වාසුෙද්ව නානායක්කාර මන්තීතුමනි, ෙම්ෙක් තිෙබන්ෙන් බදු පමාණය වැඩි කිරීම නිසා ඇති වුණු පතිවිපාක. ඒ නිසා තමයි-
+
+ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) ෙවෙළඳ ෙපොළ මිෙලහි ඇති වන උච්චාවචනය ඒ තුළ ෙකොයි තරම් බලපා තිෙබනවාද? බදු ෙකොපමණද? එෙහම හරියට කියන්න.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) අෙන්, ෙම් කාලය ඇතුළත ඒකත් ඉෙගන ගත්ත එක ෙලොකු ෙදයක්. දැන් කථා කරනවා. ඒක ෙහොඳයි. අපි කිව්වාම එක්සත් ජාතික පක්ෂය ගුණ්ඩුවක් දැම්මා කියලා කිව්වා. දැන් ඔබතුමාෙග් කථාවට ෙබොෙහෝම සතුටුයි. ඒක තමයි සැබෑ තත්ත්වය. නමුත් ෙම්ක වැඩි කරන්ෙන් නැතිව තමන්ෙග් වියදම අඩු කළා නම් ෙවනින් ෙද්වල් කරන්න තිබුණා. ඒක තමයි අපි කිව්ෙව් ඇමති මණ්ඩලය තිස්පස් ෙදෙනකුට අඩු කරන්නට ඕනෑයි කියලා. දැන් ඒක හතළිස් ෙදකකට වැඩි ෙවලා තිෙබනවා. අපි ෙනොෙවයි ඔබතුමාලයි කිව්ෙව්. ෙම්වා තමයි වියදම අඩු කරන්නට පුළුවන් මාර්ග. ෙම් අවස්ථාෙව්දී මම නැවත අහන්ෙන් ෙම්කයි. වියදම අඩු කරන්ෙන් ෙකො ෙහොමද? SriLankan Airlines ආයතනය බිලියන 12.1ක අලාභයක් ලබලා තිෙබනවා. ෙකෝටි 12,100ක්. ශී ලංකා ගමනා ගමන මණ්ඩලය රුපියල් ෙකෝටි 540ක අලාභයක් ලබලා තිෙබනවා. දුම්රිය ෙදපාර්තෙම්න්තුව රුපියල් ෙකෝටි 450ක අලාභයක් ලබලා තිෙබනවා. දැන් මිහින් ලංකා ආයතනය හදපු
+
+[මූලාසනෙය් අණ පරිදි ඉවත් කරන ලදී.] [அக்கிராசனக் கட்டைளப்பᾊ அகற்றப்பட்ᾌள்ளᾐ] [Expunged on the order of the Chair.]
+
+ෙමෙහේ ඉන්නවා. මට මතකයි විවාදයක් කරන අවස්ථාෙව් දී කිව්වා දරුෙවක් ඉන්ෙන්, අපි දුවන්නට ෙපර ඇවිදින්නට අවශɕයි, දණ ගාන්නට අවශɕයි කියලා. දණ ගාලා බලලා ෙකෝටි හාරදාහක් නැති කරපු ෙම්
+
+[මූලාසනෙය් අණ පරිදි ඉවත් කරන ලදී.] [அக்கிராசனக் கட்டைளப்பᾊ அகற்றப்பட்ᾌள்ளᾐ] [Expunged on the order of the Chair.]
+
+දැන් ඉන්නවා පාර්ලිෙම්න්තුෙව්. ෙමතැන ඉන්න නිසා මම කියන්ෙන්. නැත්නම් -
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු මන්තීතුමා, You cannot refer to the conduct of an Hon. Member. You have to withdraw that.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) I did not refer to any Hon. Member. I only insinuated the creator of the loss.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member)
+
+No, no, you referred to him. By all means, you referred to the conduct of an Hon. Member who is here.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+I did not. ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) He did not mention any name. මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member)
+
+It is not necessary. I cannot allow that. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+I think you have not been having a hearing problem over the last couple of years. So, ensure that - [Interruption.]
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member)
+
+Then, it refers to all the Hon. Members. - [Interruption.] No, no. It will be expunged.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+What is the name I mentioned? මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member)
+
+You said a Member of Parliament who is here.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) Obviously, there are 225 Members. - [Interruption.] ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga)
+
+All of us are Members.
+
+පාර්ලිෙම්න්තුව 383 384
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member)
+
+It can even be you. - [Interruption.] It will be expunged.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+Do you think that this House needs not talk about that Rs. 4,500 million loss? - [Interruption. ] Yes, you are wasting my time. - [Interruption. ]
+
+එතෙකොට CEB එක ෙකෝටි 810ක අලාභයක් ලබා තිෙබනවා. ෙමන්න ෙමතැන තිෙබනවා, ජාතɕන්තර මූලɕ අරමුදෙල් ෙකොන්ෙද්සියක්. ෙදසැම්බර් මාසය අවසන් වන්නට ෙපර ෙම්ක අලාභයක් ෙනොවන මට්ටමට ෙගන එන්න ඕනෑ කියලා තිෙබනවා. [බාධා කිරීමක්]
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member)
+
+Hon. Dayasiri Jayasekara, will you please return to your seat? You are roaming around the House.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) එෙහම නම් විදුලි බිල වැඩි කරනවාද කියලා අපි අහන්නට අවශɕයි. ඊට පස්ෙසේ ලංකා ඛණිජ ෙතල් සංස්ථාව සම්බන්ධෙයනුත් ෙකොන්ෙද්සියක් තිෙබනවා. ෙම්ෙක් අලාභය රුපියල් ෙකෝටි 1,200යි. ෙම්කත් අලාභ ෙනොවන මට්ටමට ෙගෙනන්න අවශɕයි කියලා තිෙබනවා. ගරු නිෙයෝජɕ මුදල් ඇමතිතුමනි, ඒ නිසා මම කාරුණිකව ඉල්ලන්ෙන් ෙම්කයි. ඔබතුමා පැහැදිලි කරාවි. ජනතාවට බර ෙනොදාන්න පුළුවන් මට්ටමකට ෙම් ෙකොන්ෙද්සිවලට අත්සන් කරලා තිෙබනවා කියන විශ්වාසෙයන් තමයි මම ෙම් අවස්ථාෙව්දී ෙම්ක අවසන් කරන්නට අදහස් කරන්ෙන්. කරුණාකරලා ෙම්කට නිවැරදි උත්තරයක් අද ලැබුෙණ් නැත්නම් අපි තව මාසයකින් ඒ උත්තරය ලබා ගනිමු. නමුත් කරුණාකරලා, අය වැයක් ෙගෙනන්ෙන් නැති නිසා ජනතාවට බර පටවන්න එපා කියන එක මතක් කරනවා. ඡන්දය කාලෙය් ජනතාවට ආදරෙයන් කථා කළ ආකාරයට දැනුත් ඒ ගැන කියා කරන්නය කියා අපි නැවත මතක් කරන්නට ඕනෑ. කථාෙවන් වැඩක් නැහැ. පක්ෂයක් තමන්ෙග් ෙද්ශපාලන අභිවෘද්ධිය ඔප්පු කරන්ෙන් කියාෙවන්ය කියන එක ගරු අගාමාතɕතුමාට මතක් කරමින් මම නිහඬ වනවා.
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) මූලාසනාරුඪ ගරු මන්තීතුමනි, ගරු රවි කරුණානායක මන්තීතුමා විසින් ඉදිරිපත් කරන ලද ෙම් කාෙලෝචිත ෙයෝජනාව මා අතිශය සතුටින් ස්ථීර කරනවා. එතුමා ෙපන්නුම් කරන්න හැදුෙව්, ජාතɕන්තර මූලɕ අරමුදල, එෙහම නැත්නම් ජාතɕන්තර මූලɕ සංවිධාන අද ශී ලංකාවට ආධාර ෙදන, ණය ෙදන පතිපත්තිෙයන් ඈත් වන බවයි. අපි ෙම්ෙකන් ෙත්රුම් ගන්ෙන් ෙමොකක්ද? ෙම් රෙට් මූලɕ කළමනාකරණය හරියට කියාත්මක ෙනොවන බව අද ෙම් ආයතනවලට ෙපනී ෙගොස් තිෙබනවා. අද රජ ෙය් කටයුතුවලදී ෙටන්ඩර් පටිපාටිය හරියට අනුගමනය කරනවාද කියලා මම දන්ෙන් නැහැ. විශාල පශ්නාර්ථ ලකුණක් ඒෙක් තිෙබන්ෙන්. තමුන්නාන්ෙසේලා රජෙය් මුදල් වැය කරද්දී ඒවා මූලɕ නීති රීති අනුව ෙකෙරනවා ද, ෙටන්ඩර් පටිපාටියක් අනුගමනය කරනවා ද, ෙම් වියදම් පිළිබඳ ෙටන්ඩර් ෙයෝජනා කැබිනට් මණ්ඩලයට එනවා ද කියන එක අද විශාල පශ්නයක්.
+
+ආරංචිෙය් හැටියට එෙහම කිසි ෙදයක් නැහැ. මූලාසනාරුඪ ගරු මන්තීතුමනි, ඒ නිසා තමයි අපි ඉල්ලීමක් කෙළේ ෙකෝප් කමිටුෙව්ත්, රජෙය් ගිණුම් පිළිබඳ කාරක සභාෙව්ත් සභාපති තනතුරු ෙදක විපක්ෂයට ෙදන්නය කියලා. ඒක අපි රජයට කරන උදව්වක්. ගරු නිෙයෝජɕ මුදල් ඇමතිතුමනි, අපි ඒක තුළින් තමුන්නාන්ෙසේෙග් කාර්ය භාරය සැහැල්ලු කරන්නයි හදන්ෙන්. අද ෙම් රෙට් විගණකාධිපතිවරෙයක් ඉන්නවාද කියලා අපි දන්ෙන් නැහැ. විගණකාධිපති ඔහුෙග් රාජකාරිය කරනවා ද කියලා අපිට ෙපෙනන්ෙන් නැහැ. ඒක කනගාටුදායක තත්ත්වයක්. ඒක නිසා තමයි අපි ඉල්ලීමක් කෙළේ; පුළුවන් තරම් කෑ ගහමින් අපි ඉල්ලුෙව් ෙම් කාරක සභා ෙදෙක් සභාපති ධුර ෙදක විපක්ෂයට ෙදන්නය කියලා. ඇත්ත වශෙයන්ම තමුන්නාන්ෙසේට ෙම්ක කියන්න ඕනෑ. ඒ කාරක සභා ෙදකට ඇමතිවරු පත් කරන්නත් එපාය කිව්වා. ෙමොකද, ෙම් කමිටුවල වැඩ කරන ෙකොට ඇමතිවරුන්ෙග් රාජකාරියට බාධාවක් වනවා. ෙම් කරුණු ෙදක කල්පනා කරලා ෙම් කරපු ෙයෝජනාෙව් පතිඵල ලබා ගන්න නම්, ඒ ජාතɕන්තර මට්ටෙම් මූලɕ ආයතනවලට අෙප් රෙට් නියම මූලɕ විනයක් තිෙබනවාය කියලා ෙපන්වන්න නම්, ෙම් කාරණය ඉටු කරන්නය කියලා මම ඉල්ලීමක් කරනවා.
+
+අෙනක් කාරණය, අය වැය. සාමානɕෙයන් මැතිවරණයක් තියලා මාසයක් ෙදකක් යන ෙකොට ඒ අලුත් රජය පාර්ලිෙම්න්තුවට අය වැයක් ෙග්නවාමයි. අද මාසයකුත් අවසාන වන්න එනවා. නමුත් තවම දිනයක්වත් කියන්ෙන් නැහැ. අපට ෙපෙනන්ෙන් නැහැ, අසවල් දවෙසේ අය වැය ඉදිරිපත් කරනවා කියලා. ෙමතැන විපක්ෂෙය් මන්තීවරුන්ට විෙශේෂෙයන් බලපාන ෙදයක් තිෙබනවා. අෙප් විමධɕගත මුදල්, අපට හම්බ ෙවන රුපියල් ලක්ෂ 50 කවදා හම්බ ෙවයි ද දන්ෙන් නැහැ. ෙම් අවුරුද්ෙද් හම්බ ෙවයි ද කියලාවත් අපට හිතා ගන්නත් අමාරුයි. ඒක විශාල පශ්නයක්. ඒ වාෙග්ම රාජɕ ෙසේවකයන්ෙග් පඩි වැඩි කිරීම. ඒ කිසිම ෙදයක් නැහැ. රාජɕ ෙසේවකයන්ට ෙදනවාය කියපු රුපියල් 2500වත් ලබා ගන්න බැරි ෙවලා තිෙබනවා, ගරු අගමැතිතුමනි. ඒ නිසා ෙම්වාට බලපාන පශ්නයක් තමයි අද ගරු රවි කරුණානායක මන්තීතුමා ෙම් ගරු සභාවට ඉදිරිපත් කෙළේ. ජාතɕන්තර මූලɕ අරමුදෙල් ආධාර දුන්ෙන් නැත්නම් ෙම් රජයට ෙම් අය වැය ඉදිරිපත් කරලා අය වැය පියවා ගන්න හම්බ වන්ෙන් නැහැ. ස්තුතියි.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ස්තුතියි. මී ළඟට ගරු වාසුෙද්ව නානායක්කාර මන්තීතුමා.
+
+ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) මූලාසනාරූඪ ගරු මන්තීතුමනි, අප මිත ගරු රවි කරුණානායක මන්තීතුමා පශ්නයක් ඉදිරිපත් කර තිෙබනවා. ඒ පශ්නෙය් හරය පැහැදිලි කර ගන්න මට අමාරුයි. ෙමොකද, වැල්වටාරම් ෙගොඩක් ඒක ඇතුෙළේ තිෙබනවා.
+
+ගරු (ආචාර්ය) මර්වින් සිල්වා මහතා (මහාමාර්ග නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு(கலாநிதி) ேமர்வின் சில்வா - ெநᾌஞ்சாைலகள் பிரதி அைமச்சர்)
+
+(The Hon. (Dr.) Mervyn Silva - Deputy Minister of Highways)
+
+දීපල්ලාෙකෝ පුළුවන් නම් උත්තර.
+
+ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) ජනරාල් හිර භාරෙය් ඉන්න එකයි, තිස්සනායගම්ට සමාව දුන්න එකයි, ඒවා-
+
+2010 මැයි 06 385 386
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga)
+
+That is called "Good governance." ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) Good governance ෙනොෙවයි, තිෙබන්ෙන්. ඔබතුමා පශ්නය කියවලා බලන්න. මට කමක් නැහැ, එතුමාට ඕනෑ එකක් එයාෙග් එක ඇතුෙළේ දමා ගත්තාට. මට ඒෙක් ඇති කාරණයක් නැහැ. නමුත් මම කියන්ෙන්; පටන් ගත්ත කථාෙවනුත්, ඒක ඇතුෙළේ අඩංගු කරපු ඒවායිනුත් මා ෙපන්වන්න හදන්ෙන් ඒ පැත්ෙතන් ඔය කථා ඉදිරිපත් කරන්ෙන් යහපත් ෙච්තනාෙවන් ෙනොෙවයි කියන එකයි. ඉදිරිපත් කරන්ෙන් පහර ගහන්නයි, යටින් කපන්නයි, කකුෙලන් අදින්නයි, එෙහම නැත්නම් අපට අපහාස කරන්නයි, අවමන් කරන්නයි. අපි ඒක ෙනොදන්නවා ෙනොෙවයි. එෙහම යහපත් ෙච්තනාෙවන් කරන කථාෙව් මුවාෙවන් තමයි ෙම්වා කරන්ෙන්. කමක් නැහැ. ෙම්ෙක් විෂය පථය ෙතෝරා ගැනීෙම්දී මා කියන්න ඕනෑ ෙම්ෙක් මූලික පෙව්ශ ෙදකක් තිෙබන බව. එකක්, ආර්ථික පතිපත්තිෙය් නව ලිබරල් පෙව්ශය. ඒ කියන්ෙන් neo-liberal පතිපත්තිය, මූලɕවාදය. ඒෙක් මූලික සාධකය වන්ෙන් නිතරම ලාභය. මිනුම් දණ්ඩ වන්ෙන් ලාභය. අපි ඉස්පිරිතාල පවත්වාෙගන යන්ෙන් ලාභයටද?
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) ෙබෙහත් නැහැ. ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) ඉස්පිරිතාලෙය් ෙබෙහත් නැති එක තමයි අද අෙප් පැමිණිල්ල. ඒකට වුවමනා කරන මුදල් ෙයදවීමයි අද කළ යුතු ෙද්. ඒෙක් මුදල් අඩු පාඩුවක් තිෙබනවා නම් ඒක හදා ගැනීමයි අපි කළ යුතු ෙද්. පසු ගිය දවස්වල පුවත් පත්වලත් සඳහන් වුණු ආකාරයට අලුත් ෙසෞඛɕ ඇමතිතුමා ඒ පිළිබඳව ගත්තා වූ පයන්තවලින් අද ෙම්ක ආණ්ඩුෙව් අවධානයට ෙයොමු වී තිෙබන බව ෙප්නවා. ඒත් දැන් මා කියා ෙගන ආෙව් ෙසෞඛɕ ගැන ෙනොෙවයි ෙන්.
+
+මූලාසනාරූඪ ගරු මන්තීතුමනි, ෙම් නව ලිබරල් පතිපත්තිය තුළ ෙමතුමන්ලා හැම දාම අහන්ෙන් ලාභය ගැනයි. අපි අහන්ෙන් ෙසේවය ගැනයි. ඒකයි ෙවනස.
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga) ලාභයකුත් නැහැ. ෙසේවයකුත් නැහැ. ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) අහ ෙගන ඉන්න. ඒ ෙසේවයට ගිහින් තමයි අපට අලාභ ඇති ෙවන්ෙන්. මූලɕ කළමනාකරණෙය් ෙදෝෂ තිෙබන්න පුළුවන්; කළමනාකරණෙය් ෙදෝෂ තිෙබන්න පුළුවන්; ෙහොරකම් සිදු වීෙම් ෙදෝෂ තිෙබන්න පුළුවන්. ඒ නිසා අලාභ ෙවන්න පුළුවන්. නමුත් අපි ෙසේවය මුල් කර ෙගනයි වැඩ කරන්ෙන්. දැන් බලන්න, ඛනිජ ෙතල් සංස්ථාවට වැඩිෙයන්ම ණය එන්න තිෙබන්ෙන් ෙකොෙහන්ද? Ceylon Electricity Board එෙකන්. Ceylon Electricity Board එක ෙමොකද ඒ ණය ෙවන්ෙන්? විදුලිය සැපයීෙම්දී ඒ අය කරන tariff එක අනුව හා ඒකට යන වියදම අනුව. [බාධා කිරීමක්] ඒක තමයි මා ෙම් කිව්ෙව්. නිෂ්පාදන
+
+වියදමයි ඒවා අෙලවි කරන මිලයි අතර පරතරයක් තිෙබනවා. ඒ පරතරය ඇති වී තිෙබන්ෙන් අද ඊෙය් ෙනොෙවයි, අවුරුදු ගණනාවක ඉඳලායි. ෙමොකද අපි ෙම් රෙට් මිනිසුන්ට විදුලිය සපයන්න ඕනෑ එක මිල ගණනකටයි. දැන් ෙම් ගැන කථා කෙළොත් මෙග් කථාෙව් ඉතිරි ෙකොටස්වලට යන්න බැරි ෙවනවා. ඒ නිසා මා ඉක්මනට අෙනක් ෙකොටස්වලට යනවා. විෙශේෂෙයන්ම මා කියන්න ඕනෑ, ඔබතුමන්ලාෙග් පෙව්ශයයි, අෙප් පෙව්ශයයි ෙදකක් කියන එක. තමුන්නාන්ෙසේලා ඒ හැම එෙක්ම මිනුම් දණ්ඩ දමන්ෙන් "ෙම්ක අලාභයි, අරක අලාභයි" කියලා. ඔව්, සමහර ඒවා අලාභයට තමයි යන්ෙන්. ෙමොකද ඒවා තිෙබන්ෙන් ෙසේවය සඳහායි. ඒක තමයි මූලɕවාදෙය්යි, සමාජ පජාතන්තවාදෙය්යි ෙවනස.
+
+දැන් මා ඊ ළඟ කාරණයට එන්නම්. අෙප් ගරු රවි කරුණානායක මන්තීතුමාෙග් ෙයෝජනාව ෙමොකක්ද? ආණ්ඩුව ජාතɕන්තර මූලɕ අරමුදලට මුහුණ ෙදන්ෙන් ෙකොෙහොමද කියන එක. ෙම් ආණ්ඩුව ජාතɕන්තර මූලɕ අරමුදලට විතරක් ෙනොෙවයි, ෙලෝකෙය් ඉන්න බලවත්ම රාජɕයන්ටත් මුහුණ දීලා තිෙබනවා. තමුන්නාන්ෙසේලාෙග් පක්ෂය තමන්ෙග් පරමාදර්ශය ෙලස සලකමින් අනුගමනය කරපු ඇෙමරිකාව, යුෙරෝපය, බිතානɕ ආදී රටවලට අපි මුහුණ දීලා තිෙබනවා. අපි ඒවාට මුහුණ දීලා තිෙබන්ෙන් මූලɕ කටයුතුවලදී ෙනොෙවයි ෙද්ශපාලන කටයුතුවලදී. අපි අද අනුගමනය කරන්ෙන් ෙනොබැඳුණු පතිපත්තියක්. තමුන්නාන්ෙසේලා 1947 ඉඳලා අනුගමනය කරපු වහල් පතිපත්තිය ෙනොෙවයි. අපි දන්නවා, මුහුණ ෙදන්න ඕනෑ හැටි. අපි යුද්ධෙය්දී මුහුණ දුන්නා. අපි එක ෙවලාවක ජාතɕන්තර මූලɕ අරමුදලත් එක්ක ගනු ෙදනු කරන එක නැවැත්තුවා. ෙමොකද? ජාතɕන්තර මූලɕ අරමුදල අෙප් වුවමනාවන්ට ගැළෙපන ෙලස අෙප් ඒ ගනු ෙදනු කරන්න ලෑස්ති නැති නිසා. ඊ ළඟට නැවත අපි ජාතɕන්තර මූලɕ අරමුදලත් එක්ක ගනු ෙදනු කරන්න පටන් ගත්තා. ෙමොකද, ජාතɕන්තර මූලɕ අරමුදලත් දැන් හුඟක් ෙද්වල් ඉෙගන ෙගන. “Confessions of an Economic Hit Man Story” ඒ වාෙග් ෙද්වල් ෙලෝකෙය් ෙහළිදරවු ෙවලා. ඒ වාෙග්ම ෙලෝක බැංකුෙව්; ජාතɕන්තර මූලɕ අරමුදෙල් හිටපු ආර්ථික විෙශේෂඥෙයෝම අද එළියට ඇවිල්ලා කියලා තිෙබනවා, ෙම් ජාතɕන්තර මූලɕ අරමුදලයි, ෙලෝක බැංකුවයි තමයි ෙම් ෙකොන්ෙද්සි පනවලා ෙම් තුන්වැනි ෙලෝකෙය් රටවල් විනාශ කෙළේ කියලා. එෙහම කියලා තිෙබනවා. ඉතින් ඒ නිසා තමුන්නාන්ෙසේලා අදහන, වඳින පුදන ඒ ආර්ථික කමය අද බිඳ වැටිලා. [බාධා කිරීමක්] වාඩි ෙවන්න. මම උත්තර ෙදන්නම්. ආණ්ඩුවක් හැටියට අපි ෙමොකකටද යන්ෙන්, ඒ ෙකොයි ෙවලාවටද යන්ෙන් කියන එක තීන්දු කරන්ෙන් අපියි. විපක්ෂය හැටියට තමුන්නාන්ෙසේලාට අයිතියක් තිෙබනවා ඔය පශ්න මතු කරන්න. නමුත් ආණ්ඩුවක් හැටියට අපි තීන්දු කරනවා ෙමොකකටද යන්ෙන්, ෙකොයි ෙවලාවටද යන්ෙන්, කුමන තත්ත්වයන් යටෙත්ද යන්ෙන් කියන එක. එෙහමයි අපි කියා කරන්ෙන්. ඒෙක්දී තමුන්නාන්ෙසේලා ෙදන උපෙදස් වැදගත්. නමුත් තමුන්නාන්ෙසේලාෙග් ඒ ආර්ථික පරමාදර්ශ කැබලි ෙවලා යද්දී තමුන්නාන්ෙසේලාෙග් උපෙදස්වලට කන් ෙදන්නට අපට ෙවලාවක් නැහැ. ෙමොකද තමුන්නාන්ෙසේලා පරමාදර්ශ හැටියට සලකපු ඒවා අද කැබැලි ෙවලා බිඳ වැටුණු මාළිගා. දැන් මා තමුන්නාන්ෙසේලාට යම් ෙතොරතුරක් කියන්නම්. ෙලෝක බැංකුව හා ජාතɕන්තර මූලɕ අරමුදල දැන් හුඟක් ෙද්වල් ඉෙගන ෙගන තිෙබනවා. ෙමන්න ෙලෝකෙය් ඒ මහා ආර්ථිකයන්ෙග් බිඳ වැටීම නිසා මුළු ෙලෝකයටම වන විපත්තිෙය් පමාණය. ඒ කඩා වැටීම නිසා අලුෙතන් මිලියන 53ක් ජනයා අන්ත දුගී භාවයට පත් වනවා. ඒ ෙගොල්ලන්ෙග් කඩා වැටීෙමන් ඒ රෙට් විතරක් ෙනොෙවයි මුළු ෙලෝකෙය්ම කඩා වැටීමක් ඇති වනවා. අපට අයිතියක් තිෙබනවා වන්දි ඉල්ලන්න. ෙම් කඩා වැටුණු රාජɕයන්ෙග් කඩා වැටීම උඩයි ෙම් ෙලෝකයටම ෙම් විශාල ආර්ථික දුර්විපාකය ඇති ෙවලා තිෙබන්ෙන්. මතක තියා ගන්න. අද ෙමොකක්ද චීනෙය් මහ බැංකුෙව් අධිපතිවරයා කියන්ෙන්? ඔහු ෙමෙහම කියනවා: “Unsustainable fiscal policies of these so-called industrialized developed countries are the most dangerous threat to the world financial conditions.” ෙම් පකාශය මා
+
+පාර්ලිෙම්න්තුව 387 388
+
+[ගරු වාසුෙද්ව නානායක්කාර මහතා]
+
+සිංහෙලන් ලියා ෙගන තිෙබනවා. බලවත් රටවල්වල අද තිෙබන පවත්වාෙගන යා ෙනොහැකි - unsustainable - අය වැය තත්ත්වයන් - fiscal conditions - තමයි ෙලෝක මූලɕ අස්ථාවරභාවයට තිෙබන ෙලොකුම තර්ජනය කියලා චීනෙය් මහ බැංකුෙව් අධිපතිවරයා කියනවා. ඒකයි ෙම්ෙක් මූලික ඇත්ත. අෙප් රට වාෙග් රටවල් දුප්පත් රටවල්; ඒ තරම් ෙනොදියුණු රටවල්. ඒ නිසා අෙප් ආරක්ෂාවට, අෙප් වුවමනාවට ගැළෙපන පරිදි අපි නිදහෙසේ තීන්දු ගන්නවා. තමුන්නාන්ෙසේලා එදා වහලුන් වාෙග් තීන්දු ගත්තා. අප එෙහම තීන්දු ගන්න ලෑස්ති නැහැ. ඒකයි ෙම් ෙවනස. උදව්වට, උපෙද්ශයට ස්තුතියි. නමුත් ඒක ඔබතුමා ළඟ තියා ගන්න. ෙදවන කාරණය ෙම්කයි. ජාතɕන්තර මූලɕ අරමුදෙලන් ෙමොනවාටද අපි ෙම් මුදල් ගන්ෙන්? ෙගවුම් ෙශේෂෙය් ඇති වන්නා වූ අසීරුතාවන්ට මුහුණ ෙදන්න. ඒකට ෙන් ඒ ෙගොල්ෙලෝ මුදල් ෙදන්ෙන්ත්. එෙහම නැතුව සංවර්ධනයට ෙනොෙවයි ෙන්. අපට ඒ මුදල් ගන්නවා නම් ගන්න වන්ෙන් ෙගවුම් ෙශේෂෙය් අමාරුකම්වලට මුහුණ ෙදන්න. ඒ ෙගොල්ලන් එක්ක කථා කරලා අපි මුදල් ගත්තා. ඒ මුදල් ගත්තු එක ගැනයි, අද අෙප්ම ආදායම ගැනයි උදාහරණයක් කිව්වා, අපි ෙහොරකම් කර ෙගන ඇවිල්ලා "ෙමන්න අෙත් රුපියල් 100ක් තිෙබනවා" කියනවා වාෙග්ය කියලා. ඒ කිව්ව උදාහරණය මහ ෙමොට්ට උදාහරණයක්. අල්ලපු ෙගදරින් රුපියල් 100ක් ෙහොරා ෙගන ඇවිල්ලා, “ෙමන්න මෙග් වත්කම” කියලා ෙපන්වනවා කිව්වා. ෙහොෙරන් අර ෙගන ආෙව් නැහැ. ෙම්වා අපි negotiate කරලා ගත්තු ඒවා. කීයද දැන් සංචිතය? You were very cruel in not mentioning that. Where do we stand now? ෙඩොලර් බිලියන 5,000ක් තිෙබනවා අෙප් සංචිතෙය්.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+The conditions which you have just agreed to, show that the balance of payments is what is required. That is why I told that Rs. 100 borrowed does not mean a 100-rupee asset.
+
+ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara)
+
+No, leave out the conditions.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+I told that specifically. I did not know that you were going to use this as an example.
+
+ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara)
+
+You look at the Monetary Board Report. It says that in December, 2009, we had US Dollars 5 billion. - [Interruption.]
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+What is the net liability? It is US Dollars 4.3 billion. - [Interruption.]
+
+ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara)
+
+You must know that the net liability was there even when our reserves were only US Dollars 1,369 million. Now with the net liability, we have our surplus and official reserves standing at US Dollars five billion. You never wanted to mention that.
+
+දැන් එෙහම නම් ෙමොකටද අපට මූලɕ අරමුදෙලන් උදව්වක් ෙම් ෙවලාෙව්? ෙම් ෙවලාෙව් අතɕවශɕෙයන්ම ඕනෑ වන්ෙන් නැහැ. අෙප් ෙගවුම් ෙශේෂයට මුහුණ ෙදන්න ඒක අතɕවශɕෙයන්ම වුවමනා වන්ෙන් නැහැ. අපට තිබිය යුත්ෙත් US Dollars 2.5 billlion. ඒ තමයි තිබිය යුතු සාමානɕ ගණන. අද අපට US Dollars 5 billion තිෙබනවා. අපි ණය බර වැඩි කර ගන්න ඕනෑ නැහැ ෙන්.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු මන්තීතුමා, ඔබතුමාට නියමිත කාල ෙව්ලාව අවසානයි. ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) හරි, මම ඉවර කරන්නම්. ඒ නිසා මා කියන්ෙන්,- [බාධා කිරීමක්]
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) Then, why do you not ask the IMF to go to hell? ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara)
+
+We are not talking in terms of “Go to hell.” - [Interruption.] We are living in a world which we know. We are prepared to talk to anybody; negotiate with anybody and have our purpose served ultimately. අපි අෙප් වුවමනාව ඉටු කර ගන්න,- [බාධා කිරීමක්] ෙම්ක අහ ගන්න. අද අපි ඉන්න තත්ත්වය යටෙත්, අෙප් සංචිතය අනුව අද අපට ෙම් මුදල ගන්න අවශɕම නැහැ. ෙහට අපි renegotiate කරනවා. ඒ අයම ඒ අයෙග් දුබලතා ෙත්රුම් අර ෙගන තිෙබනවා. පුංචි රටක් වුණාට අපිව නිකම් යට කර ෙගන යන්න බැහැ. අපට අවශɕ වූ ෙවලාවට වැඩි වියදමක් දරලා හරි අෙප් ස්ෛවරීභාවයත්, අෙප් ආත්ම ෙගෞරවයත් රැක ගන්නවා. මම එක ෙදයක් කියනවා. ෙම් මුදල්-
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ඒෙකන්ම අවසන් කරන්න. ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) මූලɕ කළමනාකරණය. ඒ මූලɕ කළමනාකරණය ගැන තමයි සුපිම් උසාවිය තීන්දු ෙදකක් දුන්ෙන්. එකක් මැරයින් සමාගම ගැන. අනික් එක රක්ෂණ සමාගම ගැන. ෙම් රටට, ජනයාට පාඩු කරලා වංචාකාරී ෙලස ෙකෝටි ගණනක් පැහැර ගත්තා ආණ්ඩු ෙව්ත්, ෙද්ශපාලනඥයන්ෙග්ත්, නිලධාරින්ෙග්ත් හවුෙලන් ෙකොම්පැනිකාරයන්. [බාධා කිරීමක්] මම කථා කරන්ෙන් ෙවච්ච ෙද්. මම නඩුව දාපු,- [බාධා කිරීමක්]
+
+2010 මැයි 06 389 390
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු රවි කරුණානායක මන්තීතුමා, බාධා කරන්න තමුන්නාන්ෙසේට ෙවලාවක් නැහැ.
+
+ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) ඒ නඩුෙව්දී ඔප්පු වුණා ෙහොරකම් කරපු බව; වංචා කරපු බව. ෙම් විධියට ෙම් රජෙය් ආයතන,- [බාධා කිරීම්]
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) ඒ අයට ෙමොනවාද කරලා තිෙබන්ෙන්? දඬුවම් කරලා තිෙබනවාද?
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු මන්තීතුමා , අවසන් කරන්න. [බාධා කිරීම්] ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) කරපු ෙද්වල්ද? ඒවා ආපහු ආණ්ඩුවට අර ගත්තා. ඒකයි කරපු ෙද්. එදා ෙකොම්පැනිකාරයන්ට පාවා දුන්නා රජෙය් ආයතන. තමුන්නාන්ෙසේලා එදා ෙහොර වංචනික විධියට ඒවාෙය් ෙද්ෙපොළ, වත්කම්, ආදායම් සම්බන්ධෙයන් ඒ කරපු ෙද්වල් ෙවනස් කරලා අපි එකින් එක රජෙය් ආදායමට අර ගත්තා. ඒ නිසා, -
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ෙබොෙහොම ෙහොඳයි. අවසන් කරන්න. ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara) අෙප් රජෙය් ආදායම අපි ෙගොඩ නඟන්ෙන් එදා ඔබතුමා ෙගනිච්ච වැඩ පිළිෙවළට ෙවනස් වැඩ පිළිෙවළක් උඩ. ඒ නිසා මම තමුන්නාන්ෙසේට කියනවා, උපෙද්ශයට ස්තුතියි, ඒක සාක්කුෙව් දමා තියා ගන්න කියලා.
+
+ගරු සුනිල් හඳුන්ෙනත්ති මහතා
+
+(மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) මූලාසනාරූඪ ගරු මන්තීතුමනි, විෙශේෂෙයන්ම අද අපි ෙම් සාකච්ඡා කරන කල් තැබීෙම් ෙයෝජනාෙව් වැදගත්කම තමයි මීට කලින් අවස්ථා ගණනාවකදී ජාතɕන්තර මූලɕ අරමුදෙල් ණය එකඟතාවන් පිළිබඳව අපි කථා කර තිබීම. ඒ එකඟතාවන් සඳහා ඇති කර ගත්ත ගිවිසුම් පිළිබඳව ෙම් පාර්ලිෙම්න්තුව තුළ අපි සාකච්ඡා කළා. අද ෙම් ෙපනුෙමන් අලුත් මුහුණු තිබුණාට, පතිපත්ති ෙයන් පරණ, එකම වැඩ පිළිෙවළක් ෙගනිච්ච ෙම් සන්ධාන ආණ්ඩුව ඒ හැම ෙවලාෙව්දීම දුන්ෙන් එකම උත්තරයක්. අෙප් පැරණි වෙම් වɕාපාරය නිෙයෝජනය කරපු ගරු වාසුෙද්ව නානායක්කාර මන්තීතුමා ඉතා පැහැදිලිව කිව්වා, ෙම් ණය අරෙගන තිෙබන්ෙන් ෙගවුම් ෙශේෂ හිඟය පියවන්නයි කියලා. ඒ වාෙග්ම ෙම් ෙවනුෙවන් ණය ගිවිසුම් තිෙබනවා, negotiate කරලා තමයි ෙම්වා ගත්ෙත් කියලා කිව්වා. දැන් අපිට අහන්න තිෙබන්ෙන් එකම පශ්නයයි. ඒ negotiations ෙමොනවාද? ඒවායි ෙම් රට දැන ගන්න ඕනෑ. විෙශේෂෙයන්ම ජාතɕන්තර මූලɕ අරමුදල ෙයෝජනා කළා ඉතිරි ණය වාරික ලබා ෙදන්න නම් ෙගවුම් ෙශේෂ හිඟය පාලනය කරන්න ශී ලංකා රජය පැත්ෙතන් ගත යුතු
+
+කියා මාර්ග. ඒ අනුව තමයි කිව්ෙව් අය වැය හිඟය 2009 අවුරුද්ෙද්දී සියයට හෙත් මට්ටෙම්ත්, ඊ ළඟට සියයට පෙහේ මට්ටෙම්ත් තියා ගන්න ඕනෑ කියලා. දැන් ඔබතුමන්ලා අය වැය ෙග්න්න බැරි අර්බුදයකට පත් ෙවලා ඉන්ෙන් ඇයි? අය වැය ෙග්න්න බැරි අර්බුදයකට පත් ෙවලා ඉන්ෙන් ෙවන ෙහේතුවක් නිසා ෙනොෙවයි. ජාතɕන්තර මූලɕ අරමුදෙල් වුවමනාවන්ට අනුව අය වැය හිඟය පාලනය කර ගන්න බැරි නිසා. ඒක තමයි තිෙබන පශ්නය. [බාධා කිරීමක්] වාසුෙද්ව නානායක්කාර මන්තීතුමා, දැන් ඔබතුමා කථා කළා. අෙන්, මට විනාඩි පහයි ෙන් තිෙබන්ෙන්. [බාධා කිරීමක්] මට විනාඩි පහයි තිෙබන්ෙන්. ඔබතුමා පිටුපස්ෙසේ ඇමතිකමක් එනවා.
+
+මූලාසනාරූඪ ගරු මන්තීතුමනි, පූර්ව මැතිවරණ අය වැය තත්ත්වය පිළිබඳව මුදල් හා කමසම්පාදන අමාතɕාංශෙයන් නිකුත් කරපු වාර්තාවක් මා ළඟ දැන් තිෙබනවා. එහි 7 වැනි පිටුව, පළමුවන වගුව. රාජɕ මූලɕ කියාකාරකම්හි සාරාංශය එහි තිෙබනවා. ෙම් වාර්තාව අනුව 2009 දී ඔබතුමන්ලා ඉලක්කගත කරනවා 7.6ක අය වැය හිඟයක්. නමුත් දැනටම තාවකාලික තත්ත්වය 9.7යි. එතෙකොට වසර මැද තත්ත්වය ගත්තත්, අය වැය හිඟය සියයට 9.7 මට්ටෙම් තිෙබන්ෙන්. අපි ෙමොන විකාර කථා කිව්වත් අද ජාතɕන්තර මූලɕ අරමුදෙල් කණ්ඩායම ලංකාවට ඇවිත් ඉන්නවා. ඔබලා ෙමතැනදී අද අපට ෙමොන සුරංගනා කථාව කිව්වත් ඔවුන් අහනවා, "ඊ ළඟ අය වැය හදන ෙකොට ඔෙබ් අය වැය හිඟය ඔබ පාලනය කර ගන්ෙන් ෙකොයි මට්ටෙම්ද?" කියලා. ෙම්ක මෙග් වාර්තාවක් ෙනොෙවයි. අය වැය තත්ත්වය පිළිබඳ මුදල් අමාතɕාංශෙය් ෙම් වාර්තාෙවන්ම මම ෙම් කරුණු ඉදිරිපත් කරනවා. එහි 23 වැනි පිටුෙව් ගිවිසුම්ගත, එෙහත් නිදහස් කර ෙනොමැති ෙශේෂයන් යටෙත් ෙම් විධියට තිෙබනවා:
+
+''රජෙය් සංවර්ධන වැඩසටහන් සඳහා 2009 ෙදසැම්බර් 31 වන විට ගිවිසුම්වලට එළඹ ඇති, එෙහත් නිදහස් කර ෙනොමැති මුළු විෙද්ශ මූලɕ ෙශේෂය ඇ. ෙඩො. බිලියන 6.4කි."
+
+ඇෙමරිකානු ෙඩොලර් බිලියන 6.4ක් දැනට ඔබතුමන්ලාට නිදහස් කරලා නැහැ. ඒ වාෙග්ම ජාතɕන්තර මූලɕ අරමුදල බලනවා, නිර්ෙද්ශ කරන ණය රජය ෙයොදා ගන්ෙන් ෙමොන කටයුත්තට වුණත් ෙගවන්න පුළුවන් හැකියාවක් ශී ලංකා රජය ෙම් භූමිය ඇතුෙළන් උත්පාදනය කරනවාද කියලා. ෙම් භූමිය තුළින් උත්පාදනය කිරීම තමයි වැදගත් වන්ෙන්. ඒක ෙම් භූමිය තුළින් උත්පාදනය කරන්න දැන් තමුන්නාන්ෙසේලාට තිෙබන වැඩ පිළිෙවළ ෙමොකක්ද, ෙම් රජයට තිෙබන වැඩ පිළිෙවළ ෙමොකක්ද? මම අවධානය ෙයොමු කරවනවා, මුදල් හා කමසම්පාදන අමාතɕාංශෙය් එම වාර්තාෙව් 31 වන පිටුෙව් තිෙබන අපනයන තත්ත්වය පිළිබඳව. එහි ෙමෙසේ දැක්ෙවනවා:
+
+"අපනයන ආදායම වශෙයන් 2008 වසෙර් ලබා ගත් ඇ.ෙඩො. මිලියන 1,885 ට සාෙප්ක්ෂව සියයට 9ක සෘණ වර්ධනයක් වාර්තා කරමින් ඇ.ෙඩො. මිලියන 1,690 ක් උපයන ලදී."
+
+අපනයන ආදායම සෘණ අගයක්. තව ෙමොන කථාද? ඊ ළඟට ආනයන තත්ත්වය. ඒ ගැන ෙමෙහම තිෙබනවා:
+
+"2009 දී මුළු ආනයන වල වටිනාකම ඇ. ෙඩො. මිලියන 9,883 ක් වූ වූ අතර එය 2008 ට වඩා සියයට 29 ක අඩු වීමකි."
+
+එතෙකොට රෙට් අපනයනත් අඩු ෙවලා; ආනයනත් අඩු ෙවලා. රෙට් ආර්ථිකය හැකි ළිලා. ඒ හැකිළීම ඇතුෙළේ තමයි අපි ෙම් ජීවත් වන්ෙන්. ඒක නිසා තමයි දැන් කල්පනා කරන්ෙන් ඊ ළඟට ආදායම ෙහොයන්ෙන් ෙකොෙහොමද කියලා. ආදායම් ෙහොයන්න ජාතɕන්තර මූලɕ අරමුදෙල් ෙකොන්ෙද්සි තමයි, සමෘද්ධිය කපන්න,-
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු මන්තීතුමා ඔබතුමාෙග් කථාව අවසන් කරන්න.
+
+පාර්ලිෙම්න්තුව 391 392
+
+ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) ෙපොෙහොර සහනාධාරය කපන්න, අධɕාපන වියදම කපන්න, ෙසෞඛɕ වියදම් කපන්න, රජෙය් වියදම් අඩු කරන්න, විශාම වැටුප කපන්න කියන එක. අද ETF එක මුදල් හා කමසම්පාදන අමාතɕාංශය ඇතුළට ගන්ෙන් ඒක නිසා. අද සමාජ ආරක්ෂණ මණ්ඩලය මුදල් හා කමසම්පාදන අමාතɕාංශය ඇතුළට ගන්ෙන් ඒ නිසා.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member) ගරු මන්තීතුමා, තමුන්නාන්ෙසේෙග් විනාඩි 5 අවසානයි. ෙබොෙහොම ස්තුතියි.
+
+ගරු සුනිල් හඳුන්ෙනත්ති මහතා (மாண்ᾗமிகு சுனில் ஹந்ᾐன்ெனத்தி) (The Hon. Sunil Handunnetti) මම අවසන් කරනවා. මට තව තත්පරයක් ෙදන්න. එක්ෙකෝ ආදායම වැඩි කරන කමයක් ආණ්ඩුවට තිෙබන්න ඕනෑ, එෙහම නැත්නම් වියදම් අඩු කරන කමයක් ආණ්ඩුවට තිෙබන්න ඕනෑ. ඒ නිසා ඔබතුමන්ලා අපට කියන්න, ජාතɕන්තර මූලɕ අරමුදෙලන් ඉදිරිපත් කර තිෙබන ෙකොයි ෙකොන්ෙද්සිද ඊ ළඟ ණය වාරිකයට ඔබතුමන්ලා පිළිගන්ෙන් කියන එක. ආණ්ඩුව එය රටට ෙහළි කරන ෙලස අවධාරණය කරමින් මෙග් අදහස් දැක්වීම අවසන් කරනවා.
+
+ගරු ආචාර්ය සරත් අමුණුගම මහතා (මුදල් හා කමසම්පාදන නිෙයෝජɕ අමාතɕතුමා)
+
+(மாண்ᾗமிகு கலாநிதி சரத் அᾙᾔகம - நிதி, திட்டமிடல் பிரதி அைமச்சர்)
+
+(The Hon. (Dr.) Sarath Amunugama - Deputy Minister of Finance and Planning)
+
+මූලාසනාරූඨ ගරු මන්තීතුමනි, රවි කරුණානායක මන්තීතුමා ඉදිරිපත් කරපු ඒ පශ්නය පිළිබඳ සම්පූර්ණ විස්තරයක් ෙදන්න මම බලාෙපොෙරොත්තු වනවා. ඇත්ත වශෙයන් අපට ජාතɕන්තර මූලɕ අරමුදලට යන්න සිද්ධ වුෙණ් හුෙදක්ම ෙද්ශීය ආර්ථිකෙය් පශ්න නිසා ෙනොෙවයි. අපි දන්නවා, 2008 වර්ෂය වන ෙකොට, 2009 වර්ෂය වන ෙකොට ෙලෝක ආර්ථික අෙහේනියක් තිබුණු බව. ඒ තුළ අෙප් ර ෙට් විතරක් ෙනොෙවයි, මුළු ෙලෝකෙය්ම රටවල්වල විෙද්ශ විනිමය පිළිබඳ ගැඹුරු පශ්නයක් ඇති වුණා. ෙම්ක අපට විතරක් සීමා වුණු පශ්නයක් ෙනොෙවයි. ජාතɕන්තර මූලɕ අරමුදල ඒ ගැන සාකච්ඡා කරලා, සාමානɕ පිළිෙවතට ණය ෙදන කමයට ෙනොෙවයි විෙශේෂ කමයක් සකස් කලා ෙම් හදිසි අවශɕතාවට මුහුණ ෙදන්න මුදල් ලබා ගත යුතු රටවල්වල ආර්ථිකයන් පිළිබඳව. ෙනොෙයකුත් රටවල්වලට ඒ සහනය ලැබුණා. ලංකාව ඒ සහනය ලැබුණු එක රටක් පමණයි. ෙගොඩක් රටවල් තවම ෙපෝලිෙම් ඉන්නවා. ඒ නිසා තමුන්නාන්ෙසේලාෙග් අවධානය මා ෙයොමු කර වනවා, තමුන්නාන්ෙසේලා ඉදිරිෙය් තිෙබන “Pre-Election Budgetary Position Report” එකට. එෙක් පැහැදිලිව දක්වා තිෙබනවා, ෙමොන ෙහේතුවක් නිසාද අපට ෙම් විෙද්ශ විනිමය පශ්නය ඇති වුෙණ් කියලා. මම තමුන්නාන්ෙසේලාට ඒක කියවන්නම්.
+
+It states, I quote: “The external finance which suffered severely from third quarter of 2008 particularly due to sharp outflows of foreign investments in Treasury Bills and Bonds, and a significant volatility in several reserve currencies and a large trade deficit due to rising food, fertilizer and oil prices confronted severe imbalance in 2008 and 2009.”
+
+ෙම්ක අපට විතරක් ෙනොෙවයි, මුළු ෙලෝකයටම ඇති වුණු පශ්නයක්. ඉන්දියාවට ෙම් පශ්නය තිබුණා. පාකිස්තානය අපට
+
+වඩා විශාල මුදල් පමාණයක් ජාතɕන්තර මූලɕ අරමුදෙලන් ලබා ගත්තා. තමුන්නාන්ෙසේලාට මම මතක් කරන්න කැමැතියි, ඒ අවස්ථාෙව් අෙප් රජය විෙශේෂ සහන වැඩසටහනක් - bailout package එකක් - ඉදිරිපත් කළ බව. මුළු ෙලෝකෙය්ම රටවල් ඒවා කළා. එංගලන්තය, ඇෙමරිකාව පවා සුවිෙශේෂී bailout packages ෙගනාවා. එතෙකොට ඒ අවස්ථාෙව්දී ආර්ථිකෙය් ඇති වු චලනයන්වලට මුහුණ ෙදන්න -ඒකට කියන්ෙන් window එකක් කියලා.- විෙශේෂ fund එකක් හැදුවා, IMF එෙකන්. ඒ නිසා IMF එක ගැන කරන ෙම් වාද විවාද ඒ පශ්නයට අදාළ නැහැ. IMF එක කියන්ෙන් නිරන්තරෙයන් ෙවනස් වන මූලɕ ආයතනයක්. IMF එෙක් විශාල කාර්ය භාරයක් චීනය විසින් කරනවා. IMF එෙක් ෙදවැනියා චීන ජාතිකෙයක්. ඉන්දියාවත් විශාල කාර්ය භාරයක් කරනවා. ඒ නිසා අවුරුදු දහයකට, විස්සකට, තිහකට ෙපර අපි IMF එක ගැන කරපු කථාව ෙනොෙවයි අපට අද කථා කරන්න සිද්ධ ෙවන්ෙන්. ෙම්ක සුවිෙශේෂ අරමුදලකින් අපට ලැෙබන මුදලක්. ඒ අරමුදලින් දැනට අපි අරෙගන තිෙබනවා, ඇෙමරිකානු ෙඩොලර් මිලියන 652ක්. අෙප් හිතවත් ගරු රවි කරුණානායක මැතිතුමාෙග් ෙයෝජනාෙව් තිෙබන්ෙන් බිලියන 1.4ක් කියලා. ඒක වැරදියි. ඇත්ත පමාණය මිලියන 652යි. අපි එය tranches ෙදකකින් ලබා ෙගන තිෙබනවා. තුන් වැනි tranche එක පිළිබඳව අපි දැන් සාකච්ඡා කරෙගන යනවා. මම හිතන්ෙන් ඒක අපට tranches අටකින් ෙදන්න තමයි බලාෙපොෙරොත්තු වුෙණ්.
+
+අපි හැම ෙවලාෙව්ම IMF එක ගැන කථා කරන ෙකොට ෙම් රෙට්, විෙශේෂෙයන්ම ෙම් සභාෙව් ඉතිහාසයක් තිෙබනවා. IMF එක, ෙලෝක බැංකුව කියලා කිව්වාම මාරක අපල ෙදකක් හැටියටයි සාකච්ඡා කරන්ෙන්. නමුත් ෙලෝකෙය් වර්තමාන තත්ත්වය අනුව අද ඒවා සාමානɕ ෙද්වල්. දියුණු වන රටවල් සඳහා අද විශාල කාර්ය භාරයක් IMF එක කරනවා. අපි IMF එකට ගියාම මුලින්ම සාකච්ඡා කරන්ෙන් quota එක පිළිබඳවයි; අලුතින් සංවර්ධනය වන රටවලට ලැෙබන quota එක පිළිබඳවයි. මීට ෙපර ඇෙමරිකාෙව් තිබුණු quota එක කලින් කලට කැඩිලා, කැඩිලා අද චීනයට ෙකොටසක් ගිහිල්ලා තිෙබනවා, ඉන්දියාවට ෙකොටසක් ගිහිල්ලා තිෙබනවා, ජපානෙය් quota එක වැඩි ෙවලා තිෙබනවා. ඒ නිසා අපි එය ෙවනස් වන මූලɕ ආයතනයක් වශෙයන් සලකන්න ඕනෑ. ෙලෝක බැංකුව, ජාතɕන්තර මූලɕ අරමුදල, ඒ වාෙග්ම ආසියානු සංවර්ධන බැංකුව යන සෑම ආයතනයකම ඇතුෙල් සිටින shareholdersලාෙග් තිෙබන ඒ බලවත්කම, ඒ අයිතිවාසිකම් ෙවනස් වන තත්ත්වයක් අද තිෙබන්ෙන්. විෙශේෂෙයන්ම ආසියානු ආර්ථිකයන්, චීන සහ ඉන්දියානු ආර්ථිකයන් අනුව අද ෙලෝක ආර්ථිකය දියුණු වී ෙගන යන ෙකොට ඒ මූලɕ ආයතනවල තිෙබන directorate එෙකන්, නැත්නම් ඒ ෙගොල්ලන්ෙග් ෙකොටස්, මුදල් සහ ඒ අයෙග් නායකත්වය අනුව අනිවාර්යෙයන්ම ඒක reflect ෙවනවා, ඒක ෙපන්වනවා. මම හිතන්ෙන් ඒ නිසයි අපට ෙම් ෙදක මාරක අපල ෙදකක් හැටියට සලකන්න පුරුදු ෙවලා තිෙබන්ෙන්. ඇත්ත වශෙයන්ම කියනවා නම් මාරක අපල ෙනොෙවයි, අෙප්ම මාරක අපල අපට ෙබ්රා ගන්න අවස්ථාවක් ලැබුණා ඒ මුදල් අපට ලැබීම නිසා. එෙහම නැත්නම් අපට ෙලොකු අමාරුවක් ෙවන්න තිබුණා. අපට විතරක් ෙනොෙවයි, ඒ අවස්ථාෙව් දී ෙලෝකෙය්ම රටවල්වලට ඒ අමාරුවට මුහුණ ෙදන්න සිද්ධ වුණා. අපි දන්නවා, තමුන්නාන්ෙසේලාත් දන්නවා, ඒ ෙයෝජනාව ඇවිල්ලා අපි ඒක සාකච්ඡා කරන ෙවලාෙව් අපි කිසිම ෙකොන්ෙද්සියකට යටත් වුෙණ් නැති බව. මම කියන්නට ඕනෑ,- [බාධා කිරීමක්] ඒක පරණ කථාවක්. ෙලෝක බැංකුව, IMF එක ෙකොන්ෙද්සි දමනවා, අපි සාකච්ඡා කරනවා, ෙකොන්ෙද්සිවලට යට ෙවනවා, ගිවිසුම් අත්සන් කරනවා. එෙහම කිසි ෙදයක් ෙමතැන නැහැ. ෙම්ක සුවිෙශේෂ අරමුදලක්. ඇති වුණු ෙගෝලීය අර්බුදයට මුහුණ ෙදන්න සෑම රටකටම ලබා දුන් සුවිෙශේෂ අරමුදලක්. එහි දී ඔය විධියට සාකච්ඡා කෙළේ නැහැ. ඒක ඉතාම ලිහිල් සාකච්ඡාවක්. තමුන්නාන්ෙසේලාට මම කියන්න ද, රටක් හැටියට අපි ඉල්ලුෙව් බිලියන 1.8යි. ඒ අය බිලියන 2.6ක් ෙදන්න ලැහැස්ති වුණා. ඒ වාෙග් ඉතාම සහනශීලී විධියට තමයි කටයුතු කරන්ෙන්.
+
+2010 මැයි 06 393 394
+
+තමුන්නාන්ෙසේලා දන්නවා, ෙම්වාට ෙගවන ණය පමාණය. ෙලෝකෙය් ෙමොනම රටක්වත් ෙලෝක බැංකුවට හරි ජාතɕන්තර මූලɕ අරමුදලට හරි යන්ෙන් නැහැ ඒවායින් ෙදන සහන ණය ෙහොඳ නැත්නම්. අපි ෙකොපමණ කෑ ගැහුවත් ෙලෝකෙය් ෙවන ෙකොෙහන්වත් ෙම් විධිෙය් සහනදායී පදනමට ණය ගන්න බැහැ. [බාධා කිරීමක්] ඔව්, ඒක තමයි. ෙම්වා අපට තිෙබන මාරක අපල කියලා හිතන්න ෙහොඳ නැහැ. අපට ෙලෝකෙය් සහනම කමයට ණය ගන්න පුළුවන් ෙවලා තිෙබන්ෙන් එම ආයතනවලින්. ෙමොකද? ඒ අය සහනදායී කමයට අපට ණය ෙදනවා. ඒ වාෙග්ම අෙප් මුදල් ඒවා තුළ තිෙබනවා. ඒ නිසා ඒවා ෙදස අපි ඉතාම විචාරශීලී සහ නූතන විධියට බලන්න ඕනෑ. අනික් එක තමයි, ඒ අය ඉස්සර වාෙග් ෙකොන්ෙද්සි ඉදිරිපත් කරන්ෙන් නැහැ. තමුන්නාන්ෙසේලාත් ඒවා සාකච්ඡා කරලා තිෙබනවා, අපිත් සාකච්ඡා කරලා තිෙබනවා. ඒවා සාමූහික වශෙයන් සාකච්ඡා අනුව කරන ෙද්වල්. රටවල් ෙදෙක්ම ආර්ථිකය දියුණු කරන්න තමයි අපි මහන්සි ගන්ෙන්. නිදසුනක් වශෙයන් අරෙගන බලන්න, අෙප් Exchange Parity Rate එක ගැන. අපි ෙද ෙගොල්ෙලෝම කථා කරලා ඉතාම සුහදශීලීව ඒ පශ්නය විසඳුවා. ඇත්ත වශෙයන්ම රහසක් ෙහළි කරනවා ෙනොෙවයි, ඒවා ගැන තිබුණු අෙප් ෙයෝජනා ඒ ෙගොල්ෙලෝ සම්පූර්ණෙයන්ම පිළිගත්තා. අෙප් විෙද්ශ විනිමය අපට ආරක්ෂා කර ගන්න පුළුවන් නම් ඒක අපට වාසියි. එමඟින් අෙප් රෙට් තිෙබන විශ්වසනීයභාවය සෑෙහන දුරට තහවුරු ෙවනවා. අර්බුදකාරී විෙද්ශ විනිමයක් තිෙබන රටක් ද, නැද්ද කියලා තමයි ඒ අය බලන්ෙන්. එෙහම නැතිව අපට ෙහොඳ සංචිතයක් තිෙබනවා නම්, ෙහොඳ පබල පමාණයක් තිෙබනවා නම් අෙනක් රටවල් බය නැතිව ඇවිල්ලා අපිට සල්ලි ෙදනවා, අෙප් ෙකොම්පැනිවල ෙකොටස් ගන්නවා, ලංකාවට ණය ෙදනවා. ඒ තත්ත්වය ෙපනුණා. ෙඩොලර් මිලියන හයසිය ගණනක් වන ඒ සංචිතය අපට ලැබුණාට පස්ෙසේ විශාල ආෙයෝජනයක් ආවා. අද අෙප් ෙකොටස් ෙව ෙළඳ ෙපොළ ඉතා ෙහොඳට වැඩ කරනවා. ෙමොකද, අර විශ්වාසය ති ෙබනවා. IMF එක අපට සල්ලි ෙදන්න බල කරන්ෙන් නැහැ. අපි ඉල්ලන්න ඕනෑ. ෙගොඩක් දුරට ඒ ෙගොල්ෙලෝ බලනවා, ෙම් ආර්ථිකය ෙකොෙහොමද, ඉදිරියට යන්න පුළුවන්ද කියා. අඩුම ගණෙන් ඕනෑම බැංකුවක් වාෙග් ඒ ෙගොල්ෙලොත් බලනවා ෙම් මිනිසුන්ට ණය ෙගවන්න පුළුවන් ෙවයි ද, බැරි ද කියලා. ඉස්ෙසල්ලාම අපි ඒ අයට සහතිකයක් ෙදන්න ඕනෑ. ෙමොකද, ඒ ෙගොල්ෙලොත් ෙවන ෙවන රටවල්වලින් සල්ලි අරෙගන තමයි අපට ණය ෙදන්ෙන්. ඒකත් බැංකුවක්. ඒ බැංකුෙව් ෙකොටස්කාරෙයෝ විවිධ රටවල්. ඒ රටවල්වල මුලɕ ආයතන අහනවා, ණය දුන්නා නම් ඒ ණය ආපසු ගන්න පුළුවන් තත්ත්වයක් ඒ රෙට් තිෙබනවාද කියලා. ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+Hon. Minister, all we want to know is whether they have said that it is conditioned upon a budget being presented? When you said that the budget will come in November, are you not going to rely on the IMF? That is all what we ask. That is why we asked a very innocuous - [Interruption.]
+
+ගරු ආචාර්ය සරත් අමුණුගම මහතා (மாண்ᾗமிகு கலாநிதி சரத் அᾙᾔகம) (The Hon. (Dr.) Sarath Amunugama)
+
+Hon. Member, I can understand your anxiety. But, the fact of the matter is that these are matters which are mutually discussed. They are not saying, “You must do this, you must do that." Never! Even at the worst of times, I must say, as my good Friend, the Hon. Vasudeva Nanayakkara mentioned, they have never said like that. They never talked about bringing a vote on account or a budget. You know, the instrumentality of this -
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member)
+
+Hon. Minister, your time is up. ගරු ආචාර්ය සරත් අමුණුගම මහතා (மாண்ᾗமிகு கலாநிதி சரத் அᾙᾔகம) (The Hon. (Dr.) Sarath Amunugama)
+
+I will take just one minute. The Hon. Chandrasiri Gajadeera is giving me his time, because I want to give a full answer.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member)
+
+Do you intend to take his entire time? ගරු ආචාර්ය සරත් අමුණුගම මහතා (மாண்ᾗமிகு கலாநிதி சரத் அᾙᾔகம) (The Hon. (Dr.) Sarath Amunugama)
+
+Yes. So, the instrumentality is never discussed with them. They never came and said that. Of course, we said that whatever changes we want to make, whatever progressive measures we want to make, for example through the Taxation Commission, will be incorporated in the budget. But, you have to think of the external environment. We have had elections. We have had the need to have an election for electing Members of Parliament. A new Parliament has come. A new Government is in power. We have to bring a new budget. All these matters have to be considered. The pledges made to the public have to be taken into account. The global economic scenario has to be taken into account. So, this is not a matter to be taken lightly. The IMF is never telling us to take these matters lightly. Whether we are to have a vote on account or whether we are to have a budget, it is all a matter for the local host country to decide.
+
+The IMF, you know very well, has been disengaging itself very much from trying to impose conditionalities. In fact, the idea of conditionalities is a very old concept. I can remember, when I was the Director of Information and Dr. N.M. Perera presented his Budget, Madam Sirimavo Bandaranaike came and told me - I was in the Officials' Box here - “Why do you not explain to the UNP that we are also partners in the World Bank. Please, explain to the UNP that there is no menace in this”. At that time also they were saying the same thing. Dr. N.M. Perera even went to the IMF and borrowed from the IMF. I can very well remember that he got up and thanked the IMF. The officials had a lot of difficulty in persuading Dr. N.M. Perera to get up and thank the IMF. But, he did it. So we have to be- [Interruption.]
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+Hon. Minister, you may even extract the things which the Hon. Vasudeva Nanayakkara - [Interruption.]
+
+පාර්ලිෙම්න්තුව 395 396
+
+ගරු ආචාර්ය සරත් අමුණුගම මහතා (மாண்ᾗமிகு கலாநிதி சரத் அᾙᾔகம) (The Hon. (Dr.) Sarath Amunugama)
+
+No, no. He is my Friend. We have been together in this fight.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake) A real time situation, both of you must do that together.
+
+ගරු ආචාර්ය සරත් අමුණුගම මහතා (மாண்ᾗமிகு கலாநிதி சரத் அᾙᾔகம) (The Hon. (Dr.) Sarath Amunugama)
+
+I really appreciate what the Hon. Vasudeva Nanayakkara says.
+
+ගරු වාසුෙද්ව නානායක්කාර මහතා (மாண்ᾗமிகு வாசுேதவ நாணாயக்கார) (The Hon. Vasudeva Nanayakkara)
+
+We are not going to be enslaved by any - [Interruption.] ගරු ආචාර්ය සරත් අමුණුගම මහතා (மாண்ᾗமிகு கலாநிதி சரத் அᾙᾔகம) (The Hon. (Dr.) Sarath Amunugama)
+
+Exactly. He is quite right. [Interruption.] Sir, let us not talk about that. This is not a dictionary office, Sir. This is Parliament. We are not bothered about what words we use from the dictionary. But, the point is, please appreciate. This is something that this Parliament must understand. These financial institutions are undergoing a severe change in attitude, in leadership, in ownership and all that.
+
+What are the basic functions of the IMF? That is to maintain a certain degree of discipline in the global economy. The IMF is there to monitor if countries start crashing left, right and centre because then it begins to affect the other countries as well. In this globalized world, one of their main functions is what is called, "surveillance" - global economic surveillance. They have to be constantly studying. When you go for IMF meetings, the very first day the top IMF economists come and give you what is called, "The state of the global economy". It is a whole-day presentation with facts and figures. I can say as a former participant, that long before the American economy crashed, Hon. Vasudeva Nanayakkara, the IMF economists said, that this housing business is going to crash. It is going to lead to further complications in the global economy. Of course, they may not have measured the total strength of the debacle. I think, like the American Government and like western governments, they could not understand the depth of this collapse. But, they were the first to point out in the global report that they were heading towards a collapse because of this debt situation particularly in the housing sector. Ultimately, there was a big crash in the American economy and that led to further crashes in the other countries that are related to the American economy.
+
+So, I want to say very sincerely on behalf of the Government that there is no question of being subservient to the IMF. We are having talks with them. One thing that His Excellency President Mahinda Rajapaksa has clearly told the negotiating team is, “You cannot concede things which are not earlier discussed and which form the bedrock of our policy”. We have discussed like that. The exchange rate, the interest rate and all these have been mutually discussed. So, please let us not give what I would call a "hysterical picture" of the global and domestic economic situation. - [Interruption.]
+
+Now you accept what I say. So, I want to thank you for raising this issue because let us not take this debate outside. I want to give the authoritative position, that there is no question of giving into conditionality. These are all mutually discussed and there is absolutely no case of giving into conditionality.
+
+ගරු ෙජෝන් අමරතුංග මහතා (மாண்ᾗமிகு ேஜான் அமரᾐங்க) (The Hon. John Amaratunga)
+
+Why are you not presenting Budget? After an election that is customary and that is where your policy is presented.
+
+ගරු ආචාර්ය සරත් අමුණුගම මහතා (மாண்ᾗமிகு கலாநிதி சரத் அᾙᾔகம) (The Hon. (Dr.) Sarath Amunugama)
+
+Hon. Amaratunga, [Interruption.] No, no. That is a different matter. That has nothing to do with what the Hon. Ravi Karunanayake raised. That is an internal matter. We have to decide. I can give you a straight answer. We have just had an Election; we have a new Government. We have a manifesto and according to that various new policies have to be converted into various economic and other actions.
+
+ගරු රවි කරුණානායක මහතා (மாண்ᾗமிகு ரவி கᾞணாநாயக்க) (The Hon. Ravi Karunanayake)
+
+But, the Country Manager, Mr. Koshy Mathai has said that the third tranche depended on the Budget being presented. That is why we raised this issue, because subsequently there have been three or four price increases. I do not know whether it is relevant or not.
+
+ගරු ආචාර්ය සරත් අමුණුගම මහතා (மாண்ᾗமிகு கலாநிதி சரத் அᾙᾔகம) (The Hon. (Dr.) Sarath Amunugama)
+
+Mr. Mathai may have said that, but during this year and at the end of last year, the procedures were determined largely by external factors such as elections; such as formation of a Government; such as a new manifesto and the need to present a budget which is in keeping with what we pledged the people of this country. Is that not so, Hon. Nanayakkara? So, we have to be patient and we have to be realistic. We cannot bring a budget that was formulated for last year. I will give you
+
+2010 මැයි 06 397 398
+
+some facts. We had to change the date of the Election. With regard to the Presidential Election, the dates were brought forward. So, naturally with that, various other economic and social policy matters had to be adjusted. Then, soon after that we went to the Parliamentary Election on the due date. That is why we have the new Government. මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member)
+
+Hon. Minister you have only one more minute. We have to adjourn the House.
+
+ගරු ආචාර්ය සරත් අමුණුගම මහතා (மாண்ᾗமிகு கலாநிதி சரத் அᾙᾔகம) (The Hon. (Dr.) Sarath Amunugama)
+
+So, please believe me when I say the following things. The first is, we are not subject to any conditionality as far as the IMF is concerned. These are all mutually discussed and mutually agreed.
+
+Secondly, the changes from a vote on account to a possible budget, to a vote on account again and another budget, is determined by extraneous factors such as elections and the change of the calendar. That is the reason. The third reason I want to mention is that, we will be bringing in a fully-fledged budget proposal at the proper time which will incorporate all the promises made to the public. Lastly, I want to say that we do not have to hide anything. As far as we are concerned, we are a perfectly transparent Government. Now, everything I mentioned to you is based on documentation which is
+
+freely available. In fact, I want to tell you that the Sri Lanka Central Bank has a website which gives all these data. It is www. cbsl.government.lk. So, please check these facts.
+
+මූලාසනාරූඪ මන්තීතුමා (தைலைமதாங்கும் உᾠப்பினர் அவர்கள்) (The Presiding Member)
+
+With that note you can conclude, Hon. Deputy Minister.
+
+ගරු ආචාර්ය සරත් අමුණුගම මහතා (மாண்ᾗமிகு கலாநிதி சரத் அᾙᾔகம) (The Hon. (Dr.) Sarath Amunugama)
+
+So that is what I want to say. Those are the four points. I am glad you raised this matter and I am also glad that I got the opportunity to answer it.
+
+Thank you. එකල්හි ෙව්ලාව අ. භා. 4.30 වූෙයන් මූලාසනාරූඪ මන්තීතුමා විසින් පශ්නය ෙනොවිමසා පාර්ලිෙම්න්තුව කල් තබන ලදී.
+
+පාර්ලිෙම්න්තුව ඊට අනුකූලව, 2010 මැයි 07 වන සිකුරාදා පූ. භා. 9.30 වන ෙතක් කල් ගිෙය් ය. அப்ெபாᾨᾐ, பி.ப. 4.30 மணியாகிவிடேவ தைலைமதாங்கும் உᾠப்பினர் அவர்கள்
+
+வினா விᾌக்காமேலேய பாராᾦமன்றத்ைத ஒத்திைவத்தார்.அதன்பᾊ, பாராᾦமன்றம் 2010 ேம 07,ெவள்ளிக்கிழைம ᾙ.ப.9.30 மணிவைர ஒத்திைவக்கப்பட்டᾐ It being 4.30 p.m., MR. PRESIDING MEMBER adjourned Parliament without Question put.
+
+Adjourned accordingly until 9.30 a.m on Friday, 07th May, 2010.
+
+குறிப்ᾗ
+
+உᾠப்பினர் இᾠதிப் பதிப்பிற் ெசய்யவிᾞம்ᾗம் பிைழ திᾞத்தங்கைளத் தமᾐ பிரதியில் ெதளிவாகக் குறித்ᾐ அதைனப் பிைழ
+
+திᾞத்தப்படாத பிரதி கிைடத்த இᾞ வாரங்கᾦள் ஹன்சாட் பதிப்பாசிாியᾞக்கு அᾔப்ᾗதல் ேவண்ᾌம்.
+
+සැ.යු.
+
+ෙමම වාර්තාෙව් අවසාන මුදණය සදහා ස්වකීය නිවැරදි කළ යුතු තැන් දක්වනු රිසි මන්තීන් මින් පිටපතක් ෙගන නිවැරදි කළ යුතු ආකාරය එහි පැහැදිලිව ලකුණු ෙකොට, පිටපත ලැබී ෙදසතියක් ෙනොඉක්මවා හැන්සාඩ් සංස්කාරක ෙවත ලැෙබන ෙසේ එවිය යුතුය.
+
+NOTE
+
+Corrections which Members suggest for the Final Print should be clearly marked in their copy and sent to be Editor of HANSARD within two weeks of
+
+receipt of the uncorrected copy.
+
+Contents of Proceedings : From 9.30 a.m. to 4.30 p.m. on 06.05.2010 Final set of manuscripts Received from Parliament : 5.15 p.m. on 13.05.2010 Printed copies dispatched : 16.05.2010 Morning
+
+சந்தா ; ஹன்சாட் அதிகார அறிக்ைகயின் வᾞடாந்த சந்தா ᾟபா 2,178. ஹன்சாட் தனிப்பிரதி ᾟபா 18.15. தபாற்
+
+ெசலᾫ ᾟபா 2.50. வᾞடாந்த சந்தா ᾙற்பணமாக அத்தியட்சகர், அரசாங்க ெவளியீட்டᾤவலகம், இல. 132,
+
+மாயா அெவனிᾜ, கிᾞளப்பைன, ெகாᾨம்ᾗ 5 என்ற விலாசத்திற்கு அᾔப்பி பிரதிகைளப்
+
+ெபற்ᾠக்ெகாள்ளலாம். ஒவ்ேவாராண்ᾌம் நவம்பர் 30 ஆந் ேததிக்கு ᾙன் சந்தாப் பணம்
+
+அᾔப்பப்பட ேவண்ᾌம். பிந்திக் கிைடக்கும் சந்தா விண்ணப்பங்கள்
+
+ஏற்ᾠக்ெகாள்ளப்படமாட்டா.
+
+දායක මුදල්: පාර්ලිෙම්න්තු විවාද වාර්තාවල වාර්ෂික දායක මිල රු.2178කි. පිටපතක් ෙගන්වා ගැනීම අවශɕ
+
+නම් ගාස්තුව රු. 18.15කි. තැපැල් ගාස්තුව රු. 2.50කි. ෙකොළඹ 5, කිරුළපන, මායා මාවත. අංක 132
+
+රජෙය් පකාශන කාර්යාංශෙය් අධිකාරී ෙවත සෑම වර්ෂයකම ෙනොවැම්බර් 30දා ට පථම
+
+දායක මුදල් ෙගවා ඉදිරි වර්ෂෙය් දායකත්වය ලබාෙගන විවාද වාර්තා ලබාගත හැකිය.
+
+නියමිත දිෙනන් පසුව එවනු ලබන දායක ඉල්ලුම්පත් භාරගනු ෙනොලැෙබ්.
+
+Subscriptions : The annual subscription for Official Report of Hansard is Rs. 2,178. A single copy of Hansard is available for
+
+Rs. 18.15. (Postage Rs. 2.50) Copies can be obtained by remitting in advance an annual subscription fee to the
+
+SUPERINTENDENT, GOVERNMENT PUBLICATIONS BUREAU, No. 132, Maya Avenue,
+
+Kirulapone, Colombo 5. The fee should reach him on or before November 30 each year .
+
+Late applications for subscriptions will not be accepted.
+
+ශී ලංකා රජෙය් මුදණ ෙදපාර්තෙම්න්තුෙව් මුදණය කරන ලදී.
