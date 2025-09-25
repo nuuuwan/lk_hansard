@@ -1,0 +1,68 @@
+# 🏛️#SriLanka 🇱🇰 Hansard `Dataset`
+
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--25_18:00:39-green)
+
+[https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard)
+
+A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers’ words and decisions for history, law, and public accountability.
+
+- [**192** documents](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard) (**392.3 MB**), from **2023-08-08** to **2025-09-12**, scraped from **[https://www.parliament.lk](https://www.parliament.lk)**
+
+- In **JSON**, **PDF** (17%), **TXT** (17%) & **🤗 Hugging Face** (17%)
+
+- In **සිංහල**, **தமிழ்** & **English**
+
+## 📝 Example Metadata
+
+```json
+{
+    "doc_type": "lk_hansard",
+    "doc_id": "2025-09-12-2025-09-12",
+    "num": "2025-09-12",
+    "date_str": "2025-09-12",
+    "description": "Hansard of September 12, 2025",
+    "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
+    "lang": "si-ta-en",
+    "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/1758618446023035.pdf"
+}
+```
+
+![Chart](https://raw.githubusercontent.com/nuuuwan/lk_hansard/refs/heads/data/data/lk_hansard/docs_by_month_and_lang.png)
+
+## 🤗 Hugging Face Datasets
+
+![HuggingFace](https://img.shields.io/badge/-HuggingFace-FDEE21?style=for-the-badge&logo=HuggingFace)
+
+- [nuuuwan/lk-hansard-docs](https://huggingface.co/datasets/nuuuwan/lk-hansard-docs)
+- [nuuuwan/lk-hansard-chunks](https://huggingface.co/datasets/nuuuwan/lk-hansard-chunks)
+
+## 🆕 20 Latest documents
+
+- 2025-09-12 | `2025-09-12` | Hansard of September 12, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-12-2025-09-12)
+- 2025-09-11 | `2025-09-11` | Hansard of September 11, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-11-2025-09-11)
+- 2025-09-10 | `2025-09-10` | Hansard of September 10, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-10-2025-09-10)
+- 2025-09-09 | `2025-09-09` | Hansard of September 09, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-09-09-2025-09-09)
+- 2025-08-22 | `2025-08-22` | Hansard of August 22, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-22-2025-08-22)
+- 2025-08-21 | `2025-08-21` | Hansard of August 21, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-21-2025-08-21)
+- 2025-08-20 | `2025-08-20` | Hansard of August 20, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-20-2025-08-20)
+- 2025-08-19 | `2025-08-19` | Hansard of August 19, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-19-2025-08-19)
+- 2025-08-07 | `2025-08-07` | Hansard of August 07, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-07-2025-08-07)
+- 2025-08-06 | `2025-08-06` | Hansard of August 06, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-06-2025-08-06)
+- 2025-08-05 | `2025-08-05` | Hansard of August 05, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-08-05-2025-08-05)
+- 2025-07-25 | `2025-07-25` | Hansard of July 25, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-25-2025-07-25)
+- 2025-07-24 | `2025-07-24` | Hansard of July 24, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-24-2025-07-24)
+- 2025-07-23 | `2025-07-23` | Hansard of July 23, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-23-2025-07-23)
+- 2025-07-22 | `2025-07-22` | Hansard of July 22, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-22-2025-07-22)
+- 2025-07-11 | `2025-07-11` | Hansard of July 11, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-11-2025-07-11)
+- 2025-07-09 | `2025-07-09` | Hansard of July 09, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-09-2025-07-09)
+- 2025-07-08 | `2025-07-08` | Hansard of July 08, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-07-08-2025-07-08)
+- 2025-06-30 | `2025-06-30` | Hansard of June 30, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-30-2025-06-30)
+- 2025-06-20 | `2025-06-20` | Hansard of June 20, 2025 | [data](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard/2020s/2025/2025-06-20-2025-06-20)
+
+---
+
+### [More Datasets about 🇱🇰 #SriLanka](https://github.com/nuuuwan/lk_datasets)
+
+![Maintainer](https://img.shields.io/badge/maintainer-nuuuwan-red)
+![MadeWith](https://img.shields.io/badge/made_with-python-blue)
+[![License: MIT](https://img.shields.io/badge/License-MIT-yellow.svg)](https://opensource.org/licenses/MIT)

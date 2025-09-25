@@ -1,0 +1,28 @@
+{
+  "doc_class_label": "lk_hansard",
+  "doc_class_emoji": "\ud83c\udfdb\ufe0f",
+  "doc_class_description": "A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers\u2019 words and decisions for history, law, and public accountability.",
+  "time_updated": "2025-09-25 18:00:39",
+  "n_docs": 192,
+  "n_docs_with_pdfs": 32,
+  "n_docs_with_text": 32,
+  "date_str_min": "2023-08-08",
+  "date_str_max": "2025-09-12",
+  "dataset_size": 392223107,
+  "url_source": "https://www.parliament.lk",
+  "url_data": "https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard",
+  "url_chart": "https://raw.githubusercontent.com/nuuuwan/lk_hansard/refs/heads/data/data/lk_hansard/docs_by_month_and_lang.png",
+  "langs": [
+    "si-ta-en"
+  ],
+  "latest_doc_d": {
+    "doc_type": "lk_hansard",
+    "doc_id": "2025-09-12-2025-09-12",
+    "num": "2025-09-12",
+    "date_str": "2025-09-12",
+    "description": "Hansard of September 12, 2025",
+    "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
+    "lang": "si-ta-en",
+    "url_pdf": "https://www.parliament.lk/uploads/documents/hansard/1758618446023035.pdf"
+  }
+}
