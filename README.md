@@ -1,18 +1,18 @@
 # 🏛️#SriLanka 🇱🇰 Hansard `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--25_09:37:51-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--09--25_18:00:39-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard)
 
 A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers’ words and decisions for history, law, and public accountability.
 
-- [**1,663** documents](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard) (**22.2 GB**), from **2006-02-01** to **2025-09-12**, scraped from **[https://www.parliament.lk](https://www.parliament.lk)**
+- [**192** documents](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard) (**392.2 MB**), from **2023-08-08** to **2025-09-12**, scraped from **[https://www.parliament.lk](https://www.parliament.lk)**
 
-- In **JSON**, **PDF**, **TXT** & **🤗 Hugging Face**
+- In **JSON**, **PDF** (17%), **TXT** (17%) & **🤗 Hugging Face** (17%)
 
 - In **සිංහල**, **தமிழ்** & **English**
 
-![Chart](https://raw.githubusercontent.com/nuuuwan/lk_hansard/refs/heads/data/data/lk_hansard/docs_by_year_and_lang.png)
+![Chart](https://raw.githubusercontent.com/nuuuwan/lk_hansard/refs/heads/data/data/lk_hansard/docs_by_month_and_lang.png)
 
 
 ---
