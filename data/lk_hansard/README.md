@@ -1,6 +1,6 @@
 # 🏛️#SriLanka 🇱🇰 Hansard `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--10--02_06:51:16-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--10--02_08:05:40-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard)
 
