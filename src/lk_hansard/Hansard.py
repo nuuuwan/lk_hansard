@@ -3,7 +3,7 @@ from typing import Generator
 from utils import JSONFile, Log, TimeFormat
 
 from scraper import AbstractPDFDoc
-from utils_future import WWW
+from utils import WWW
 
 log = Log("Hansard")
 
