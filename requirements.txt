@@ -4,4 +4,5 @@ huggingface_hub
 matplotlib
 pandas
 pymupdf
+scraper-nuuuwan
 utils-nuuuwan
