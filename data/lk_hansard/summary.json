@@ -2,13 +2,13 @@
   "doc_class_label": "lk_hansard",
   "doc_class_emoji": "\ud83c\udfdb\ufe0f",
   "doc_class_description": "A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers\u2019 words and decisions for history, law, and public accountability.",
-  "time_updated": "2025-10-08 21:33:28",
+  "time_updated": "2025-10-08 22:34:41",
   "n_docs": 1665,
   "n_docs_with_pdfs": 1636,
   "n_docs_with_text": 1636,
   "date_str_min": "2006-02-01",
   "date_str_max": "2025-09-24",
-  "dataset_size": 17904497354,
+  "dataset_size": 17904497359,
   "url_source_list": [
     "https://www.parliament.lk"
   ],
