@@ -4,7 +4,7 @@
 
 ## 001 🏛️ Hansard
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--10--09_23:33:20-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--10--10_00:39:14-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard](https://github.com/nuuuwan/lk_hansard/tree/data/data/lk_hansard)
 
