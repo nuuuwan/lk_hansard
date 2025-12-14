@@ -19,7 +19,10 @@ class Hansard(AbstractPDFDoc):
     def get_doc_class_description(cls) -> str:
         return "\n\n".join(
             [
-                "A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers’ words and decisions for history, law, and public accountability.",  # noqa: E501
+                "A Hansard is the official verbatim record of"
+                + " parliamentary debates, preserving lawmakers’ words"
+                + " and decisions for history, law,"
+                + " and public accountability.",
             ]
         )
 
@@ -102,6 +105,17 @@ class Hansard(AbstractPDFDoc):
     @classmethod
     def __process_page__(cls, i_page) -> list["Hansard"]:
         url_page = f"{cls.URL}?page={i_page}"
+        item_count = 10
+        shard_decade = cls.get_shard_decade()
+        date_str_from = f"{shard_decade[:3]}0-01-01"
+        date_str_to = f"{shard_decade[:3]}9-12-31"
+        url_page = (
+            "https://www.parliament.lk"
+            + "/en/business-of-parliament/hansards"
+            + f"?item_count={item_count}"
+            + f"&dFromDate={date_str_from}&dToDate={date_str_to}"
+        )
+        log.debug(f"{url_page=}")
         www = WWW(url_page)
 
         try:
