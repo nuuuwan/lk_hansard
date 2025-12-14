@@ -1,12 +1,12 @@
 # 🏛️#SriLanka 🇱🇰 Hansard 2000S `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_10:25:34-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_10:30:29-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s)
 
 A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers’ words and decisions for history, law, and public accountability.
 
-- [**8** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s) (**64.8 MB**), from **2009-10-22** to **2009-12-08**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
+- [**10** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s) (**126.8 MB**), from **2009-10-20** to **2009-12-08**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
 
 - In **JSON**, **PDF**, **TXT** & **🤗 Hugging Face**
 
@@ -48,6 +48,8 @@ A Hansard is the official verbatim record of parliamentary debates, preserving l
 - 2009-11-03 | `2009-11-03` | Hansard of November 03, 2009 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s/2000s/2009/2009-11-03-2009-11-03)
 - 2009-10-23 | `2009-10-23` | Hansard of October 23, 2009 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s/2000s/2009/2009-10-23-2009-10-23)
 - 2009-10-22 | `2009-10-22` | Hansard of October 22, 2009 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s/2000s/2009/2009-10-22-2009-10-22)
+- 2009-10-21 | `2009-10-21` | Hansard of October 21, 2009 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s/2000s/2009/2009-10-21-2009-10-21)
+- 2009-10-20 | `2009-10-20` | Hansard of October 20, 2009 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s/2000s/2009/2009-10-20-2009-10-20)
 
 ---
 
