@@ -76,6 +76,10 @@ class Hansard(AbstractPDFDoc):
         for tr in table.find_all("tr"):
             try:
                 doc = cls.__parse_tr__(tr)
+                decade = doc.date_str[:3] + "0s"
+                if decade != cls.get_shard_decade():
+                    return doc_list
+
                 doc_list.append(doc)
             except Exception as e:
                 log.error(f"{e}")
@@ -107,7 +111,7 @@ class Hansard(AbstractPDFDoc):
         i_page = 0
         while i_page < cls.MAX_PAGES:
             doc_list = cls.__process_page__(i_page)
-            if not doc_list:
+            if not doc_list or len(doc_list) == 0:
                 return
             yield from doc_list
             i_page += 1
