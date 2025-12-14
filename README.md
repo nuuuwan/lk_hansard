@@ -1,6 +1,60 @@
 # 🇱🇰 #SriLanka `Datasets`
 
-**0** datasets, with **0** documents (**0 B**).
+**3** datasets, with **204** documents (**599.9 MB**).
+
+## 001 🏛️ Hansard 2020S
+
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_10:30:58-green)
+
+[https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s)
+
+A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers’ words and decisions for history, law, and public accountability.
+
+- [**184** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s) (**323.6 MB**), from **2023-11-17** to **2025-11-20**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
+
+- In **JSON**, **PDF** (17%), **TXT** (17%) & **🤗 Hugging Face** (17%)
+
+- In **සිංහල**, **தமிழ்** & **English**
+
+- 🎓 Cite as **[arXiv:2510.04124](https://arxiv.org/abs/2510.04124) [cs.CL]**
+
+![Chart](https://raw.githubusercontent.com/nuuuwan/lk_hansard/refs/heads/data_lk_hansard_2020s/data/lk_hansard_2020s/docs_by_month_and_lang.png)
+
+## 002 🏛️ Hansard 2010S
+
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_10:30:27-green)
+
+[https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s)
+
+A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers’ words and decisions for history, law, and public accountability.
+
+- [**10** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s) (**149.5 MB**), from **2019-09-05** to **2019-11-11**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
+
+- In **JSON**, **PDF**, **TXT** & **🤗 Hugging Face**
+
+- In **සිංහල**, **தமிழ்** & **English**
+
+- 🎓 Cite as **[arXiv:2510.04124](https://arxiv.org/abs/2510.04124) [cs.CL]**
+
+![Chart](https://raw.githubusercontent.com/nuuuwan/lk_hansard/refs/heads/data_lk_hansard_2010s/data/lk_hansard_2010s/docs_by_day_and_lang.png)
+
+## 003 🏛️ Hansard 2000S
+
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_10:30:29-green)
+
+[https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s)
+
+A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers’ words and decisions for history, law, and public accountability.
+
+- [**10** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s) (**126.8 MB**), from **2009-10-20** to **2009-12-08**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
+
+- In **JSON**, **PDF**, **TXT** & **🤗 Hugging Face**
+
+- In **සිංහල**, **தமிழ்** & **English**
+
+- 🎓 Cite as **[arXiv:2510.04124](https://arxiv.org/abs/2510.04124) [cs.CL]**
+
+![Chart](https://raw.githubusercontent.com/nuuuwan/lk_hansard/refs/heads/data_lk_hansard_2000s/data/lk_hansard_2000s/docs_by_day_and_lang.png)
 
 ---
 
