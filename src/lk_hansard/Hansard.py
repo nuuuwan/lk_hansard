@@ -93,10 +93,8 @@ class Hansard(AbstractPDFDoc):
                 if doc is None:
                     continue
                 decade = doc.date_str[:3] + "0s"
-                if decade != cls.get_shard_decade():
-                    return doc_list
-
-                doc_list.append(doc)
+                if decade == cls.get_shard_decade():
+                    doc_list.append(doc)
             except Exception as e:
                 log.error(f"{e}")
         return doc_list
@@ -127,9 +125,8 @@ class Hansard(AbstractPDFDoc):
         i_page = 1
         while i_page < cls.MAX_PAGES:
             doc_list = cls.__process_page__(i_page)
-            if not doc_list or len(doc_list) == 0:
-                return
-            yield from doc_list
+            if doc_list:
+                yield from doc_list
             i_page += 1
 
     @classmethod
