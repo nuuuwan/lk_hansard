@@ -1,14 +1,14 @@
 # 🏛️#SriLanka 🇱🇰 Hansard 2020S `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_10:14:02-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_10:19:29-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s)
 
 A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers’ words and decisions for history, law, and public accountability.
 
-- [**184** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s) (**122.7 MB**), from **2023-11-17** to **2025-11-20**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
+- [**184** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s) (**237.9 MB**), from **2023-11-17** to **2025-11-20**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
 
-- In **JSON**, **PDF** (9%), **TXT** (9%) & **🤗 Hugging Face** (9%)
+- In **JSON**, **PDF** (13%), **TXT** (13%) & **🤗 Hugging Face** (13%)
 
 - In **සිංහල**, **தமிழ்** & **English**
 
