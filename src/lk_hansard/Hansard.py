@@ -12,7 +12,7 @@ class Hansard(AbstractPDFDoc):
     URL = "https://www.parliament.lk/en/business-of-parliament/hansards"
     DATE_FORMAT_HANSARD = TimeFormat("%B %d, %Y")
     DATE_FORMAT_GENERIC = TimeFormat("%Y-%m-%d")
-    MAX_PAGES = 100
+    MAX_PAGES = 1000
     LANG = "si-ta-en"
 
     @classmethod
@@ -109,7 +109,7 @@ class Hansard(AbstractPDFDoc):
 
     @classmethod
     def gen_docs(cls) -> Generator["Hansard", None, None]:
-        i_page = 0
+        i_page = 1
         while i_page < cls.MAX_PAGES:
             doc_list = cls.__process_page__(i_page)
             if not doc_list or len(doc_list) == 0:
