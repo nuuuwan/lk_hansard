@@ -1,18 +1,18 @@
 # 🇱🇰 #SriLanka `Datasets`
 
-**3** datasets, with **204** documents (**1.7 GB**).
+**3** datasets, with **204** documents (**2.3 GB**).
 
 ## 001 🏛️ Hansard 2020S
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_12:28:52-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_14:14:11-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s)
 
 A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers’ words and decisions for history, law, and public accountability.
 
-- [**184** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s) (**1.4 GB**), from **2023-11-17** to **2025-11-20**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
+- [**184** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s) (**2.0 GB**), from **2023-11-17** to **2025-11-20**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
 
-- In **JSON**, **PDF** (96%), **TXT** (96%) & **🤗 Hugging Face** (96%)
+- In **JSON**, **PDF**, **TXT** & **🤗 Hugging Face**
 
 - In **සිංහල**, **தமிழ்** & **English**
 
@@ -22,7 +22,7 @@ A Hansard is the official verbatim record of parliamentary debates, preserving l
 
 ## 002 🏛️ Hansard 2010S
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_12:16:06-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_14:12:17-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s)
 
@@ -40,7 +40,7 @@ A Hansard is the official verbatim record of parliamentary debates, preserving l
 
 ## 003 🏛️ Hansard 2000S
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_12:16:00-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_14:12:04-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s)
 
