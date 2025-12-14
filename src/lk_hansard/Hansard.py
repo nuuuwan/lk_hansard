@@ -92,8 +92,7 @@ class Hansard(AbstractPDFDoc):
 
     @classmethod
     def __process_page__(cls, i_page) -> list["Hansard"]:
-        start = i_page * 20
-        url_page = f"{cls.URL}?start={start}"
+        url_page = f"{cls.URL}?page={i_page}"
         www = WWW(url_page)
 
         try:
