@@ -23,15 +23,6 @@ class Hansard(AbstractPDFDoc):
         )
 
     @classmethod
-    def is_year_shard_match(cls, args) -> bool:
-        shard_decade = cls.get_shard_decade()
-        if not shard_decade:
-            return True
-        year = int(args[-9:-5])
-        decade = str(year)[:3] + "0s"
-        return decade == shard_decade
-
-    @classmethod
     @cache
     def get_shard_decade(cls):
         raise NotImplementedError
