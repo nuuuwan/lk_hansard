@@ -37,18 +37,31 @@ class Hansard(AbstractPDFDoc):
         return "🏛️"
 
     @classmethod
-    def __parse_tr__(cls, tr) -> "Hansard":
-        td = tr.find("td")
-        description = td.get_text().strip()
+    def __parse_date__(cls, date_str: str) -> str:
+        for format_str in ["%Y-%m-%d", "%B %d, %Y"]:
+            try:
+                return TimeFormat(format_str).parse(date_str)
+            except ValueError:
+                continue
+        raise ValueError(
+            f"Date string '{date_str}' does not match expected formats."
+        )
+
+    @classmethod
+    def __parse_row__(cls, div_row) -> "Hansard":
+        h1_description = div_row.find("h1")
+        assert h1_description is not None, "No h1 found in row"
+        description = h1_description.get_text().strip()
         assert description.startswith("Hansard of "), description
 
-        a = td.find("a")
+        div_link = div_row.find("div", class_="align_center_div")
+        a = div_link.find("a")
         url_pdf = a["href"]
         assert url_pdf.endswith(".pdf"), url_pdf
 
         date_str_formatted = description.replace("Hansard of ", "")
         date_str = cls.DATE_FORMAT_GENERIC.format(
-            cls.DATE_FORMAT_HANSARD.parse(date_str_formatted)
+            cls.__parse_date__(date_str_formatted)
         )
         assert len(date_str) == 10, date_str
 
@@ -72,11 +85,13 @@ class Hansard(AbstractPDFDoc):
             log.warning(f"➕ Added lang={cls.LANG} to {json_path}")
 
     @classmethod
-    def __process_table__(cls, table) -> list["Hansard"]:
+    def __process_container__(cls, div_container) -> list["Hansard"]:
         doc_list = []
-        for tr in table.find_all("tr"):
+        for div_row in div_container.find_all("div", class_="row"):
             try:
-                doc = cls.__parse_tr__(tr)
+                doc = cls.__parse_row__(div_row)
+                if doc is None:
+                    continue
                 decade = doc.date_str[:3] + "0s"
                 if decade != cls.get_shard_decade():
                     return doc_list
@@ -97,15 +112,15 @@ class Hansard(AbstractPDFDoc):
                 log.error(f"Failed to get soup for {url_page}")
                 return []
 
-            table = soup.find("table", class_="tablearticle")
-            if table is None:
-                log.error(f"Failed to find table for {url_page}")
+            div_container = soup.find_all("div", class_="container")[4]
+            if not div_container:
+                log.error(f"No div_container with row child for {url_page}")
                 return []
         except Exception as e:
             log.error(f"Failed to process {url_page}: {e}")
             return []
 
-        return cls.__process_table__(table)
+        return cls.__process_container__(div_container)
 
     @classmethod
     def gen_docs(cls) -> Generator["Hansard", None, None]:
