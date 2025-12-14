@@ -1,12 +1,12 @@
 # 🏛️#SriLanka 🇱🇰 Hansard 2010S `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_10:22:22-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2025--12--14_10:30:27-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s)
 
 A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers’ words and decisions for history, law, and public accountability.
 
-- [**8** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s) (**79.1 MB**), from **2019-09-17** to **2019-11-11**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
+- [**10** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s) (**149.5 MB**), from **2019-09-05** to **2019-11-11**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
 
 - In **JSON**, **PDF**, **TXT** & **🤗 Hugging Face**
 
@@ -48,6 +48,8 @@ A Hansard is the official verbatim record of parliamentary debates, preserving l
 - 2019-09-19 | `2019-09-19` | Hansard of September 19, 2019 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s/2010s/2019/2019-09-19-2019-09-19)
 - 2019-09-18 | `2019-09-18` | Hansard of September 18, 2019 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s/2010s/2019/2019-09-18-2019-09-18)
 - 2019-09-17 | `2019-09-17` | Hansard of September 17, 2019 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s/2010s/2019/2019-09-17-2019-09-17)
+- 2019-09-06 | `2019-09-06` | Hansard of September 06, 2019 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s/2010s/2019/2019-09-06-2019-09-06)
+- 2019-09-05 | `2019-09-05` | Hansard of September 05, 2019 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s/2010s/2019/2019-09-05-2019-09-05)
 
 ---
 
