@@ -1,7 +1,8 @@
+import sys
 from functools import cache
 from typing import Generator
 
-from scraper import AbstractPDFDoc
+from scraper import AbstractPDFDoc, GlobalReadMe
 from utils import WWW, JSONFile, Log, TimeFormat
 
 log = Log("Hansard")
@@ -115,3 +116,25 @@ class Hansard(AbstractPDFDoc):
                 return
             yield from doc_list
             i_page += 1
+
+    @classmethod
+    def run_pipeline(cls, max_dt=None):
+        max_dt = (
+            max_dt
+            or (float(sys.argv[2]) if len(sys.argv) > 2 else None)
+            or cls.MAX_DT
+        )
+        log.debug(f"{max_dt=}s")
+
+        cls.cleanup_all()
+        cls.scrape_all_metadata(max_dt)
+        cls.write_all()
+        cls.scrape_all_extended_data(max_dt)
+        cls.build_summary()
+        cls.build_doc_class_readme()
+        cls.build_and_upload_to_hugging_face()
+
+        if not cls.is_multi_doc():
+            GlobalReadMe(
+                {cls.get_repo_name(): [cls.get_doc_class_label()]}
+            ).build()
