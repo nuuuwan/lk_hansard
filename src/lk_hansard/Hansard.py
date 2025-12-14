@@ -1,9 +1,8 @@
+from functools import cache
 from typing import Generator
 
-from utils import JSONFile, Log, TimeFormat
-
 from scraper import AbstractPDFDoc
-from utils import WWW
+from utils import WWW, JSONFile, Log, TimeFormat
 
 log = Log("Hansard")
 
@@ -22,6 +21,24 @@ class Hansard(AbstractPDFDoc):
                 "A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers’ words and decisions for history, law, and public accountability.",  # noqa: E501
             ]
         )
+
+    @classmethod
+    def is_year_shard_match(cls, args) -> bool:
+        shard_decade = cls.get_shard_decade()
+        if not shard_decade:
+            return True
+        year = int(args[-9:-5])
+        decade = str(year)[:3] + "0s"
+        return decade == shard_decade
+
+    @classmethod
+    @cache
+    def get_shard_decade(cls):
+        raise NotImplementedError
+
+    @classmethod
+    def get_doc_class_label(cls):
+        return "lk_hansard_" + cls.get_shard_decade()
 
     @classmethod
     def get_doc_class_emoji(cls) -> str:
