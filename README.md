@@ -4,7 +4,7 @@
 
 ## 001 🏛️ Hansard 2020S
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2026--06--02_23:29:18-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2026--06--03_07:11:41-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s)
 
@@ -22,7 +22,7 @@ A Hansard is the official verbatim record of parliamentary debates, preserving l
 
 ## 002 🏛️ Hansard 2010S
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2026--06--02_23:27:18-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2026--06--03_07:09:20-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s)
 
