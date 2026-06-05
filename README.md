@@ -4,15 +4,15 @@
 
 ## 001 🏛️ Hansard 2020S
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2026--06--05_15:23:01-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2026--06--05_22:52:28-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s)
 
 A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers’ words and decisions for history, law, and public accountability.
 
-- [**230** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s) (**3.0 GB**), from **2023-11-17** to **2026-05-22**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
+- [**230** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s) (**3.1 GB**), from **2023-11-17** to **2026-05-22**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
 
-- In **JSON**, **PDF** (100%), **TXT** (100%) & **🤗 Hugging Face** (100%)
+- In **JSON**, **PDF**, **TXT** & **🤗 Hugging Face**
 
 - In **සිංහල**, **தமிழ்** & **English**
 
@@ -22,7 +22,7 @@ A Hansard is the official verbatim record of parliamentary debates, preserving l
 
 ## 002 🏛️ Hansard 2010S
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2026--06--05_15:20:20-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2026--06--05_22:50:09-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2010s/data/lk_hansard_2010s)
 
@@ -40,7 +40,7 @@ A Hansard is the official verbatim record of parliamentary debates, preserving l
 
 ## 003 🏛️ Hansard 2000S
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2026--06--05_15:20:32-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2026--06--05_22:50:14-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2000s/data/lk_hansard_2000s)
 
