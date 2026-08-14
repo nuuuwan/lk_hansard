@@ -1,12 +1,12 @@
 # 🏛️#SriLanka 🇱🇰 Hansard 2020S `Dataset`
 
-![LastUpdated](https://img.shields.io/badge/last_updated-2026--08--14_06:25:20-green)
+![LastUpdated](https://img.shields.io/badge/last_updated-2026--08--14_14:27:04-green)
 
 [https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s)
 
 A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers’ words and decisions for history, law, and public accountability.
 
-- [**247** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s) (**3.3 GB**), from **2023-11-17** to **2026-08-04**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
+- [**248** documents](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s) (**3.3 GB**), from **2023-11-17** to **2026-08-05**, scraped from [https://www.parliament.lk](https://www.parliament.lk)
 
 - In **JSON**, **PDF**, **TXT** & **🤗 Hugging Face**
 
@@ -19,13 +19,13 @@ A Hansard is the official verbatim record of parliamentary debates, preserving l
 ```json
 {
     "doc_type": "lk_hansard_2020s",
-    "doc_id": "2026-08-04-2026-08-04",
-    "num": "2026-08-04",
-    "date_str": "2026-08-04",
-    "description": "Hansard of 2026-08-04",
+    "doc_id": "2026-08-05-2026-08-05",
+    "num": "2026-08-05",
+    "date_str": "2026-08-05",
+    "description": "Hansard of 2026-08-05",
     "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
     "lang": "si-ta-en",
-    "url_pdf": "https://www.parliament.lk/uploads/businessdocs/english/24107_english_2026-08-04.pdf"
+    "url_pdf": "https://www.parliament.lk/uploads/businessdocs/english/24112_english_2026-08-05.pdf"
 }
 ```
 
@@ -40,6 +40,7 @@ A Hansard is the official verbatim record of parliamentary debates, preserving l
 
 ## 🆕 20 Latest documents
 
+- 2026-08-05 | `2026-08-05` | Hansard of 2026-08-05 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s/2020s/2026/2026-08-05-2026-08-05)
 - 2026-08-04 | `2026-08-04` | Hansard of 2026-08-04 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s/2020s/2026/2026-08-04-2026-08-04)
 - 2026-07-24 | `2026-07-24` | Hansard of 2026-07-24 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s/2020s/2026/2026-07-24-2026-07-24)
 - 2026-07-23 | `2026-07-23` | Hansard of 2026-07-23 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s/2020s/2026/2026-07-23-2026-07-23)
@@ -59,7 +60,6 @@ A Hansard is the official verbatim record of parliamentary debates, preserving l
 - 2026-06-09 | `2026-06-09` | Hansard of 2026-06-09 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s/2020s/2026/2026-06-09-2026-06-09)
 - 2026-05-22 | `2026-05-22` | Hansard of 2026-05-22 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s/2020s/2026/2026-05-22-2026-05-22)
 - 2026-05-21 | `2026-05-21` | Hansard of 2026-05-21 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s/2020s/2026/2026-05-21-2026-05-21)
-- 2026-05-20 | `2026-05-20` | Hansard of 2026-05-20 | [data](https://github.com/nuuuwan/lk_hansard/tree/data_lk_hansard_2020s/data/lk_hansard_2020s/2020s/2026/2026-05-20-2026-05-20)
 
 ---
 
