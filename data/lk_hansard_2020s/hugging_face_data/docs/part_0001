@@ -2668,5 +2668,25 @@
     "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
     "lang": "si-ta-en",
     "url_pdf": "https://www.parliament.lk/uploads/businessdocs/english/24507_english_2026-10-20.pdf"
+  },
+  {
+    "doc_type": "lk_hansard_2020s",
+    "doc_id": "2026-10-21-2026-10-21",
+    "num": "2026-10-21",
+    "date_str": "2026-10-21",
+    "description": "Hansard of 2026-10-21",
+    "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
+    "lang": "si-ta-en",
+    "url_pdf": "https://www.parliament.lk/uploads/businessdocs/english/24524_english_2026-10-21.pdf"
+  },
+  {
+    "doc_type": "lk_hansard_2020s",
+    "doc_id": "2026-10-22-2026-10-22",
+    "num": "2026-10-22",
+    "date_str": "2026-10-22",
+    "description": "Hansard of 2026-10-22",
+    "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
+    "lang": "si-ta-en",
+    "url_pdf": "https://www.parliament.lk/uploads/businessdocs/english/24525_english_2026-10-22.pdf"
   }
 ]
