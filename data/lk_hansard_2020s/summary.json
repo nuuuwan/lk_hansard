@@ -2,15 +2,15 @@
   "doc_class_label": "lk_hansard_2020s",
   "doc_class_emoji": "\ud83c\udfdb\ufe0f",
   "doc_class_description": "A Hansard is the official verbatim record of parliamentary debates, preserving lawmakers\u2019 words and decisions for history, law, and public accountability.",
-  "time_updated": "2026-11-20 06:21:31",
-  "n_docs": 274,
-  "n_docs_with_pdfs": 274,
-  "n_docs_with_text": 274,
+  "time_updated": "2026-11-20 14:10:53",
+  "n_docs": 275,
+  "n_docs_with_pdfs": 275,
+  "n_docs_with_text": 275,
   "n_docs_with_excel": 0,
   "n_docs_with_tabular": 0,
   "date_str_min": "2023-11-17",
-  "date_str_max": "2026-11-06",
-  "dataset_size": 3656685324,
+  "date_str_max": "2026-11-12",
+  "dataset_size": 3684126342,
   "url_source_list": [
     "https://www.parliament.lk"
   ],
@@ -21,12 +21,12 @@
   ],
   "latest_doc_d": {
     "doc_type": "lk_hansard_2020s",
-    "doc_id": "2026-11-06-2026-11-06",
-    "num": "2026-11-06",
-    "date_str": "2026-11-06",
-    "description": "Hansard of 2026-11-06",
+    "doc_id": "2026-11-12-2026-11-12",
+    "num": "2026-11-12",
+    "date_str": "2026-11-12",
+    "description": "Hansard of 2026-11-12",
     "url_metadata": "https://www.parliament.lk/en/business-of-parliament/hansards",
     "lang": "si-ta-en",
-    "url_pdf": "https://www.parliament.lk/uploads/businessdocs/english/24628_english_2026-11-06.pdf"
+    "url_pdf": "https://www.parliament.lk/uploads/businessdocs/english/24650_english_2026-11-12.pdf"
   }
 }
